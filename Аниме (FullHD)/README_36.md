@@ -1,3 +1,55 @@
+###  Публикация: 1170103   (399305) от 01.10.2017
+
+Gekijouban Kuroko no Baske: Last Game | Kuroko's basketbal: Last Game | Баскетбол Куроко: последняя игра [2017, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В японском молодежном баскетболе все знают среднюю школу Тэйко, клуб которой славен не только традициями, но и великолепной «дрим тим», «чудо-поколением», пятеркой гениев, которая в последние годы выиграла в своей категории все, что можно. Настало время – и пятеро юных талантов разошлись по пяти старшим школам – разумеется, столь же престижным в спортивном плане. (   Читать дальше...   )Производство: Студия Production I.GЖанр: спортРежиссер: Tada ShunsukeПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72C0427D5537BCA32D4A9F6A4505B017400155A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717133   (391726) от 31.10.2013
+
+Sherlock Hound: The Adventure of the Blue Carbuncle | Meitantei Holmes: Aoi Akadama no Maki | Великий детектив Холмс - Фильм [1984, MV] BDRip 1080p Hi10p Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие в фильме происходит в викторианской Англии, населённой исключительно собаками, каковыми являются и Шерлок Холмс, и доктор Ватсон, и их злейший враг профессор Мориарти. Холмс тут значительно моложе и подвижнее, чем у Конан Дойля, а миссис Хадсон - вообще молоденькая барышня, играющая немалую роль в происходящих событиях. Большие или маленькие, все дела важны (   Читать дальше...   )Жанр: приключения, комедия, детективРежиссер: Миядзаки ХаяоСубтитры: •Продолжительность: 46 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1ED6E456B4B7F8F41286B175921FB9EB706F858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120415   (391712) от 09.10.2017
 
 Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи и её горничная-дракон [2017, TV, 14 эп. + 7 SP] BDrip 1080p raw
@@ -6,7 +58,7 @@ Kobayashi-san Chi no Maid Dragon | Miss Kobayashi's Dragon Maid | Кобаяcи 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Ajin | Полулюди [2015, MV, 3] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +167,7 @@ Kono Sekai no Katasumi ni | In This Corner of the World | В этом уголк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +193,7 @@ Kurogane no Linebarrels | Linebarrels of Iron | Стальной Лайнбар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +219,7 @@ Gekijouban Mahouka Koukou no Rettousei: Hoshi o Yobu Shoujo | Непутевый
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +245,7 @@ Gekijouban Kidou Senshi Gundam 00: A Wakening of the Trailblazer | Mobile Suit G
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +273,7 @@ Captain Earth | Капитан Земля [2014, TV, 25] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +299,7 @@ Gake no Ue no Ponyo / Ponyo on the Cliff by the Sea / Рыбка Поньо на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +325,7 @@ Gochuumon wa Usagi Desuka?? Sing for You | Кролика заказывали? 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +351,7 @@ Gochuumon wa Usagi Desuka?? Dear My Sister | Кролика заказывали
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +377,7 @@ Yuru Yuri San Hai! / Свободу лесбиянкам! Три подружк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +403,7 @@ One Punch Man | One-Punch Man | Ванпанчмен [2015, TV, 12 + 6sp] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +455,7 @@ Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +481,7 @@ Aria the Benedizione | Ария: Благословение [2021, Movie] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +508,7 @@ Ai no Utagoe o Kikasete | Sing a Bit of Harmony | Спой немного гар
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +534,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +561,7 @@ Totsukuni no Shoujo (2022) | Девочка из Чужеземья OVA-2 [2022,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +587,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +613,7 @@ Amanchu! / Аманчу! [2016, TV, 12 + OVA] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +639,7 @@ Ghost in the Shell: Stand Alone Complex 2nd GIG / Призрак в доспех
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +665,7 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,60 +676,6 @@ Liz to Aoi Tori | Liz and the Blue Bird | Лиз и синяя птица [2018,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73921F32A01F160A6CB25C5E64AAB0B895B4D3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327162   (378642) от 23.09.2019
-
-Asagao to Kase-san. | Kase-san and Morning Glories. | Сияние утра и Касэ [2018, OVA] BDRip HEVC 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юи Ямада — робкая старшеклассница, обожающая ухаживать за школьными клумбами, влюбляется в Томоку Касэ, и они начинают встречаться. История рассказывает о различных проблемах, с которыми девушки сталкиваются в их отношениях.Производство: Япония, ZEXCSЖанр: комедия, романтика, повседневность, сёдзё-айРежиссер: Сато ТакуяПеревод: Medusa Project (хардсаб в софтсаб и "редактура" TiredGirl)Субтитры: ass, в контейнере, русскиеПродолжительность: OVA, 1 эпизод ~60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAC9182D02A376AB9A63087961770F53D05EBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575462   (376925) от 09.09.2022
-
-Eiga Odd Taxi: In the Woods | Необычное такси (фильм) [2022, Movie] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот город должен казаться знакомым, но внезапно оказывается, что это не так.
-Таксист Одокава живет очень мирской жизнью. У него нет семьи, он почти не общается с другими, и он чудак, ограниченный и малоразговорчивый. Единственные, кого он может назвать друзьями, это его доктор Гурики и его одноклассник Какибана.
-Все его покровители сами по себе кажутся немного странными. (   Читать дальше...   )Производство: P.I.C.S.Жанр: комедия, детективРежиссер: Киносита БакуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 130 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B02952180D5D591C37F9F45FBEF538DB282D1A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

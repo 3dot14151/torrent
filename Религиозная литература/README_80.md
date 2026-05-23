@@ -1,3 +1,113 @@
+###  Публикация: 951907   (357939) от 31.10.2015
+
+Михаэль Лайтман | Каббала. Высший мир. Начало пути (2015) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дорогой читатель!
+
+Перед Вами учебное пособие по каббале, составленное под руководством ученого-каббалиста, профессора, руководителя Международной академии каббалы Михаэля Лайтмана.
+(   Читать дальше...   )Жанр: Эзотерика, религияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298455B8BE96189E4737D74CA9070F2787F89617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329031   (356730) от 03.10.2019
+
+Иеромонах Григорий Святогорец | Страсть осуждения (2017) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия книг афонского иеромонаха Григория, ученика преподобного Паисия Святогорца, знакомит читателя с сокровищницей святоотеческой литературы. Богословие святых отцов, обращённое к повседневным заботам человека, делает их слова близкими и понятными каждому. Простым языком автор говорит о главном в жизни верующего: избавлении от страстей, исполнении заповеди любви, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE069223E9F54218A3A33927D5A8A7FB75C17E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329138   (356646) от 03.10.2019
+
+Протоиерей Сергий Филимонов | Учебник для сестёр милосердия (2007) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Протоиерей Сергий Филимонов — настоятель больничного прихода, доктор медицинских наук, кандидат богословия. Одновременно — председатель Общества православных врачей СПб. и духовник Сестричества св. мч. Татианы.
+Первые группы милосердия были созданы о. Сергием в 1993 году. Они состояли из христианок, желавших послужить в больнице. В 1995–1996 гг. батюшкой были основаны (   Читать дальше...   )Жанр: Христианство. Православие. Социальное служениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329022   (356644) от 03.10.2019
+
+Монахиня Евфимия | Тайны монастырей. Жизнь в древних женских обителях (2015) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь за монастырскими стенами всегда была окутана ореолом мистической тайны. Эта книга даёт прекрасную возможность заглянуть внутрь русского монастыря и познакомиться с повседневной жизнью женских обителей по впервые публикующимся в печати архивным данным.
+
+Перед вашим взором пройдёт галерея игумений северных женских обителей, сестёр милосердия, монастырских воспитанниц. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 837514   (356618) от 03.11.2014
 
 Артур Древс | Миф о христе [2 тома] (1924-1925) [DJVU]
@@ -6,7 +116,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F89789C8506FB3DF536F4629872DBCEAD14913E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418752   (346804) от 25.10.2020
-
-Митрополит Нектарий (Антонопулос) | Святая Гора. Гора, которую я немного узнал, но сильно полюбил (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — плод многолетней работы хорошо известного на Святой Горе высокопреосвященного Нектария, митрополита Арголидского. С юности полюбив Афон, он на протяжении нескольких десятилетий по нескольку раз в год посещал Святую Гору. Все свои беседы с афонскими старцами автор пуктуально записывал сначала в свой дневник, а затем и на магнитофон. В результате у него (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9673EB7CCB39F783A894E226D1D57E7AB4A5F324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725044   (345961) от 22.11.2013
-
-Свящ. А.М. Темномеров | Учение Священного Писания о смерти, загробной жизни и воскресении из мертвых (1899) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345961.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: "Между многими вопросами верующего разума вопрос о смерти человека и его дальнейшей судьбе является, бесспорно, одним из самых настойчивых. Самая жизнь только тогда получает смысл и должное направление, когда человек убедится в бесконечном продолжении своего существования и признает другой мир, в котором могут найти осуществления все законные стремления (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FC9BB34BB2534BD8694BD61EE58FB20BD7EDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330113   (345747) от 08.10.2019
-
-Диакон Илья Кокин | Страх возводит стены, любовь строит мосты (2018) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345747.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих лет автор читал лекции и проводил беседы со старшеклассниками и студентами. Оказалось, что из всего многообразия тем слушателей сильнее всего волновали две: тема страха (и всего, что с ним связано, — тревоги, смерти и т. п.) и тема любви (в первую очередь между мужчиной и женщиной). Отталкиваясь от этих двух тем, разбирая наши главные страхи (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F3A39EDB9B6CB40B15230F025CAD9B04413C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954186   (344764) от 06.11.2015
-
-Анатолий Алексеевич Спасский | Эллинизм и христианство (2006) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эллинизм и христианство - одна из самых известных работ русского историка древней Церкви Анатолия Алексеевича Спасского (1866-1916). Она посвящена полным захватывающего интереса взаимоотношениям древней греко-римской культуры и новой, по тем временам, богооткровенной религии - христианства. Сложная область культурно-философских понятий эллинизма и христианства рассмотрена (   Читать дальше...   )Жанр: Монография, история раннего христианстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E67DA2188A756F8F7B160042D783CCD23922019
 ```
 
 https://mybot314.ru/tekegram_catalog/

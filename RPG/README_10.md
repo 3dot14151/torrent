@@ -1,3 +1,81 @@
+###  Публикация: 1099822   (902572) от 02.02.2017
+
+The Sorceress (2017) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В одном из сказочных королевств создания темных сил нападают на жителей. Чудовища появляются внезапно и так же внезапно исчезают.Никто до сих пор не знает кто они, кто их ведет и откуда взялась такая напасть.В борьбе с полчищами нежити и чудовищ пали лучшие рыцари королевства.Королевская армия разбита, большинство замков в руинах. Уцелевшие выживают как могут, но (   Читать дальше...   )Тип издания: LicenseРазработчик: Karabas_StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF285C9CAC645E0C442FC2C760F4D3EED2BC8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100049   (900664) от 03.02.2017
+
+The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.4.2.0.8) SteamRip Let'sPlay [Special Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition.Тип издания: SteamRipРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FA383C1346CEFAF6189F7BB712DFDD71554303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992500   (900273) от 02.03.2016
+
+Trulon: The Shadow Engine (2016) [Ru/Multi] (1.0) License FANiSO
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Trulon: The shadow engine - приключенческая ролевая игра с уникальной боевой системой от компании Kyy Games, основанная на карточной механике. Сюжет переносит в мир волшебства и магии, персонажам которого предстоит сразиться с большим количеством противников и раскрыть все заговоры о таинственной болезни. Игроков ждет более шести часов беспрерывной кампании, множеством (   Читать дальше...   )Тип издания: LicenseРазработчик: Kyy GamesЖанр: Logic, RPG, IsometricЯзык озвучки: -/-Язык субтитров: Русский, Английский, Немецкий, ФинскийЯзык интерфейса: Русский, Английский, Немецкий, Финский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3451BCCA69F598308835D1553A8ADC799B43EA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 729271   (898689) от 10.02.2015
 
 The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G. Механики
@@ -6,7 +84,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Cosmic Star Heroine (2017) [En] (1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Icewind Dale (2001) [Ru/En] (1.061/1.42/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Disgaea PC: Digital Dood Edition (2016) [En/Multi] (1.0.3) Repack АRMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Shadowrun: Hong Kong (2015) [Ru/En] (3.0.8) License GOG [Extended Edition Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Ru/En] (80.8193.9/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Arboria (2021) [En] (1.0.0.1055) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0151/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Highrisers (2021) [Ru/Multi] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +630,7 @@ UnderRail (2015) [En] (1.0.1.4) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Fallout 4 VR (2017) [Ru/Multi] (1.2.72.0.1) Repack xatab [VR]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Fallout 4, легендарное пост-апокалиптическое пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4B338973DD033F3744A6CE066A005D00B33C208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093103   (875860) от 17.02.2017
-
-Fallout 2 (1998) [En/De/Fr] (1.02) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fallout 2 - культовая ролевая игра, справедливо считающаяся одним из эталонов жанра. События ее разворачиваются в мире, пережившем ядерную катастрофу. Большая часть человечества погибла, а уцелевшие люди утратили практически все накопленные знания и постепенно возвращаются в каменный век. Ваш персонаж - Избранный, потомок главного героя первой части Fallout, живущий (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Isle StudiosЖанр: RPG, IsometricЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657E2113B93A5F5BC3248B06D74ED5C132761468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496001   (875448) от 15.09.2021
-
-ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудоград - пошаговая ролевая игра, действия которой разворачиваются в постапокалиптическом СССР. Игра вдохновлена классическими компьютерными ролевыми играми, такими как Fallout 1-2, Wasteland 1 и Baldur’s Gate. 22 года назад СССР и страны Западного блока уничтожили друг друга в результате обмена ядерными ударами. Миллионы людей погибли, общественные устои пали, (   Читать дальше...   )Тип издания: RepackРазработчик: AtomTeamЖанр: RPG (Top-Down), Strategy (TBS), 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ACEA84B6837FD88B972ED4AC99975232BBC6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496159   (874323) от 16.09.2021
-
-Eastward (2021) [Multi] (1.0.5) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874323.jpg" />
-</div>
-
-
-###  Подробнее
-
-В не столь далёком будущем цивилизация начинает рушиться, и человечество оказывается на грани вымирания. Смертоносное вещество струится по земле, разрушая и искажая всё на своем пути. Те, кому посчастливилось избежать ядовитых испарений, пытаются наладить свою жизнь в подземных убежищах. Но один трудолюбивый шахтёр и его таинственная спутница покидают безопасное (   Читать дальше...   )Тип издания: LicenseРазработчик: PixpilЖанр: RPG, Action, AdventureЯзык субтитров: Английский, Японский, Французский и другиеЯзык интерфейса: Английский, Японский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B317810DC9854FDDB5800B7ACF76EEAADDB6CF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

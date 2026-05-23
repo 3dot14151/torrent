@@ -1,3 +1,55 @@
+###  Публикация: 1443637   (1035448) от 29.01.2021
+
+Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор СПТ Лейзнер [1985, TV, 38 из 38] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Альтернативная реальность повествует о том, что мировые гиганты вышли в космос задолго до окончания холодной войны. А последняя как шла, так и продолжает идти. Причем Советский Союз и Америка создали свои колонии на Марсе. На чужой планете разворачиваются полномасштабные военные действия. Со стороны Союза готовятся отряды продвинутых детей, однако на одну из академий (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: VZbittenЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 38 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF70EC4C9508777F4AD0E2428A8E95EB5A924CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445817   (1033542) от 06.02.2021
+
+Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Октябрь 1988 года, город Охитоё. Он находится на острове Кюсю, префектура Кумамото страны Хиномото, где после Великого списания почти не осталось железных дорог. Успешная рекламная кампания во главе с локомотивом 8620 и его рельсоидом Хатироку смогла оживить экономику города и вернуть к ним интерес. Сейчас в нём проходит Первый ежегодный фестиваль Майтэцу, на который (   Читать дальше...   )Производство: студия Saetta / サエッタЖанр: приключенияРежиссер: Хирасава ХисаёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A08639FE0F9D4E70877269725ECC9FC8931895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216919   (1033112) от 07.02.2021
 
 Boruto: Naruto Next Generations / Боруто: Следующее поколение [2017, TV, 1 - 167 эп.] WEB-DL 1080p Raw
@@ -6,7 +58,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Shironeko Project: Zero Chronicle | White Cat Project | Проект «Бела�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Zuihou De Zhaohuan Shi | The Last Summoner | Последний призыват
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Boruto: Naruto Next Generations | Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +216,7 @@ ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 окру�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +296,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +324,7 @@ Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +350,7 @@ Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +376,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Amaama to Inazuma | Sweetness and Lightning | Сласти и молния [2016
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +454,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +480,7 @@ Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +532,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, Web, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Adachi to Shimamura | Adachi and Shimamura | Адати и Симамура [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +584,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +610,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +636,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -610,7 +662,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -621,58 +673,6 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449BF3F2D134140C783206A9BF77A920DC448DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446085   (1024859) от 23.03.2021
-
-Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия ведьмы: Путешествие Элейны [2020, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьма по имени Элейна странствует, посещает самые разные места и встречает разных людей. Иногда весёлая, иногда фантастическая, иногда даже немного мрачная — это история Элейны и её долгого путешествия.Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26141DD9BC9DFEB47A1FCE990E3A0465D78251B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458482   (1023831) от 29.03.2021
-
-Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movie 1st | Лиричная волшебница Наноха (фильм первый) [2010, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если твой город, весь твой мир внезапно затянуло в орбиту амбиций, интриг и политических игр неведомых, но явно высших сил? Для 9-летней Нанохи Такамати из тихого городка Уминари ответ ясен: надо драться, а что дальше – бой покажет! Симпатичная рыжая девочка, выросшая в семье мастеров меча и кулинарии, вовсе не растерялась, когда на голову в прямом смысле (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, махо-сёдзёРежиссер: Кусакава КэйдзоПеревод: Hunk & ShinyaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 130 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A5D311C655839E6F3713797B8C2FBDE9FD20C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

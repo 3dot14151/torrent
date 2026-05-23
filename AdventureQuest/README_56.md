@@ -1,3 +1,107 @@
+###  Публикация: 1342725   (222295) от 03.12.2019
+
+Waxworks (1992) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Кошмар начался, когда вам было восемь лет, и ваш брат-близнец Алекс без вести пропал в черном лабиринте под кузницей Виста, где ваш дядя Борис хранил свои одержимые демонами восковые фигуры. Прошло 20 лет... Дядя Борис умер, а вы получили в наследство его адскую коллекцию и жуткое известие о том, что Алекс жив. Одержимый древним семейным проклятием, он намеревается (   Читать дальше...   )Тип издания: LicenseРазработчик: HorrorsoftЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510397   (221731) от 30.11.2021
+
+The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Конец здесь. Апокалипсис, который чертовски реален, кроваво-библейский и кровоточащий безумный. Нации находятся в свободном падении и грызутся друг другу в глотку, брат сражается с братом, дети поднимают руки против своих старших. Хотя было ясно, что мир вот-вот будет уничтожен, произошел сбой, и вместо термоядерной мегатонной бомбы все, что мы получили, - это влажная (   Читать дальше...   )Тип издания: LicenseРазработчик: Sylen StudioЖанр: Приключение, Визуальные новеллы, ДрамаЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1380214FF40EC97639DB0D2D69024A914FDDA25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424236   (221509) от 20.11.2020
+
+Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Культовая классическая adventure с видом от первого лица по мотивам серии книг писателя Терри Брукса, переводившихся и на русский язык. Несмотря на наличие в игре боевой и ролевой составляющей, они не очень значительны, поэтому игру можно, хоть и с некоторой натяжкой, отнести именно к приключенческим играм. Для начала необходимо сказать несколько слов о мире, в котором (   Читать дальше...   )Тип издания: UnofficialРазработчик: Legend EntertainmentЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225006   (220225) от 14.12.2018
+
+Lake Ridden (2018) [En] (1.5.1505) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Lake Ridden (Озеро Риден) - игра-головоломка, основанная на истории, от первого лица. Восхитительное сверхъестественное приключение, в котором вы разгадываете загадочное прошлое, пытаясь найти свою сестру. К счастью, вы не одиноки .... В 1988 году тринадцатилетняя Мария (Marie) со своей младшей сестрой отдыхает в кемпинге. Теплое лето обретает признаки осени.Тип издания: LicenseРазработчик: Midnight HubЖанр: Приключение, Головоломка, МистикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B02D2A760920AF54B105EE6D3BF775EFE5E733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084398   (220157) от 18.12.2016
 
 The Guest (2016) [Ru/Multi] (1.0) License GOG
@@ -6,7 +110,7 @@ The Guest (2016) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Pale Beyond (2023) [En] (1.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Republique Remastered: Fall Edition (2015) [Ru/Multi] (1.0) Repack R.G. Меха
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +344,7 @@ DarkHouse (2021) [Ru/En] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Wolfstride (2021) [Ru/Multi] (1.2.1) License GOG [Golden God Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +396,7 @@ House on the Hill (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) Repack R.G. Механик�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Dark Pictures Anthology: House of Ashes (2021) [Ru/Multi] (Build 7575778/dlc
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_214268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (s106) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ LEGO Indiana Jones: The Original Adventures (2008) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566676   (211616) от 30.07.2022
-
-Big Earth (2022) [En] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Earth - платформер со сложными головоломками и потрясающими визуальными эффектами. Отправляйтесь в это крошечное-огромное приключение вместе с доктором Кайлом Сидом и лично станьте свидетелем его путешествия по возвращению Земли и восстановлению будущего человечества. Природа задает нам насущные вопросы, а Большая Земля вносит в обсуждение совершенство и напоминает (   Читать дальше...   )Тип издания: LicenseРазработчик: PlayPlay StudiosЖанр: Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E4E558CE383AC3362E96C9A0A5B173EA914E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566557   (211561) от 30.07.2022
-
-Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211561.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Трези-Трилиас находится покинутый отель St. Dinfna – окруженное слухами место, где исчезают люди и наблюдается паранормальная активность. Надеясь раскрыть тайну, молодой журналист Роберто Лейте Лопес по наводке подруги Стефани прибывает в Санта-Катарину. Ему придется стать следователем, чтобы не только узнать истину, но и выжить: найденная камера показывает разное (   Читать дальше...   )Тип издания: RepackРазработчик: Pulsatrix StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, Португальский (Бразильский)Язык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5975A14525A96844C4D211AE55E3E98A6E8366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566857   (211525) от 31.07.2022
-
-Swallow (2022) [Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Swallow - это психологический хоррор от первого лица с упором на историю и исследования. Основываясь на реальных событиях, опишите нераскрытый случай, произошедший на изолированном острове в Англии 20-го века. Игроки берут под свой контроль смотрителя маяка, чтобы узнать правду.Тип издания: LicenseРазработчик: 車底部隊MENЖанр: Психологический хоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (традиционный)Язык интерфейса: Английский, Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BBC6F4D478EE6A4F3DEC209188F094E64DD86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567078   (211450) от 01.08.2022
-
-PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш персонаж - детектив с насыщенной деловой жизнью. Но у него плохая история. Он потерял жену и месячного ребенка в утробе матери в дорожно-транспортном происшествии. Вот почему он немного психиатр. После потери жены он пережил странные события. Отис полностью меняет свою жизнь после травмы и долго не может прийти в себя.Тип издания: LicenseРазработчик: GenemesicXЖанр: Экшены, ИндиЯзык озвучки: Английский, ТурецкийЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7B0C4CF04E4E1D14752D87F1BA46AD038E91D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

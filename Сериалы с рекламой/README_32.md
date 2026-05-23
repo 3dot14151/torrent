@@ -1,3 +1,56 @@
+###  Публикация: 1565376   (210908) от 09.08.2022
+
+Напарницы: Астрид и Рафаэлла / Astrid et Raphaelle (2022) WEBRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Капитан полиции Рафаэлла Кост обращается за помощью в архив, где знакомится с Астрид. Эта девушка обладает феноменальной памятью, в отличие от Рафаэллы, которая привыкла доверять интуиции. Они становятся напарницами и расследуют самые загадочные преступления.
+Оригинальный сериал, сочетающий в себе лёгкий французский юмор с захватывающими детективным сюжетом, развивающимся (   Читать дальше...   )Производство: Франция, Бельгия, Швейцария / JLA Productions, France Télévisions, BE-FILMSЖанр: драма, триллер, криминал, детективРежиссер: Фредерик Берт, Эльза Беннетт, Ипполит ДарАктеры: Сара Мортенсен, Лола Деваэр, Бенуа Мишель, Жан-Луи Гарсон, Меледин Якуби, Хаски Кихаль, Jean Benoit Souilh, Lizzy Brynn, Clément Lagouarde, Алеша Итович и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, французскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:50:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5DB231D576DFAA88E68DDE55EA6FDE70702026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603391   (210432) от 09.01.2023
+
+Отголоски эха / Echoes (2022) WEB-DLRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Мини-сериал «Отголоски эха» от стримингового сервиса Netflix рассказывает о близнецах Лени и Джине (Мишель Монахэн), у которых есть общий опасный секрет: они тайно менялись местами с самого детства. Когда одна из сестер пропадает без вести, их идеально спланированный мир превращается в хаос…Производство: Австралия, США / Endemol Shine Australia, NetflixЖанр: триллер, драма, детективРежиссер: Кэт Кэндлер, Ли Лу, Анна МастроАктеры: Мишель Монахэн, Мэтт Бомер, Карен Робинсон, Али Строкер, Гейбл Сванлунд, Росанни Зайас, Майкл О’Нил, Джонатан Такер, Дэниел Сунджата, Мэдисон Эбботт и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, английские (отдельные файлы)Продолжительность: ~00:40:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0184A6BFD89E4E0B5D827420B94CAE1EAD1BBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568644   (210333) от 18.08.2022
 
 Ваша честь / Euer Ehren / Your Honor (2022) WEBRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
@@ -6,7 +59,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_200982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2669D2DAEAB973A905CD1115A79CFC7501A6DCCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629029   (198964) от 02.05.2023
-
-Никаких следов / Sin huellas / No Traces (2023) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дези и Ката находят мертвое тело женщины в особняке, который они только что убрали. Ужас. Паника. Неужто цыганка и мексиканская иммигрантка только что навели порядок на месте преступления? Теперь они идеальные подозреваемые.Производство: Испания / Zeta Studios, Amazon StudiosЖанр: боевик, комедияРежиссер: Пако Кабальеро, Кольдо Серра, Саманта ЛопезАктеры: Каролина Юсте, Сильвия Алонсо, Камила Соди, Леонардо Ортисгрис, Адриан Гроссер, Борха Луна, Pavel Anton, Бека Лемонджава, Алехандро Гадеа, Адриана Торребехано и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6B357AD164EB9DCB68E0EE1DF9B1A6C739703F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629030   (198958) от 02.05.2023
-
-Никаких следов / Sin huellas / No Traces (2023) WEB-DLRip (сезон 1, серии 1-8 из 8) ViruseProject [AD] (обновляемая)
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дези и Ката находят мертвое тело женщины в особняке, который они только что убрали. Ужас. Паника. Неужто цыганка и мексиканская иммигрантка только что навели порядок на месте преступления? Теперь они идеальные подозреваемые.Производство: Испания / Zeta Studios, Amazon StudiosЖанр: боевик, комедияРежиссер: Пако Кабальеро, Кольдо Серра, Саманта ЛопезАктеры: Каролина Юсте, Сильвия Алонсо, Камила Соди, Леонардо Ортисгрис, Адриан Гроссер, Борха Луна, Pavel Anton, Бека Лемонджава, Алехандро Гадеа, Адриана Торребехано и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, испанскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86F5BBBBB8D07BEB609A10906FBED8D19DA2C4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

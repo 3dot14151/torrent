@@ -1,3 +1,185 @@
+###  Публикация: 1313587   (523429) от 09.07.2019
+
+HDD Low Level Format Tool 4.40 RePack (& Portable) by TryRooM [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+HDD Low Level Format Tool - утилита для низкоуровневого форматирования жесткого диска, а также внешних устройств, подключенных через интерфейс USB (например, флеш-карт). Кроме этого, HDD Low Level Format Tool умеет выдавать информацию S.M.A.R.T. Работает с SATA, IDE и SCSI HDD размером до 281 474 976 710 655 бит производства Maxtor, Hitachi, Seagate, Samsung, Toshiba, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CCB5F8000B6D417211AA1EB4D68AFCD1A91F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514720   (523312) от 26.06.2022
+
+Игра моей судьбы / Kaderimin Oyunu (2021-2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-26 из 26) SesDizi
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Асие 32-летняя молодая женщина, мать двоих детей. В юности она встретила Джемаля, они влюбились друг в друга и тайно женились. Спустя годы Джемаль заводит интрижку с Хелин Демирхан и когда выясняется, что она беременна, он выбирает её и богатую жизнь. Асие приходится одной справляться с двумя детьми. В её жизни появляется Махир, который вырос в пристройке особняка (   Читать дальше...   )Производство: Турция / NGMЖанр: драмаРежиссер: Эмре КабакусакАктеры: Ойкю Караель, Акын Акынёзю, Сарп Апак, Мерич Арал, Ешим Гюль, Эсра Дерманджиоглу, Мюфит Каяджан, Ираз Акчам, Улку Дуру, Каан Чакыр, Онур Бильге, Айча Коптур и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: Русский, турецкийПродолжительность: ~02:13:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C697736938BA563C50FABC64526C05C4B429FD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927702   (523195) от 15.08.2015
+
+Астрономы обнаружили редкую планету, находящуюся в благоприятной зоне двойной звездной системы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Группа астрономов, в состав которой вошли астрономы из университета Сан-Франциско (San Francisco State University), обнаружила еще одну из чрезвычайно редких планет, планету, которая вращается по орбите, проходящей по благоприятной для жизни зоне системы, в состав которой входят две звезды. На редкость таких планет указывает то, что планета Kepler-453b является всего (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928087   (522998) от 15.08.2015
+
+DriverPack Solution Online 16.5.0 Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+DriverPack Solution Online - облегченная версия самого мощного менеджера установки драйверов, автоматически сканирует оборудование компьютера и предлагает скачать из Интернета неустановленные или устаревшие драйвера и программное обеспечение. Быстро, качественно и абсолютно бесплатно!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E0B8D1204BEBB1220A6EBBE87968B5B78C0B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927967   (522988) от 15.08.2015
+
+Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры разворачивается спустя год после событий Metal Gear Solid: Peace Walker. Вам предстоит вновь вжиться в роль легендарного Снейка, известного также под псевдонимом Биг Босс. Задача: проникнуть на базу «Омега», где держат в плену Чико и Паз. Заложники владеют важными данными относительно самого Снейка и его частной военной организации. Обнародование этой (   Читать дальше...   )Тип издания: RepackРазработчик: Kojima ProductionsЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Multi8Язык интерфейса: Русский, Multi8
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C626349849DE74F455B2F040690599F68C16FC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927488   (522986) от 15.08.2015
+
+Heroes of Might & Magic III / Меч и Магия. Герои III. Возрождение Эрафии (2015) [Ru/En] (1.18/upd4) Repack R.G. Steamgames [HD Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обратите внимание: контент «Герои III – HD Edition» основан на оригинальной игре, вышедшей в 1999: Возрождение Эрафии. С ностальгией вспоминаете о бессонных ночах, проведенных в сражениях с Черными Драконами, Архангелами, Демонами и Чародеями? Настоящие фанаты Heroes of Might & Magic III, у нас есть отличные новости!Тип издания: RepackРазработчик: DotEmuЖанр: Strategy (Turn-based)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F337A710935ABC841EF998EDBC07D9AAD6CC9B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083298   (522683) от 10.07.2019
+
+The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.80.0.8) Repack R.G. Catalyst [Special Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Elder Scrolls V: Skyrim Special Edition - это улучшенное и расширенное переиздание оригинальной The Elder Scrolls V: Skyrim, в котором были добавлены новые враги, снаряжение, локации, персонажи, а также включены все официальные дополнения к игре, вышедшие до момента релиза Special Edition. Кроме того, в Special Edition была переработана графика, добавлены новые (   Читать дальше...   )Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C72F7E2F4CBE6F7B7AA0232E2F394B279C329C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240777   (522617) от 14.08.2018
 
 Пациент Зеро ( Нулевой пациент) / Patient Zero (2018) WEB-DL [H.264/1080p-LQ] [AVO]
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_522412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +240,7 @@ WebForMySelf | Фреймворк CakePHP: с Нуля до Гуру (2015) PCRe
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +266,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4745.1000 (x86) RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +292,7 @@ Microsoft Office 2016 v15.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +347,7 @@ Debian GNU/Linux 10.0 + nonfree Buster [amd64] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +375,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +401,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +454,7 @@ ReCore (2016) [Ru/Multi] (1.1.7468.2) License CODEX [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +480,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +534,7 @@ DLL-files.com Fixer   v2.7.72.2315 Portable  [Multi+Rus]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +586,7 @@ Advanced SystemCare Pro 8.4.0.811 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,189 +677,6 @@ Need for Speed «The Run» – гоночные состязания, ставк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11924D8943E9B536D72EBB1C2000F7D16174CF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 373120   (519637) от 08.08.2011
-
-Универсальный загрузочный диск Universal Diagnostic and Repair Kit (UDaRK) v 1.2.0 Rus
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный загрузочный диск Universal Diagnostic and Repair Kit (UDaRK) - загрузочный диск, содержащий набор программ и утилит для ремонтников персональных компьютеров, специалистов сервисных центров, а также опытных пользователей. Диск содержит самые востребованные (из личной практики), и популярные программы для диагностики, тестирования и восстановления компьютера. (   Читать дальше...   )Язык интерфейса: Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560629   (519620) от 30.06.2022
-
-ESET Endpoint Antivirus / ESET Endpoint Security 9.1.2051.0 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519620.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET Endpoint Security — это комплексное решение для обеспечения безопасности, являющееся результатом долгих усилий, направленных на достижение оптимального сочетания максимальной степени защиты с минимальным влиянием на производительность компьютера. Современные технологии, основанные на применении искусственного интеллекта, способны превентивно противодействовать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35ACEFE895F31859BDE585FBAC4DD70126C3427A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929242   (519246) от 19.08.2015
-
-Destroy Windows 10 Spying 1.5 Build 231 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519246.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3879137451C081F6CD0B3B9A9AB200D855699720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929343   (519150) от 19.08.2015
-
-uTorrent Pro 3.4.4 Build 40911 Stable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519150.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA8BCB528C4F5F5656DC0829E334B438AF20892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929164   (519138) от 19.08.2015
-
-ZOMBI (2015) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон погрузился в хаос. Готовьтесь к самому худшему: как и было предсказано, на город пало проклятие. Второй раз в истории здесь разразилась чума. Тысячи людей гибнут, но смерть - не самое страшное, что может произойти с заболевшими. Вам повезло, вы пока живы. Но надолго ли?Тип издания: ЛицензияРазработчик: Straight RightЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Португальский, Голландский, ЯпонскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Португальский, Голландский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872DC96B5A37F31A684C81CE0B8598488C683DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314466   (518835) от 14.07.2019
-
-Microsoft® Windows® 8.1 Professional VL with Update 3 x86-x64 Ru by OVGorskiy® 07.2019
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборки на основе оригинальных русских образов операционной системы Windows 8.1 (Pro VL) (x86-x64) - (Russian) Final (MSDN) от Microsoft с дополнительным материалом разных разрядностей в 2-х разных установочных образах (x86 и x64) со встроенным пакетом обновления Update 3. Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D137CE713F98DCA0DE2BDDF8596170EFE830BD82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535013   (518583) от 14.08.2012
-
-Prototype 2 + DLC [Ru] (RePack) 2012 l BoxPack
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prototype 2 - продолжение жестокого и кровавого игрового бестселлера, разработанного студией Radical Entertainment в 2009 году. Вторая часть игры продолжит рассказ о превращении человека в абсолютное оружие. Сейте хаос и разрушение на городских улицах с помощью способностей, которые дает вам вирус. Трансформируйте тело героя, поглощая многочисленных врагов. Используйте безграничные возможности перемещения, чтобы исследовать руины Нью-Йорк Зеро в поисках новых впечатлений. Сражайтесь. Убивайте. Меняйтесь. Принесите свою человечность в жертву ради единой цели - уничтожить… Алекса… Мерсера!
-Вырвавшийся на свободу смертоносный вирус превратил мегаполис в преддверие ада. Разделенный на зоны безопасности, город стал огромной ловушкой. Часть улиц контролируют военные, уничтожающие любое проявление заразы. Остальные районы превратились в "красную зону" - обиталище мутантов, безжалостно пожирающих своих жертв. Где-то там, среди разрушенных зданий, скрывается Алекс Мерсер, главный виновник распространения вируса. А теперь туда стремится и бывший сержант Джеймс Хеллер, жаждущий отомстить за свою семью, погибшую в первые дни катаклизма. Добро пожаловать в Нью-Йорк Зеро. Сезон охоты открыт.(   Читать дальше...   )Тип издания: Lossless RepackРазработчик: Radical EntertainmentЖанр: Action / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B148BAE7202ACBC14240218BF3379D199E24C58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 563619   (403490) от 22.10.2012
+
+Супертеща для неудачника (2003) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спортивный обозреватель Сергей случайно и без злого умысла похищает у мафии очень важный шифр от очень важного сейфа. За журналистом начинается погоня. От бандитов спрятаться почти невозможно. Но бывшая невеста наряжает Сергея в костюм своей мамы и даже представляет его своему новому жениху Леониду. Леонид оказывается одним из заинтересованных в смерти Сергея, но (   Читать дальше...   )Жанр: КомедияРежиссер: Елена РайскаяАктеры: Дмитрий Харатьян, Михаил Ефремов, Юрий Нифонтов, Юлия Беретта, Эвклид Кюрдзидис, Наталья Хорохорина, Ирина Кожевникова, Михаил Анисимов, Екатерина Лапина, Наталья ХорохоринаПродолжительность: 01:31:33 (00:48:04 + 00:43:29)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380B9CE515D87EF1C68A923A92B90FCAC07EF9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563836   (403321) от 22.10.2012
+
+Искупление (2012) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Известный в городе врач Полина Громова сбивает случайно на своем автомобиле 10-летнего мальчика Семена. Прежде чем заявить об этом случае в милицию, она решает помочь ребенку, отвозит его в свою больницу и пытается поставить на ноги. Андрей, отец Семена, одержим жаждой мести. Не зная о том, что виновница ДТП - Полина, он внезапно влюбляется в молодого врача. Полина отвечает ему взаимностью. Однако все тайное рано или поздно становится явным...Жанр: Мелодрама, Драма, ДетективРежиссер: Игорь ШкуринАктеры: Евгения Гладий, Павел Делонг, Кирилл Сафонов, Сергей Никитин (V)Перевод: Оригинал (Русский)Продолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F99D9D27695C72955376F441460BDE9ED8813F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563901   (402795) от 23.10.2012
+
+Глянец (2007)  DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Молодая девушка Галя приезжает в Москву из города Шахты. Она мечтает стать супермоделью и украсить своим фото обложку модного глянцевого журнала Beauty. Но главный редактор журнала говорит, что у Гали нет данных, после чего девушка идет работать швеей к известному модельеру.
+
+Случайно она принимает участие в одном из модных показов как модель, после чего ее тут же (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Андрей КончаловскийАктеры: Юлия Высоцкая, Александр Домогаров, Алексей Серебряков , Ирина Розанова, Татьяна Арнтгольц, Ольга Арнтгольц, Михаил Полицеймако, Александр Ильин, Т. Трибунцев, Артемий ТроицкийСубтитры: отсутствуютПродолжительность: 01:57:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563899   (402706) от 23.10.2012
+
+Ёлки 2 (2011) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: КомедияРежиссер: Дмитрий Киселёв, Александр Баранов, Александр КоттАктеры: Сергей Светлаков, Иван Ургант, Вера Брежнева, Сергей Безруков, Владимир Меньшов, Гоша Куценко, Александр Головин, Виктор Вержбицкий, Алексей Петренко, Петр ФедоровПродолжительность: 01:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD7DCFFD9F6CE4C5575E9AF19FD061B9F4AB208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712804   (402530) от 20.10.2013
 
 Здравствуй, столица! (2003) TVRip
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3868A3AC30E2992771A6835BD7A4AE9065D4492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566810   (397850) от 28.10.2012
-
-Любка (2009) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба сталкивает двух девочек в самом начале их жизней. Семилетняя Любка, растущая среди уличных воров, отвлекает внимание богатой семьи на вокзале, а в этот момент у них крадут чемодан. После этого случая, «маленькая разбойница» часто представляет себя на месте хорошо одетой девочки, с мамой, папой и красивой куколкой в руках.
-Прошли годы, и они вновь встречаются (   Читать дальше...   )Производство: РоссияЖанр: Драма, МелодрамаРежиссер: Станислав МитинАктеры: Елена Лядова, Александр Сирин, Анастасия Городенцева, Владимир Сычев, Наталья Чернявская, Артем АртемьевЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:40:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566584   (397809) от 28.10.2012
-
-Бой с тенью 3D: Последний раунд (Расширенная Версия) (2011) HDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боксер-чемпион Артем Колчин достиг всех мыслимых вершин и стал национальным героем. На ринг он больше не выходит, предпочитая тренерскую работу и бурную светскую жизнь с постоянным мельканием на ТВ, тусовками и интрижками. А дома его по утрам встречают дочка и жена Вика, которая больше не узнает в нем того Артема, которого она когда-то полюбила…Жанр: БоевикРежиссер: Алексей СидоровАктеры: Денис Никифоров, Андрей Панин, Елена Панова, Бату Хасиков, Михаил Горевой, Дмитрий Шевченко, Ольга Дибцева, Софья Мицкевич, Сергей Рябых, Шакрит Ямнарм и др.Продолжительность: 02:06:36 (оригинал ~02:05:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146FEC56BEDDA7B58B287D48AD1A7E1C330384DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566465   (397676) от 28.10.2012
-
-Дом Солнца (2009) BDRip [Расширенная Версия]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не сказав ни слова родителям и своему перспективному жениху, Саша, первокурсница из благополучной семьи советских дипломатов, отправляется на юг, навстречу своей судьбе вместе с Солнцем — таинственным героем и его странноватыми, увешанными «фенечками» друзьями: фарцовщиком Малым, чилийским революционером Хуаном, суровой и честной Гердой, длинноволосым Скелетом. На (   Читать дальше...   )Жанр: ДрамаРежиссер: Гарик СукачёвАктеры: Светлана Иванова, Станислав Рядинский, Кирилл Поликашин, Моисес Бланко, Иван Стебунов, Дарья Мороз, Алексей Горбунов, Чулпан Хаматова, Михаил Ефремов, Нина Русланова, Дарья Мороз, Алексей Гуськов, Марина Голуб, Никита ВысоцкийПродолжительность: 01:38:56 (оригинал ~01:35:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95338778030F86634132A72E3D6BCFEA5C6D2DF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 566969   (397600) от 28.10.2012
-
-Мечты из пластилина (2012) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восьмилетняя Оксана влюбляется в сотрудника своего отца, 25-летнего красавца Бориса. Он в шутку обещает подождать, пока девочка вырастет, и жениться на ней. Слово Борис не сдерживает и женится на своей сверстнице Вике. Оксана обещает себе во что бы то ни стало завоевать Бориса. По совету бабушки она лепит свою мечту из пластилина. Спустя почти 10 лет она горько пожалеет о своем желании.Жанр: МелодрамаРежиссер: Максим МехедаПродюсер: Галина Балан-Тимкина, Влад РяшинАктеры: Екатерина Климова, Игорь Петренко, Александр Мохов, Алексей Комашко, Поля Полякова, Виктор Сарайкин и др.Перевод: Не требуется (Русский)Продолжительность: 01:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98550946EAFC2DC96D3139EB4AD851838345A588
 ```
 
 https://mybot314.ru/tekegram_catalog/

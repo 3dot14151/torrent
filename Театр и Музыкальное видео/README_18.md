@@ -1,3 +1,174 @@
+###  Публикация: 979319   (957219) от 28.01.2016
+
+Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.	Que Mon Coeur Lache (6:44)
+02.	XXL (4:34)
+03.	L'Instant X (4:22)
+04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 01:07:98
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C6D3505519DDE03B90B82B56F33B30AF2C2B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980011   (957198) от 28.01.2016
+
+Mylene Farmer – Music Videos II & III (2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.	Que Mon Coeur Lache (6:44)
+02.	XXL (4:34)
+03.	L'Instant X (4:22)
+04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8825368FFEE8DD10B56E6B084F9659F87EB4F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980181   (957095) от 28.01.2016
+
+Scorpions – Acoustica (2001) DVDRip [AVC, AC-3, DTS, PCM]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Scorpions - Acoustica» - акустический концерт легендарных Scorpions, который состоит из записей трёх концертов, проходивших за стенами Португальского монастыря в Лиссабоне 8, 9 и 10 февраля 2001 года.01. Loving You Sunday Morning
+02. Is There Anybody There
+03. The Zoo
+04. Always Somewhere(   Читать дальше...   )Жанр: Heavy Metal, Acoustic, Hard Rock, Classic RockРежиссер: Hannes Rossacher, Rudi DolezalПеревод: ОтсутствуетПродолжительность: 01:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E439DA699E367A321B5F8E534DA62195F6B7A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171590   (956547) от 02.02.2010
+
+Eruption - One Way Ticket (1979) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших песен группы - "One Way Ticket" (1978), более известной в СССР под названием "Синий иней" и исполнявшаяся многими ВИА. Автором песни был Нил Седака, который впервые издал эту песню в 1970 году. Однако помнят эту песню именно в исполнении Eruption.Жанр: PopПродолжительность: 2:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622402   (955877) от 26.02.2013
+
+"O2label"/Strannik (vol.2.) (2013) HDTV [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. City Of The Glimmered Fires
+02. Diamonds Sky (History Of Love)
+03. Expedition To The Sun
+04. Horizon On The Planet Thor(   Читать дальше...   )Жанр: Музыка, New Age, Electronic, Downtempo, Chillout, SpaceПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBE0383BDDD1EE0F57EB62372960D5DCDA0B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622984   (955675) от 26.02.2013
+
+"O2label"/Label O2 and...(vol.1) (2013) HDTV [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. LastEDEN - Sunrise
+02. Power Of Melody - Planet Enigma
+03. Power Of Melody - Cosmic Man
+04. Power Of Melody - The Poisoned Planet(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, ChilloutПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C509827579CC3DC51504F3AE7B246F701E5D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 623202   (955554) от 26.02.2013
 
 "O2label" / Label O2 and...(vol.2.) (2013) HDTV [H.264]
@@ -6,7 +177,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +319,7 @@ Snow Пати 2 (2017.01.01) WEB-DLRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -174,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -201,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -227,7 +398,7 @@ Hit Non Stop New Year 2017 (2016.12.31) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -255,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -281,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -307,7 +478,7 @@ AC/DC - No Bull (2008) Blu-Ray [VC-1/1080p] [Directors Cut]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -333,7 +504,7 @@ VA - The Paris Concert For Amnesty International The Struggle Continues… (1999
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -362,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -390,7 +561,7 @@ Cerrone - Culture (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -419,7 +590,7 @@ VA - Зимний марафон № 222: Праздничный Зимний Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +619,7 @@ Volbeat & Amon Amarth - Rock am Ring (2016) HDTV [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,175 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C637537184B8B3DA6E4DAFDECCE5DA13C3F531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089230   (953410) от 02.01.2017
-
-Руки вверх! 20 лет. Юбилейный концерт (2017.01.01) HDTV [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимые песни группы «Руки Вверх!» напомнят о временах юности, а заводные ритмы заставят танцевать всю ночь. За 20 лет существования группа скопила огромный багаж народных хитов. Это «18 мне уже», «Он тебя целует», «Алёшка», «Уходи», «Отель» и многие другие песни, которым подпевают миллионы.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB75EFAE189C4C41D35002909946FD66C2983E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089007   (953409) от 02.01.2017
-
-Новогодняя Дискотека 80-х от Авторадио (2016-2017) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное музыкальное событие года - Дискотека 80-х от Авторадио! С каждым годом фестиваль Авторадио становится все более масштабным. Сегодня Дискотека 80-х - не просто праздник поколения, возвращающий зрителей во времена их юности, а современное, неординарное и динамичное супершоу, привлекающее зрителей самых разных возрастов. В Новый Год мы имели возможность увидеть (   Читать дальше...   )Телекомпания: НТВ HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCCDD00E3485B85C7E73E761086073D0FCDCAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981180   (952697) от 31.01.2016
-
-Квартирник у Маргулиса. 14 выпуск. Ромарио (2016) WEBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман Луговых — российский музыкант и певец, лидер группы Ромарио. Роман записывает альбомы не только в составе группы, но и в соавторстве с другими музыкантами (Евгений Маргулис, Сергей Чиграков). В теплой и душевной атмосфере гости квартирника исполнят свои самые известные и полюбившиеся фанатам песни.
-Дата эфира: 30.01.201601. Пелемень
-02. Всё та же любовь
-03. Позвонили мне с одного телеканала...
-04. Москва - Нева(   Читать дальше...   )Производство: ЧеЖанр: КонцертПродолжительность: 0:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837DDFD5F41EC35832B20F695429B05D84A70913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981327   (952605) от 31.01.2016
-
-Boney M. - On Stage & On The Road Fantastic Boney M. (1977, 1981) 2007 MSI, DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live in concert 1977, CCH Hamburg, Germany:
-01. Intro
-02. Love For Sale
-03. Take The Heat Of Me(   Читать дальше...   )Жанр: Euro-Disco, DiscoПеревод: ОтсутствуетПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FFE918B5D550489E25AB791260628A18AE06F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 279973   (951601) от 09.01.2011
-
-VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
-</div>
-
-
-###  Подробнее
-
-VH-1 Russia - российская версия легендарного европейского канала VH-1, несколько лет вещавшая в пакете НТВ+. К сожалению недавно канал прекратил своё существование...
-
-Материал сборника - оригинальный спутниковый поток MPEG-2, не подвергавшийся никаким пережатиям/перекодированиям в процессе монтажа!
-Качество первоисточника (As Is)!(   Читать дальше...   )Жанр: PopПродолжительность: 01:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AF050D9A7D5D906767FA63AB0E68828E4DBF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981479   (951414) от 01.02.2016
-
-Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Livin' La Vida Loca
-03. She's All I Ever Had
-04. La Bomba(   Читать дальше...   )Жанр: Latin, PopПеревод: ОтсутствуетПродолжительность: 01:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEB45CAF74A9E181E94E27EB02FE0E3A7457B85
 ```
 
 https://mybot314.ru/tekegram_catalog/

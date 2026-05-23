@@ -1,3 +1,110 @@
+###  Публикация: 1863734   (1063270) от 05.04.2026
+
+Kanan-sama wa Akumade Choroi | Канан до чёртиков проста | Mistress Kanan Is Devilishly Easy [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Канан — демон, спустившийся в мир людей с единственной целью: насладиться самым сладким лакомством из всех — молодыми человеческими душами. Приняв облик старшеклассницы, она выбирает свою первую жертву — неприметного мальчика по имени Ёдзи Кёги. Но как раз в тот момент, когда она готовится приступить к трапезе, события принимают совершенно неожиданный оборот.Производство: Япония, студия Studio KaiЖанр: приключения, комедияРежиссер: Муроя ЯсусиЯзык озвучки: Русский дублированный (Deep), русский закадровый (AniStar)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E111739C27398526D1BE787B29957C9D680DD81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863751   (1063264) от 05.04.2026
+
+Доктор Стоун [ТВ-4, часть 3] | Доктор Стоун: Научное будущее | Dr. Stone: Science Future (2026) [2026, TV, 1 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Подготовка к самому дерзкому проекту в истории человечества завершена: Царство науки начинает строительство ракеты для полета на Луну. Чтобы навсегда покончить с угрозой окаменения, Сэнку и его команда должны преодолеть земное притяжение и встретиться лицом к лицу с таинственным Вопрошателем.
+В этом решающем финале наука станет мостом между прошлым и будущим. Героям (   Читать дальше...   )Производство: Япония / Студия TMS EntertainmentЖанр: комедия, приключения, сёнен, фантастикаРежиссер: Мацусита СюхэйЯзык озвучки: Русский (AniLibrety); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1FACF464099B529A6E2EEF9D7F391088DCB692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863849   (1063188) от 06.04.2026
+
+Похоже, сильнейшая профессия это не герой или мудрец, а (временный) инспектор? | Saikyou no Shokugyou wa Yuusha demo Kenja demo Naku Kanteishi (Kari) Rashii Desu yo? [2026, TV, 2 из 12] WEBRip 1080 ...
+
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Обычный старшеклассник Хибики Манабэ неожиданно оказывается в чужом мире. Вокруг него — бескрайние равнины, где рыщут монстры, а у него нет ни оружия, ни каких-либо магических способностей, только один навык — "Оценка". Безнадёжная ситуация, правда?
+Но как бы не так! Встречи с неожиданными союзниками — такими как эльфийка Эмалия Стейнбарт и грозный Клод (   Читать дальше...   )Производство: Япония / Студия Studio FladЖанр: Комедия, приключения, фэнтезиРежиссер: Хосино МакотоЯзык озвучки: Русский (AniLiberty), (Dream Cast), (SHIZA Project); ЯпонскийСубтитры: Русские (надписи и полные) / Английские (полные) CrunchyrollПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A92A88BAE016A914A84AFCE8D39937EB8FD9AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863823   (1063178) от 06.04.2026
+
+Virgin Punk | Невинный панк [2025, Movie] BDRip HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодая охотница за головами, зарабатывающая на жизнь в опасном и непредсказуемом мире. Выбирая эту стезю, сталкивается не только с внешними угрозами, но и с глубокими внутренними переживаниямии, заставляющими её подвергнуть сомнению собственный выбор и моральные принципы.
+Профессиональная деятельность неизбежно сталкивает героиню с могущественными и эксцентричными (   Читать дальше...   )Производство: SHAFTЖанр: боевик, киберпанкРежиссер: Умэцу ЯсуомиПеревод: AniSlovoЯзык озвучки: Русский (KAIJU SOUND, HikkiDub, GoLTFilm, Youkai Studio, AniLiberty, OnWave), ЯпонскийСубтитры: Русские (Полные + Надписи)Продолжительность: 35 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3CA9DA102EE9BF6479A0B9360A75F58B8533A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863919   (1063146) от 06.04.2026
 
 Needy Girl Overdose | Зависимая девушка: Передозировка [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +113,7 @@ Needy Girl Overdose | Зависимая девушка: Передозиров�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +167,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?) | У 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +193,7 @@ Seihou Bukyou Outlaw Star | Outlaw Star | Звёздные рыцари с Во�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +271,7 @@ Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии [2014, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +297,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki | Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +324,7 @@ Kamui no Ken | The Dagger of Kamui | Кинжал Камуи [1985, Movie] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +351,7 @@ Guilty Crown / Корона греха [2011, TV, 22 ep] BDRip Hi10p 720p Raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +377,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +403,7 @@ Dead Leaves | Мёртвые листья: Звёздная тюряга [2004, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +429,7 @@ Slayers Premium | Первосортные Рубаки [2001, Movie] BDRip 1064
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +455,7 @@ Slayers Excellent | Превосходные Рубаки [1998, OVA, 3 эп.] B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +481,7 @@ Slayers Gorgeous | Великолепные Рубаки [1998, Movie] BDRip 720
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +507,7 @@ Slayers | Рубаки [1995, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +533,7 @@ Slayers Next | Рубаки Next [1996, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +559,7 @@ Slayers Try | Рубаки Try [1997, TV, 26 эп.] DVDRip 576p 10-bit raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +637,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +663,7 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,110 +674,6 @@ Astarotte no Omocha! | Astarotte's Toy! | Игрушка Астаротты [201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B457583A7703375891DCE4CD7051DCAD04725CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850483   (1054563) от 28.01.2026
-
-Seikai no Senki Tokubetsu Hen | Banner of the Stars Movie | Звёздный флаг (компиляция) [2001, Special] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обобщение первого сезона - Seikai no Senki с некоторыми дополнительными сценами и диалогами.Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Продолжительность: 2 часа
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3986C2B0436D5EE70B45F6ED13B7D010B7A208D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850481   (1054562) от 28.01.2026
-
-Seikai no Monshou Tokubetsu Hen | Crest of the Stars Movie | Звёздный герб (компиляция) [2000, Special] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обобщение первого сезона - Seikai no Monshou с некоторыми дополнительными сценами и диалогами.Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Продолжительность: 1 час 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7636B994C9BB9A8E4C6D4A45783ABB296DB7775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850484   (1054560) от 28.01.2026
-
-Seikai no Senki II | Banner of the Stars II | Звёздный флаг 2 [2001, TV, 10 эп.] DVDRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря сокрушительному успеху флота Abh под командованием братьев Бибос Империя за короткий промежуток времени захватывает множество обитаемых миров и сталкивается с проблемой нехватки наместников для новых территорий. Лафиль назначают на должность Наместника Планеты Лобнасс II.Прибыв на планету, Лафиль с Дзинто обнаруживают, что Объединенное человечество использовало (   Читать дальше...   )Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Субтитры: ASS (Русский, Надписи)Продолжительность: ТВ, 10 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AAC2A03D3CD559B5E918AD0A7FCE6DEACCCAB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850485   (1054559) от 28.01.2026
-
-Seikai no Senki III | Banner of the Stars III | Звёздный флаг 3 [2005, OVA, 2 эп.] DVDRip 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завершают сагу Seikai no Monshou две серии о возвращении Дзинто в родные владения, в звездную систему Хайд. Там все еще сильны сепаратистские настроения и неприязнь к Империи. Одновременно с поездкой Дзинто и Лафиль Abh отправляют на учения в Хайд только что сформированный "Первый флот разрушения", укомплектованный новейшими боевыми кораблями Империи...Производство: Япония, SunriseЖанр: фантастика, экшен, романтика, военноеРежиссер: Нагаока ЯсутикаЯзык озвучки: Русский закадровый (SHIZA Project - Мистас & NesTea)Субтитры: ASS (Русский, Надписи)Продолжительность: OVA, 2 серии по 30 и 45 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0056AF078AEA31D2526E28EB6C42A75FA342F6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

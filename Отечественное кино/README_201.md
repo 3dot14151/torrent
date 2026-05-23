@@ -1,3 +1,109 @@
+###  Публикация: 1574130   (209055) от 03.09.2022
+
+Триггер (2018) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+История о развитии посттравматического военного синдрома в бывшей Югославии, показанная через призму иррациональных переживаний реальных участников военных действий. Сюжет строится вокруг их повседневной жизни и восприятия бытовых, казалось бы, простых вопросов. Но реакция этих людей на различные ситуации бывает болезненной и опасной.Производство: Россия, Босния и ГерцеговинаЖанр: драма, военныйРежиссер: Игорь СмолаАктеры: Екатерина Соколова-Жубер, Марина Барсукова и др.Субтитры: английские (hardsub), русские (на иностранную речь)Продолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C88A9F1BEC239A8B7799D827E23924A549A50FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646191   (209042) от 13.07.2023
+
+Это не я (2015) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек не помнит, как провел ночь, но находит у себя дома доказательства того, что убил девушку. Попытка разобраться в случившемся приводит его к новым преступлениям.Производство: Россия | «ВКСР»Жанр: Триллер, короткометражкаРежиссер: Алексей КамынинАктеры: Никита Кукушкин, Екатерина Кудинская, Анна Воркуева, Елизавета Рыжих, Владимир ЯсныйСубтитры: ОтсутствуютПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A526F2B8FEFA3BEC95350351A58E41B2052C5D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 147548   (209030) от 03.09.2022
+
+Циники (1991) TVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Анатолия Мариенгофа.
+Социально-психологическая драма о семейных и человеческих взаимоотношениях, искореженных, изуродованных и полностью деформированных таким мощнейшим общественным катаклизмом, как Великая Октябрьская социалистическая революция.
+1918 год, Петроград. Молодой историк Владимир, приват-доцент, знакомится с Ольгой, дочерью состоятельных (   Читать дальше...   )Жанр: ДрамаРежиссер: Дмитрий МесхиевАктеры: Ингеборга Дапкунайте, Андрей Ильин, Ирина Розанова, Виктор Павлов, Юрий Беляев, Сергей Баталов, Екатерина Васильева, Николай Крюков, Варвара Шабалина, Михаил ТрухинПродолжительность: 01:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B6559173ABAF2AEECC3F7537C249F065F114C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646149   (209014) от 13.07.2023
+
+Это не я (2015) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек не помнит, как провел ночь, но находит у себя дома доказательства того, что убил девушку. Попытка разобраться в случившемся приводит его к новым преступлениям.Производство: Россия | «ВКСР»Жанр: Триллер, короткометражкаРежиссер: Алексей КамынинАктеры: Никита Кукушкин, Екатерина Кудинская, Анна Воркуева, Елизавета Рыжих, Владимир ЯсныйСубтитры: ОтсутствуютПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED2D81BCE9A73C0D862D116537437DC86656B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646120   (209008) от 13.07.2023
 
 Пересадка (2014) WEBRip [H.264/1080p]
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -319,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -564,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4126E5AE8240EB4F68A96350AD713BCEE398D0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583526   (205822) от 15.10.2022
-
-Одна (2021) BDRemux [H.264/1080p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205822.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 августа 1981 года молодожены Лариса и Владимир Савицкие ступили на борт самолета, следующего рейсом Комсомольск-на-Амуре — Благовещенск. За 30 минут до посадки гражданский борт АН-24 столкнулся с другим самолетом и развалился на куски на высоте более 5 километров над землей. Выжить не должен был никто, но произошло чудо — Лариса очнулась посреди обломков самолета (   Читать дальше...   )Производство: Россия / ССБ КиноЖанр: Драма, триллерРежиссер: Дмитрий СуворовАктеры: Надежда Калеганова, Виктор Добронравов, Максим Иванов, Мария Сокова, Ян Цапник, Леонид Громов, Никита Тарасов, Владислав Ветров, Виталия Корниенко, Антон БагровПеревод: Не требуется (Русский)Субтитры: Немецкие (hardsub - на русские надписи)Продолжительность: 01:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0AC03203379D09BBA4BBD2BFF18E1D4D6D0B2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583583   (205818) от 15.10.2022
-
-Кэт (2022) WEBRip [H.265/2160p] [4K, SDR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая эскортница недавно стала матерью. Отца у ребёнка нет, и Кэт готова ради своего первенца на всё. Девушке придётся столкнуться с серьёзным внутренним конфликтом и сделать важный выбор между материнством и бизнесом, который приносил хороший доход.Производство: Россия / Фонд «Кинопрайм», СтеллаЖанр: драмаРежиссер: Борис АкоповАктеры: Анастасия Кувшинова, Дмитрий Карташов, Егор Трухин, Виктория Соловьева, Амбарцум Кабанян, Даниеле Галеа, Николай Шрайбер, Григорий Багров, Григорий Зельцер, Юна БикиреваСубтитры: отсутствуютПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742E3702E0A794536657F8407FE60AA050E753B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583538   (205806) от 15.10.2022
-
-Кэт (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая эскортница недавно стала матерью. Отца у ребёнка нет, и Кэт готова ради своего первенца на всё. Девушке придётся столкнуться с серьёзным внутренним конфликтом и сделать важный выбор между материнством и бизнесом, который приносил хороший доход.Производство: Россия / Фонд «Кинопрайм», СтеллаЖанр: ДрамаРежиссер: Борис АкоповАктеры: Анастасия Кувшинова, Дмитрий Карташов, Егор Трухин, Виктория Соловьева, Амбарцум Кабанян, Даниеле Галеа, Николай Шрайбер, Григорий Багров, Григорий Зельцер, Юна БикиреваСубтитры: отсутствуютПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DBFECDB78CFA3A36CE46E165CB21A40CAE5365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583732   (205763) от 16.10.2022
-
-Тётя Таня (2022) WEBRip [H.264] (сезон 1, серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таня наконец-то собралась замуж, ее не останавливает даже то, что жених не хочет детей. Но приходится забыть о свадьбе и срочно лететь из Сибири на родину – в город Арбузов. Повод ужасный: в автокатастрофе погибла жена непутевого Таниного брата Наташа. Четырехлетняя Полина осталась без матери, а отец ее уже несколько лет в Арбузове не объявлялся. Так что, кроме Тани, (   Читать дальше...   )Производство: Россия / Кинокомпания "Студия П"Жанр: мелодрамаРежиссер: Павел ИвановАктеры: Виктория Романенко, Кирилл Запорожский, Евгений Шириков, Ульяна Лаптева, Сергей Горобченко, Людмила Колесникова, Дмитрий Смирнов, Михаил Дорожкин, Светлана Корчагина, Дарья ФекленкоПродолжительность: 00:45:32 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF2252ABD4FE6259D2359919E4C1C4F199E9FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

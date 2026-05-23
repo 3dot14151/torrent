@@ -1,110 +1,3 @@
-###  Публикация: 449000   (754654) от 09.01.2022
-
-Подборка | «Детские приключения» (2011) [FB2, DOC, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представленные книги написаны для детей и подростков, в стиле Приключения. Главными героями книг, как правило выступают дети, которые попадают в невероятные ситуации и показывают чудеса личной смелости и находчивости. Это – добрые и светлые книги, в которых добро, в образе главного героя, борется со злом, и после длительной борьбы, сопровождающейся невероятными приключениями (   Читать дальше...   )Жанр: Детская литература, приключенияФормат: FB2, DOC, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AD077CDD7A00FD79371C7F70F3E6B1CD28E8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395701   (753824) от 11.07.2020
-
-Вольт Суслов | Покладистый Ложкин (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольт Суслов (1926-1998 гг.) – русский писатель, поэт, фельетонист и поэт-песенник. Работал в детских журналах «Искорка», «Костёр». Книга «Покладистый Ложкин» – это сборник поучительных и весёлых рассказов, фельетонов и стихотворений. В каждом произведении Вольт Николаевич описывает те проблемы, с которыми сталкиваются школьники: как бороться с собственной ленью, (   Читать дальше...   )Жанр: Повести и рассказы, Поэзия, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D972EFDE6EC44186F0E534C8AD62AF23E6CB5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395699   (753805) от 11.07.2020
-
-Ирина Токмакова | Аля, Кляксич, буква «А» и другие [сборник] (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753805.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу классика детской литературы Ирины Токмаковой «Аля, Кляксич, буква «А» и другие» вошли сказочные повести о приключениях Али и Антона в сказочной стране букв и цифр: «Аля, Кляксич и буква «А», «Может, Нуль не виноват?», «Аля, Кляксич и Вреднюга». Рисунки нарисовал народный художник РФ Лев Токмаков.
-Для младшего школьного возраста.Жанр: Повести и рассказы, Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21947EB744C6896707D2A496AD9C44623F0F55B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395704   (753742) от 11.07.2020
-
-Владимир Железников | Чудак из пятого «Б» (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Железников Владимир Карпович (1925–2015) – писатель, кинодраматург, автор знаменитой повести «Чучело», по которой был снят одноимённый фильм.
-Повесть про непоседливого мальчугана Борю была написана в 1962 году. Позже по ней сняли фильм под названием «Чудак из пятого “Б”» (1972).
-Пятиклассник Боря Збандуто, главный герой, – плут и озорник. Однажды его назначают вожатым (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6300A93BC4A15BDCF0662026680C2A8ADD5B24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395705   (753738) от 11.07.2020
 
 Лада Кутузова | Волк под кроватью. Человек-невидимка из седьмого «Б» [сборник] (2020) [EPUB]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,6 +577,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97456104C0EEE2EDE5B19ACEF5342D3D624ED3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425807   (751827) от 12.07.2020
+
+О. Корнеева | Приключение cнеговичка (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии "Читаем детям" содержит Новогоднее стихотворение для самых маленьких и дополнено
+прекрасными, добрыми иллюстрациями.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA215AA913013E0A9B50581A7F7C3FB6A555AB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280540   (751742) от 08.02.2019
+
+Мария Парр | Вратарь и море (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Герои «Вафельного сердца» Лена и Трилле из бухты Щепки-Матильды подросли – им уже по двенадцать лет, а в этом возрасте все непросто. Дед Трилле стареет, неподалеку поселяется девочка-иностранка, а новый тренер футбольной команды изводит Лену придирками и держит на скамейке запасных. Друзья по-прежнему пускаются в невероятные авантюры, ссорятся и мирятся, ведут разговоры (   Читать дальше...   )Жанр: Зарубежные детские книги, Книги для подростковПеревод: Ольга ДроботФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2458C7C84D8B4C28F7E4E2011968C39CA9208A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344888   (751688) от 12.07.2020
+
+И.Акимушкин | Это всё собаки (1976) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Волки, шакалы, лисы, песцы... — все они из одного семейства — собачьих. Живут всюду, на всех материках земли, кроме Антарктиды: в лесах и степях, в горах и равнинах, в тундре и пустынях.
+Ноги у зверей из собачьего племени стройные, длинные, с крепкими тупыми когтями. Все они быстро бегают, некоторые со скоростью до 65 километров в час!
+Шерсть густая — серая или рыжая (   Читать дальше...   )Жанр: Детская лит-раФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366621AECA4DC2C0B6BFB4992C9B1D80C5A4A2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317006   (750982) от 11.01.2022
+
+Дейзи Медоус | Собрание сочинений [41 книга] (2015-2021) [FB2, PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Под псевдонимом Дейзи Медоус пишут четыре английских автора: Сью Монгредиен, Линда Чапмен, Сью Бентли и Нариндер Дхами.
+
+Нариндер Дхами родилась 15 ноября 1958 года в городе Вулвергемптон. В 1980 году она получила ученую степень по английскому языку в Бирмингемском университете. После нескольких лет преподавательской деятельности в начальной и средней школе Нариндер (   Читать дальше...   )Жанр: Сказки народов мира, Приключения для детей и подростковПеревод: Анна Тихонова, Екатерина Олейникова, Е. А. Романенко, М. Н. МанчхашвилиФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8616B367300A1CA564D383A6E575CEBF562BEA69
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 783235   (747000) от 03.05.2014
+
+Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя летом [2012, TV, 12 эп.] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Японским старшеклассникам летними ночами опасно подходить к местным водоемам! А вот 16-летний Кайто Кирисима не утерпел и пошел на ночь глядя пробовать новую кинокамеру, но не успел ничего снять, как в озеро упал космический корабль! Утром Кайто списал все на дурные сны и направился в школу. Смутные сомнения зашевелились в душе, когда Кирисима увидел новую ученицу по имени Итика Такацуки. Чувствуя, что его незримо тянет к красавице с ярко-красными волосами, герой никак не мог решиться, да помог Тэцуро, лучший друг и первый парень на деревне. Он представил Кайто как кинолюбителя и в шутку предложил новенькой стать звездой нового фильма. Та с удовольствием согласилась!
+
+Так все и завертелось перед летними каникулами. Сценарий взяла на себя таинственная малышка Рэмон, на вторые роли подписались одноклассницы героя Мио и Канна (причем одну из них вторая роль совсем не устраивала!). Сам же Кайто обнаружил, что под влиянием общения с Итикой таинственным образом раскрепощается и начинает вести себя не как хлипкий очкарик, (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Нагай ТацуюкиПродолжительность: 12 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E447D65BF9E083D763F8507499371899B0B4669F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396431   (746848) от 15.07.2020
+
+Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centimeters Apart. | Нас всегда разделяли 10 сантиметров [2017, TV, 6 из 6] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Повествование о любовных историях между школьниками третьего курса: Нацуки Эномото, Юто Сетогучи, Соутой Мочизуки, Акари Хаясакой, Мио Айдой и Харуки Серизава. Помимо них, также рассказывают различные истории любви между людьми которые их окружают. История посвящена тому, как трудно рассказать о своих чувствах.Производство: Lay-duceЖанр: романтика, повседневностьРежиссер: Намба ХитосиПеревод: YakuSub Studio (Arashi-sama, Nika_Elrik)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2135AE17B9EBDFBE629357D0594ECACDECF44EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257815   (746213) от 11.02.2019
+
+Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Временная линия Бета, 1.129848%. После смерти Курису Макисе Ринтаро Окабе страдает от посттравматического стрессового расстройства, которое пытается излечить посредством гипнотерапии. Он отказывается вновь возвращаться в прошлое при помощи машины времени, избегает «Лаборатории гаджетов будущего» и отбрасывает личность Хооина Кёмы, живя жизнью обычного студента университета. (   Читать дальше...   )Производство: студия White FoxЖанр: триллер, фантастикаРежиссер: Кавамура КэнъитиПеревод: #1. AniPlay(01-23); #2. SovetRomantica (01-23);Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F5AC824EF1F419DF9473924B819FB9C704F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783543   (745567) от 04.05.2014
+
+To Heart 2 | ToHeart 2 | Для сердца 2 (TV 2) [2005, TV, 13 + 1 эп.] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сериал основан на одноимённой игре от компании Aquaplus. Несмотря на цифру 2 в названии, не имеет ничего общего с первым сериалом ToHeart, вышедшим в 1999 году, кроме нескольких отсылок для наблюдательных. Новая история не отличается особой оригинальностью (как, впрочем, и большинство экранизаций хентайных игр), однако, всё же немного выделяется на фоне других вещей (   Читать дальше...   )Жанр: комедия, романтика, драма, школаРежиссер: Суто НорихикоСубтитры: •Продолжительность: 13 эп. + эп.-коллаж), 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5ED52FD9CD1EC390C51B4E33A1EF32DD8B28288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 783551   (745564) от 04.05.2014
 
 ToHeart2 | To Heart 2 OVA | Для сердца 2 OVA-1 [2007, OVA, 3 эп.] DVDRip 480p raw
@@ -6,7 +112,7 @@ ToHeart2 | To Heart 2 OVA | Для сердца 2 OVA-1 [2007, OVA, 3 эп.] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +141,7 @@ To Heart | ToHeart | Heart To Heart | Для сердца (TV 1) [1999, TV, 13 +
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +168,7 @@ Gekijouban Card Captor Sakura|Fuuin Sareta Card / Cardcaptor Sakura: The Movie|T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +199,7 @@ Overman King Gainer | Король Гэйнер [2002, TV, 26 из 26] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +226,7 @@ ReLIFE | ReLIFE Kanketsuhen | Повторная жизнь [2016, 2018, TV+OVA,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +252,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +280,7 @@ Dagashi Kashi 2 | Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -200,7 +306,7 @@ Miira no Kaikata | How to Keep a Mummy | Как ухаживать за муми
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -226,7 +332,7 @@ Fate/EXTRA Last Encore | Судьба: Дополнение - Последний
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +360,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь Святых Добр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -281,7 +387,7 @@ Eldlive | Эль Драйв [2017, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +413,7 @@ Circlet Princess | Диадема принцессы [2019, TV, 12 из 12] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +439,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +465,7 @@ Centaur no Nayami | A Centaur's Life | Хлопоты кентавра | Бес�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +491,7 @@ Onihei: Sono Otoko, Hasegawa Heizou | Онихэй: Этот человек, Х�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +517,7 @@ Akiba's Trip The Animation | Падение Акибы [2017, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +543,7 @@ Keppeki Danshi! Aoyama-kun | Clean Freak! Aoyama-kun | Чистюля Аояма
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +569,7 @@ Rizelmine | Rizerumain | Моя Ризельмина [2002, TV, 24 из 24] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +595,7 @@ Onihei | Онихей: Криминальные истории периода Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +622,7 @@ Relife | Повторная жизнь [2016, TV, 17 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +648,7 @@ Pop Team Epic | Эпическая поп-команда [2018, TV, 12] WEBRip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +677,7 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,110 +688,6 @@ Kuzu no Honkai | Scum's Wish | Тайные желания отвергнуты�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1B4816C6F538F6EFD9CE11970E717CC7B3A46D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397412   (740301) от 20.07.2020
-
-Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, TV, 26 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740301.jpg" />
-</div>
-
-
-###  Подробнее
-
-С незапамятных времён земля японская полнится слухами о демонах-людоедах, что скрываются в лесной чаще. В страхе перед ними обычные селяне предпочитают не покидать свои жилища после захода солнца. Быть может, именно эти чувства и породили легенду об охотниках на демонов, истребляющих нечисть по ночам. С тех пор, как погиб его отец, Тандзиро в одиночку добывает хлеб (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: SovetRomantica; YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044C8138CE82BFE4F9F8337F1E364B159618D08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198643   (739923) от 07.04.2018
-
-Violet Evergarden / Виолетта Эвергарден [2018, TV, 13] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно профессор Орланд, влиятельная фигура в книгопечатной промышленности, изобрел новую печатную машину для своей жены Молли, чтобы она могла писать романы после потери зрения. Машина получила вид небольшой прекрасной куклы. Вложив в него свое сердце и надежды, профессор назвал его «самопишущая кукла». В конце концов, его изобретение стало широко распространено, (   Читать дальше...   )Жанр: приключенияРежиссер: Исидатэ ТайтиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD40238D8417EED236515B9D767D52E4DB1E9669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784249   (739574) от 09.05.2014
-
-Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих кошек! [2010, TV, 12+1+6sp] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хрестоматийный школьник-сирота Такуми Цудзуки вместе со сводной старшей сестрой Отомэ живут одни и кое-как управляются с кондитерской «Бродячая кошка». Как и положено, кошек в доме полно, да толку с них мало, а работяге Такуми помогает подруга детства Фумино Сэридзава, очень активная и упрямая особа. Ребята вместе посещают академию Умэномори, где, кроме собственной (   Читать дальше...   )Жанр: комедия, повседневность, романтика, пародия, эттиРежиссер: Итагаки СинПродолжительность: 12+1 серий по 25 мин, и 6 спешлов по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347678C29B19BD0F43A6785672EB467E12B5814A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785106   (739548) от 09.05.2014
-
-Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харука Нанасэ с детства любил плавать. Только в воде парень чувствовал себя свободным, далеким от ненужных забот. Его страсть, пускай в меньшей степени, разделяли старые друзья Макото и Нагиса, а вот примкнувший к ним Рин Мацуока был другим. Он ценил победу и не понимал, почему Нанасэ, спортивный гений, не хочет «рвать соперников», не считает места и секунды. В начальной (   Читать дальше...   )Жанр: повседневность, спортРежиссер: Уцуми Хироко / Utsumi Hiroko / 内海紘子Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E33829CD25482046C6612109BE5E7C8832937F
 ```
 
 https://mybot314.ru/tekegram_catalog/

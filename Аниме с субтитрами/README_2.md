@@ -1,3 +1,113 @@
+###  Публикация: 1860192   (1061755) от 27.03.2026
+
+Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Молодая охотница за головами, зарабатывающая на жизнь в опасном и непредсказуемом мире. Выбирая эту стезю, сталкивается не только с внешними угрозами, но и с глубокими внутренними переживаниямии, заставляющими её подвергнуть сомнению собственный выбор и моральные принципы.
+Профессиональная деятельность неизбежно сталкивает героиню с могущественными и эксцентричными (   Читать дальше...   )Производство: SHAFTЖанр: приключения, боевик, киберпанкРежиссер: Умэцу ЯсуомиПеревод: AniSlovo (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 35 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C6F0D7157C61E334EA5A2F85E4937685F08174
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858525   (1060519) от 11.03.2026
+
+Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [2014, OVA, 2 эп.] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ограниченное издание 26 тома будет включать в себя дополнительную серию. Это глава воспоминаний и является прологом к сериалу. В ней будет показано как герои впервые встретились в детстве.
+Ограниченное издание 27 тома также будет включать в себя дополнительную серию, созданную в тесном сотрудничестве с автором оригинальной манги.
+
+© ShikimoriПроизводство: Студия Gonzo, ЯпонияЖанр: романтика, драмаРежиссер: Сигэясу ЯмаутиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 28 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3217A35ED9C2907E563268662B8B806F93ADAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858520   (1060518) от 11.03.2026
+
+Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты живёшь: Сумеречный перекрёсток [2012, OVA, 2 эп.] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+По непонятным причинам Эба Юдзуки решает поступить в старшую школу в сельской местности. Несмотря на возражения Кирисимы Харуты, она вселяется в его дом. Теперь ему приходится мириться с нахлебницей и беспокоиться, чтобы Кандзаки Нанами, которую он любит, не узнала о том, что у него уже есть «сожительница».
+
+© ShikimoriПроизводство: Студия Tatsunoko Production, ЯпонияЖанр: романтика, драмаРежиссер: Хироси КобаясиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766305253B0679D4C37BF9C7A21E37A5581FE829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858215   (1060093) от 09.03.2026
+
+Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | My Status as an Assassin Obviously Exceeds the Hero's | Мой статус убийцы очевидно превосходит геройский [2025, TV, 12 ...
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+Ода Акира – тот тип человека, о котором люди даже забывают. Однако его скромный характер приносит свои плоды, когда весь его класс попадает в фантастический мир, и он легко вживается в свою новую роль молчаливого убийцы. Между его подозрительно высокими стартовыми характеристиками и слишком многими несоответствующими деталями, Акира уверен, что что-то не так. Но (   Читать дальше...   )Производство: SUNRISEЖанр: приключения, фэнтези, исекайРежиссер: Хабара НобуёсиПеревод: AniSlovo (Donate, Тэнши)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскийПродолжительность: ТВ 12 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEA3C8E37410A1B8E6CF7542FD6F5CE92A07B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857335   (1059504) от 07.03.2026
 
 29-sai Dokushin Chuuken Boukensha no Nichijou | An Adventurer's Daily Grind at Age 29 | Жизнь 29-летнего авантюриста [2026, TV, 1 из 12] WEBRip 1080p raw
@@ -6,7 +116,7 @@
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +142,7 @@ ChaO | Чао [2025, Movie] WEBRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +168,7 @@ Chou Kaguya-hime! / Cosmic Princess Kaguya! / Суперпринцесса Ка�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +195,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +221,7 @@ Haikara-san ga Tooru | Smart-san | Современная девушка | Го�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +248,7 @@ Shounan Bakusouzoku | Bomber Bikers of Shonan | Сёнанские байкер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +274,7 @@ Alma-chan wa Kazoku ni Naritai | Alma-chan Wants to Be a Family! | Альма х
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +300,7 @@ Attack No.1 | Attack Number One | Mila Superstar | Лучшая подача [19
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +326,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +352,7 @@ Tensei Akujo no Kurorekishi | The Dark History of the Reincarnated Villainess | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +378,7 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +405,7 @@ Little Witch Academia | Академия ведьмочек (фильм перв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +431,7 @@ Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +459,7 @@ Momotarou: Umi no Shinpei | Momotaro Sacred Sailors | Momotaro's Divine Sea Warr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +486,7 @@ Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +512,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +541,7 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +567,7 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +595,7 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -513,7 +623,7 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -540,7 +650,7 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +676,7 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -577,114 +687,6 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD095411C4C909011CBF82EBC8E95C9C6AC55657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847836   (1052495) от 21.01.2026
-
-Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation | Отпуск для скромного дворянина [2026, TV, 2 из 12] WEBRip 720р raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Лизел таинственным образом оказывается в городе, который странным образом напоминает его родной, но явно им не является, он быстро смиряется с невероятной правдой: это совершенно другой мир. Но даже несмотря на это, спокойный Лизел не из тех, кто поддается панике. Он сразу же решает узнать больше об этом странном месте и, чтобы помочь себе в этом, нанимает (   Читать дальше...   )Производство: SynergySPЖанр: повседневность, фэнтезиРежиссер: Noda KentaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B292F2CC3777E16D59C8F8395A7345188F3B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847564   (1052161) от 19.01.2026
-
-Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | Время пытки, принцесса [ТВ-2] [2026, TV, 1 из 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории "пыток" ^_^
-
-Война между королевством и демонической ордой не утихает, и принцесса, вооружённая легендарным мечом, попадает во вражеский плен. В темнице её ожидают страшные пытки: свежеиспечённые тосты, густой рамэн и другие лакомства. Удастся ли принцессе сохранить секреты королевства?
-© crunchyrollПроизводство: студия Pine Jam / パインジャムЖанр: комедия, фэнтезиРежиссер: Канамори ЁкоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF2A167CB532915FFB0FDABDF7DCBF1E7117F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847545   (1052160) от 19.01.2026
-
-Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2 из 13] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о Фальшивой Войне Святого Грааля, основанной на Третьей Войне Святого Грааля, происходившей в городе Фуюки. После её завершения базирующаяся в США организация магов, отличная от лондонской Ассоциации Магов, использовала данные о ней для своего собственного ритуала. Семьдесят лет спустя город Сноуфилд в Калифорнии был избран Священной Землёй для (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Энокидо СюнПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477ED752CF8F3AA13855BCB344ADB5FB827A32F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847353   (1052106) от 18.01.2026
-
-Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adored by the Prince of the Neighbor Kingdom | Принц соседней страны обожает злодейку [2026, TV, 1 из 12] WEBRip 720р raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052106.jpg" />
-</div>
-
-
-###  Подробнее
-
-За день до своего падения леди Тиарароуз Лапис Клементиль вспоминает, что она находится в игре отомэ, в которую она когда-то играла в своей прошлой жизни. Раньше она обожала главного героя, принца Хартнайта Лапис-Лазули Лактомута, но, к сожалению, она реинкарнировалась не в героиню, а в его злейшую врагиню — злодейку-невесту.
-На церемонии вручения дипломов Хартнайтс, (   Читать дальше...   )Производство: Studio DeenЖанр: романтика, фэнтезиРежиссер: Hamana TakayukiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0236A803FEEEC3365D0BB802C6A9B8DE9CE32420
 ```
 
 https://mybot314.ru/tekegram_catalog/

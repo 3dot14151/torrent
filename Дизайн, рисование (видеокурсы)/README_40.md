@@ -1,3 +1,87 @@
+###  Публикация: 1043421   (571872) от 16.08.2016
+
+Нетология | UX Дизайнер (2015) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первая онлайн-программа в СНГ, на которой Вы создадите продукт от стратегии до интерактивного прототипа.
+
+Курс «UX Designer» — ориентирован на то, чтобы всего за 3 недели сформировать навыки и мышление дизайнера способного проектировать серьезные веб-сайты и приложения.Жанр: видеокурс, вебинары, интенсивный практикумПродолжительность: 46:06:53 | 10:10:37 (бонусы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AB1EB9E9B6E7B056CCA2E69DA92B22A929FA20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517269   (569910) от 03.06.2022
+
+CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapters 1-10] (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Научитесь создавать 3D-скульптуры, которыми вы можете гордиться.
+Этот курс научит вас всем важным основам скульптинга в Blender и тому, как создавать потрясающие 3D-скульптуры с нуля, используя только бесплатные инструменты. Никаких знаний в области скульптинга не требуется. Мы обучим вас основам с помощью простых упражнений, а затем шаг за шагом направим вас в более (   Читать дальше...   )Производство: CG BoostЖанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 22:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9CAADDA9CC113E3568F9AF161DA9CE77596CD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304161   (566852) от 24.05.2019
+
+Gumroad.com | Sci-Fi Weapon Process (2017) PCRec [H.264/720p-LQ] [RU/EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создание Sci-Fi оружия с Michael Pavlovich
+
+В этих уроках (42 видео) автор продемонстрирует полный процесс создания Sci-Fi оружия, начиная от использования примитивов и до текстурирования законченного игрового ассета в программе Substance Painter, используя ряд новых возможностей ZBrush 4R8.
+Необходимое программное обеспечение:  ZBrush 4R8, Substance Painter, Autodesk (   Читать дальше...   )Производство: Gumroad.comЖанр: 3D графикаПеревод: Дублированный (Pushkin)Язык озвучки: Русский, АнглийскийПродолжительность: 03:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA69FC3505E62BEBF6EE7A95F00CCEDB23A1BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960161   (562715) от 21.08.2016
 
 Александр Головачёв | Фотошоп-онлайн для новичков (2015) PCRec [H.264]
@@ -6,7 +90,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +118,7 @@ MDA | Обучение веб-дизайну от профессионалов �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +146,7 @@ Udemy, Christina Wu/Dubell | How to Draw and Paint People Made Simple (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +174,7 @@ Patreon, FlyCat | Semi realistic potrait modelling in Blender 3.1 (2022) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +229,7 @@ XYZ School, Тамара Бахлычева | Hand-Paint (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +256,7 @@ Digital Tutors | Introduction to Materials in Houdini (2015) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +282,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -225,7 +309,7 @@ Digital Tutors, Kurt Williams | Creating a Floater Pack in Maya (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -252,7 +336,7 @@ Lynda, Judd Roy | Game Art Asset Texture Pipeline (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +363,7 @@ Udemy, Opi Chaggar | Maya for Beginners: Complete 3D Animation Fundamentals (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +389,7 @@ YouSmart, Нина Наумова | Векторная графика и пол�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -334,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +550,7 @@ CGMA, Kevin Griffith | Stylized 3D Asset Creation for Games (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +576,7 @@ Sycra, Sycra Yasin | Composition for Artists (2013) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +602,7 @@ Rebelway, Saber Jlassi, Urban Bradesko | Introduction To Houdini For 3D Artists 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +629,7 @@ teachshop | Kompas 3D V11 [Обучающий видео курс] (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +655,7 @@ Rebelway, Saber Jlassi | Advanced Compositing Using COPs in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +682,7 @@ Wingfox, Sarah Petruzzi | Photorealistic Character Creation (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,87 +693,6 @@ Wingfox, Sarah Petruzzi | Photorealistic Character Creation (2021) PCRec [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85AFE81C60B22A24924A9266083611ADA2AC5E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564508   (499264) от 19.07.2022
-
-Yudaev School, Никита Юдаев | Дизайн c WOW-эффектом. Тариф Базовый (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому подойдет этот курс:начинающим
-дизайнерам с опытом
-фриоансерам
-smm-специалистам(   Читать дальше...   )Производство: Yudaev SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 27:20:48Реклама: Присутствуют сторонние наложения и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1887934B6612CB42BA904CC0F51E8328E7E4E893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564997   (497423) от 21.07.2022
-
-Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497423.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вам будут показаны методы создания оптимизированного AR-15, готового к игре, в Blender 3D. Вы узнаете, как пройти через процессы использования референса, создания модели, повторного создания сетки, запекания деталей и текстурирования.  В курсе используются аддоны  Boxcutter и Hard Ops  , а также несколько других аддонов, но это 100% не обязательно для прохождения (   Читать дальше...   )Жанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 09:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94BE4C8E89786A5DEBE6E41D38EF7A230452C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404212   (495168) от 24.08.2020
-
-Simon Payne | Creature Creators Handbook Volume 2 Part A-B (2012) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495168.jpg" />
-</div>
-
-
-###  Подробнее
-
-cmiVFX представляет второй том мастер класса по созданию рига и анимации существа при участии знаменитого Саймона Пейна в качестве нашего инструктора. Если вы хотите профессионально освоить риггинг и анимацию, не проходите мимо. Том 2, часть А рассказывает, как эффективно работать с настройкой сплайнов IK, риггинг меню cmi, стандартными инструментами интерфейса, (   Читать дальше...   )Производство: сmiVFXЖанр: Создание видеоЯзык озвучки: Английский, русскийПродолжительность: 04:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084436A835FC41EC5AC6971C1FB60D939668ECFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

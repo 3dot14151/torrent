@@ -1,3 +1,107 @@
+###  Публикация: 763938   (341640) от 27.10.2020
+
+Затмение солнца при полной луне / Затмение, или ухаживания Солнца и Луны / L'eclipse du soleil en pleine lune / The Eclipse the Courtship of the Sun and Moon (1907) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Учёный-астроном преподаёт свою науку студентам. Тем же не до науки, им лишь бы посмеяться над эксцентричным профессором. Но вот пришла пора перейти к практическим занятиям, тем более - предстоит затмение Солнца. Уморительные гримасы солнечного лика и лунного с намёком на флирт -это ещё не всё. История получает неожиданное продолжение. Ведь на небе можно заметить (   Читать дальше...   )Производство: Франция, Star-FilmЖанр: Короткометражка, комедия, фэнтези, немое киноРежиссер: Жорж МельесАктеры: Mlle. Bodson, Manuel, Жорж МельесЯзык озвучки: НемойСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3C9B7082E617E2CD09CB6331823EAFB5E96CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827657   (340634) от 10.10.2019
+
+Профессионал / Le professionnel (1981) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Убить президента африканской республики. Такое задание получил секретный агент Жослен Бомон. Внезапно политика изменилась, и французское правительство сдает героя африканским властям. Сбежав с каторги, волк-одиночка возвращается на родину с одной целью: довести задание до конца. А чернокожий лидер как раз приезжает во Францию.Производство: Франция | Les Films Ariane, Cerito FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Жан Десайи, Сирил Клер, Мари-Кристин Декуар, Элизабет Маргони, Жан-Луи Ришар, Мишель Бон, Бернар-Пьер Доннадье, Пьер Сентон, Жерар Дарьё, Сидики Бакаба, Робер Оссейн, Дани Коган, Марк Ламоль, Шейк Дукуре, Серж НюбреПеревод: Профессиональный дублированный, профессиональный многоголосый, авторскийЯзык субтитров: РусскийПродолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AEA5E16ADAE4737AA0D02DC6C0AA4BA3D95EF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795488   (340632) от 10.10.2019
+
+Колдун / Sorcerer (1977) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нефтяная компания ищет водителей, готовых перевезти на грузовике груз со взрывчаткой. А четверо мужчин не могут вернуться в родные страны и по разным причинам вынуждены скрываться в Латинской Америке. Им нечего терять, но в случае успешного завершения операции каждый получит по 10 тысяч долларов и гражданство. Их ждут 200 миль дороги, где за каждым поворотом подстерегает (   Читать дальше...   )Производство: США, Film Properties International N.V.Жанр: Боевик, триллер, приключения, драмаРежиссер: Уильям ФридкинАктеры: Рой Шайдер, Бруно Кремер, Франсиско Рабаль, Амиду, Питер Кэпелл, Рамон Бьери, Питер Кэпелл, Карл Джон, Фридрих фон Ледебур, Чико Мартинес, Джо СпинеллПеревод: Авторский одноголосый - (М. Иванов)Продолжительность: 02:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA19528C3A729889C71D57AE989B09C2319A1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070421   (340363) от 18.11.2016
+
+Закон и кулак / Prawo i piesc (1964) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Июль 1945г. Представители польского правительства формируют группы добровольцев, в задачу которых входит охрана государственного имущества на землях, освобожденных от гитлеровцев. В одной из таких групп оказалось пятеро бандитов, готовых на все ради личной наживы. Шестой член группы, бывший узник Освенцима Анджей вступает с ними в непримиримую борьбу…Производство: Польша, Kamera Film UnitЖанр: Драма, ВоенныйРежиссер: Ежи Гоффман, Эдвард СкужевскийАктеры: Густав Холоубек, Зофья Мрозовска, Ханна Скаржанка, Веслав Голас, Здзислав Маклякевич, Рышард Петруский, Ежи Пшибыльский, Весвава Квашьневска, Эва Висьневска, Збигнев ДобжиньскийПеревод: ДублированныйПродолжительность: 01:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD10BA46A3AEEED106C4A0A45A2839C75CC4E5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952536   (339480) от 08.11.2015
 
 Апрельские безумства / The April Fools (1969) DVDRip [H.264] [VO]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3582C18F5BBA3F09E9DB8F190A6BD9DA384942F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258483   (332916) от 01.11.2018
-
-Анжелика, маркиза ангелов / Angelique, marquise des anges (1964) BDRip [H.265] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анжелика, необыкновенно красивая бедная аристократка вынуждена выйти замуж за Жоффрея де Пейрака. Несмотря на его внешность она со временем полюбила его. Влюбленные живут счастливо в своем замке, пока однажды к ним не приезжает король...Производство: Франция, Германия (ФРГ), Италия |  Compagnie Industrielle et Commerciale Cinématographique (CICC), Fono Roma, Franco London FilmsЖанр: драма, мелодрама, приключения, историяРежиссер: Бернар БордериАктеры: Мишель Мерсье, Робер Оссейн, Жан Рошфор, Клод Жиро, Джулиано Джемма, Шарль Ренье, Жак Тожа, Мадлен ЛеБо, Жан Топар, Бернар ВоринжеПеревод: Дублированный, Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB9217DC2A48581E1AAAC22089B40E55C706C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256585   (332804) от 01.11.2018
-
-Займемся любовью / Let's Make Love (1960) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер Жан-Марк Клеман — потомственный бизнесмен и привлекательный мужчина. Он умеет делать деньги и очень любит женщин. Жан-Марк привык блистать в обществе и считает, что для него нет ничего невозможного.
-Получив шокирующее известие о том, что он — «гений бизнеса» — станет объектом насмешек в юмористическом спектакле, Клеман решает самостоятельно разобраться (   Читать дальше...   )Производство: США / Jerry Wald ProductionsЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Джордж КьюкорАктеры: Мэрилин Монро, Ив Монтан, Тони Рэндалл, Фрэнки Вон, Уилфрид Хайд-Уайт, Дэвид Барнс, Майкл Дэвид, Мара Линн, Дэннис Кинг мл., Джо БессерПеревод: Многоголосый закадровый, двухголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB570AD53B8DB4B05DA0598067D48B6CFC10E53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954274   (332411) от 12.11.2015
-
-Человек из Колорадо / The Man from Colorado (1948) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое друзей вернулись домой после Гражданской войны. У одного из них психологическая травма из-за событий на войне. Он начинает вести себя неустойчиво и ожесточенно. Друг пытается найти способ помочь ему.Производство: США / Columbia Pictures CorporationЖанр: ВестернРежиссер: Генри ЛевинАктеры: Гленн Форд, Уильям Холден, Эллен Дрю, Рэй Коллинз, Эдгар Баканан, Джером Куртлэнд, Джеймс Милликэн, Джим Бэннон, Уильям «Билл» Филлипс, Стэнли ЭндрюсПеревод: Многоголосый закадровый (5-й канал С.Пб)Субтитры: ОтсутствуютПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AAF0FB35C1A655E073D439750C04B921B9235F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420540   (332293) от 01.11.2020
-
-007: Из России с любовью / From Russia with Love (1963) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе задание для Джеймса Бонда - это спасти и вывезти из Стамбула русского агента, красавицу владеющую тайной сверхсекретного шифровального аппарата Лектор, а также сам аппарат. В легко протекающую комбинацию вклинивается неизвестный до сих пор агент №1 Спектра, Эрнест Ставро Блофелд.
-В его задачу входит не только обострить отношения между Великобританией и Советским (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Даниэла Бьянки, Педро Армендарис, Лотте Ленья, Роберт Шоу, Бернард Ли, Юнис Гейсон, Уолтер Готелл, Френсис Де Вулф, Джордж ПэстеллПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAEE6B6493F17F4D1F296F6A87D4770F0E0701B
 ```
 
 https://mybot314.ru/tekegram_catalog/

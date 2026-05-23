@@ -1,29 +1,3 @@
-###  Публикация: 1340669   (263476) от 24.11.2019
-
-Bee Simulator (2019) [Switch] [EUR] 9.0.1 [NSP] [License / 0.2] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263476.jpg" />
-</div>
-
-
-###  Подробнее
-
-В момент когда первые солнечные лучи появляются над горизонтом , медленно просыпается пчелиный улей. Иерархия и усердность , жизненно необходимы для благополучия всего роя. Так что проверьте крылья , градус отклонения ваших антенн, берите приказы от королевы и полетели на первое задание. Это только начала ваших приключений. Вы случайно обнаруживаете, что люди хотят (   Читать дальше...   )Тип издания: LicenseРазработчик: VARSAV Game StudiosЖанр: Приключения, СимуляторЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3370C20535FD497D409F387B1C8A675042DF4BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340725   (263465) от 24.11.2019
 
 FIFA Street 3 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
@@ -32,7 +6,7 @@ FIFA Street 3 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [License] [En
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +33,7 @@ Star Wars Jedi: Survivor / Звёздные войны Джедаи: Выжив�
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +111,7 @@ Transformers: Devastation (2015) [PS3] [EUR] 4.75 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +137,7 @@ Dead Space 3 (2013) [PS3] [EUR] 3.30 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +163,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [PS3] [EUR] 4.76 [Cobr
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +189,7 @@ Dead Island 2 Gold Edition (2023) [PS4] [EUR] [5.05] [HEN] [License / 1.03 / DLC
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +215,7 @@ Assassin's Creed III (2012) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +241,7 @@ Scott Pilgrim vs. The World: The Game – Complete Edition (2021) [Switch] [USA]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -293,7 +267,7 @@ Back 4 Blood (2021) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru/Multi] [Ul
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -319,7 +293,7 @@ Shadow Warrior 3 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -345,7 +319,7 @@ ELEX II (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -371,7 +345,7 @@ WRC 10 FIA World Rally Championship (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -397,7 +371,7 @@ Marvel’s Avengers – Deluxe Edition (2020) [PS4] [EUR] 5.05 [HEN] [License / 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -423,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -449,7 +423,7 @@ Blasphemous (2019) [Switch] [USA] 11.0.0 [NSZ] [License / DLC / 1.0.8] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -475,7 +449,7 @@ The Outer Worlds (2020) [Switch] [USA] 11.0.1 [NSZ] [License / 1.0.3 / DLC] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -501,7 +475,7 @@ Nioh 2 (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -527,7 +501,7 @@ Marvel's Guardians of the Galaxy / Стражи Галактики Marvel (2021)
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -553,7 +527,7 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -579,7 +553,7 @@ Serious Sam Collection (2020) [PS4] [USA] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -605,7 +579,7 @@ Crysis 2 Remastered (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -631,7 +605,7 @@ Jurassic World Evolution 2 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.12 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -657,7 +631,7 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -668,6 +642,32 @@ NHL 22 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.30] [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:696B4F37367C601AE2E6C60660AE684E222BD7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544192   (241308) от 16.04.2022
+
+Minecraft Dungeons (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.20 / DLC] [Ru/Multi] [Ultimate Edition]
+
+>>Консольные Игры
+>>PS4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Пройди всю историю Minecraft Dungeons от начала до конца. Сразись с ордой мобов, исследуй уровни в разных измерениях и найди невероятные сокровища, пройдя сюжет, посвященный злобному Arch-Illager и Orb of Dominance.Тип издания: LicenseРазработчик: Mojang Studios, Double ElevenЖанр: Adventure, ActionЯзык озвучки: Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD4786221432FE44BD39FF759459F4578D83180
 ```
 
 https://mybot314.ru/tekegram_catalog/

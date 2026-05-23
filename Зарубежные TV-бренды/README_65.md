@@ -1,3 +1,56 @@
+###  Публикация: 359507   (583094) от 05.07.2011
+
+Discovery: Любитель опасностей / Dangerman (2004) IPTVRip [4 из 4]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Идеальная буря / The Perfect Storm
+Любитель экстремальных съемок Джеф Макклей отправляется на Тайвань, Южную Корею и США, чтобы сделать фотографии разрушительных тайфунов и ураганов прямо изнутри.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4x~00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF237EF8A6A3FC37184E262033D30809369FAB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280864   (582972) от 13.05.2019
+
+Animal Planet: Дикие реки Африки / Wild Africa. Rivers of Life (2016) HDTV [H.264/1080i] (Сезон 1, серии 7 из 7)
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Африка - не безжизненная пустыня. Ее земли питают реки, артерии черного континента. Животворящие потоки подстраиваются под ландшафт и формируют облик материка, пробегая по выжженным солнцем пустыням, пробивая дорогу через кустарниковые заросли, мирно журча по травянистым саваннам. Программа исследует, как река рождается и набирает силу, каким образом влияет на окружающую (   Читать дальше...   )Производство: Южная Африка, Lion Mountain Media, Warehouse 51 Productions, ZDF Enterprises, Animal PlanetЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21743DE1C69B9A4396582FB06A82542C84EA646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 109208   (582557) от 19.07.2015
 
 BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of World War II (1998) 3xDVD5 (части 1-6 из 6)
@@ -6,7 +59,7 @@ BBC: Секреты Рейха. Тайны нацизма / BBC: Secrets of Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_582557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ NG: Секретные материалы древности: Меч в камн
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ BBC. Планета людей - Арктика / Human planet - Arctic (2011) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +221,7 @@ Discovery: Разрушители легенд. Шпионские машины 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +250,7 @@ BBC. Освенцим (Аушвиц): Нацисты и «Окончательн
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +276,7 @@ NG: Секретные материалы древности: На заре ци
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +302,7 @@ NG: Секретные материалы древности. Содом и Го
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +328,7 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -302,7 +355,7 @@ BBC: Всемирная история живописи / Sister Wendy’s Story
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_579620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -328,7 +381,7 @@ BBC: Встреча с Ураном / Horizon. Uranus Encounter (1986) VHSRip [E
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +407,7 @@ Discovery. Катастрофа на колесах / Wheels That Fail (2014) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +433,7 @@ Discovery. Дорожные ковбои / Аsphalt Сowboys (2012) HDTVRip [С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +485,7 @@ NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +511,7 @@ BBC. Снежные медведи / Snow Bears (2017) DVB [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +537,7 @@ Animal Planet. Банда тигриц / Tigress Blood (2014) HDTVRip [H.264/108
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +563,7 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +589,7 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +615,7 @@ BBC: Мир природы. В поисках легенды – чёрный л
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_577820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -614,7 +667,7 @@ BBC: Прогулки с динозаврами / Walking with Dinosaurs (1999) 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +679,6 @@ BBC: Прогулки с динозаврами / Walking with Dinosaurs (1999) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8151F31952257A161B578E3DDF5A7F07E9D329B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921023   (577238) от 24.07.2015
-
-Discovery: Ледяное золото / Ice Cold Gold (2013) SATRip (1 сезон: 1-6 серии из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Льды Гренландии - завораживающе красивы и исключительно опасны! Но кто знает, может быть за ними скрываются золотые горы?Телекомпания: Discovery ChannelЖанр: ДокументальныйРежиссер: Синтия А. ПалермоПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6748ED3B7AFF67778BBED2490EA402035F16A2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915736   (577182) от 24.07.2015
-
-Discovery. Дом для авто / House of Cars (2014) HDTVRip [Серия 1-4] [Обновляемая]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хосе Висенте Диес обожает классические автомобили. В своей мастерской он восстанавливает потрясающие винтажные машины и связанные с ними истории.Телекомпания: Испания, Discovery ChannelЖанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3311032E26FA1049646EACF418CCE3FDB398D0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

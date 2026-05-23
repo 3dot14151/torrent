@@ -1,3 +1,108 @@
+###  Публикация: 1185413   (292870) от 21.11.2017
+
+Салют-7 (2017) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Космическая станция «Салют-7», находящаяся на орбите в беспилотном режиме, неожиданно перестает отвечать на сигналы центра управления полетом. Принято решение об отправке на орбиту спасательной экспедиции. Космический экипаж должен найти «мертвую» станцию и впервые в мире провести стыковку с 20-тонной глыбой неуправляемого железа.
+Космонавты понимают, что шансов (   Читать дальше...   )Производство: РоссияЖанр: Драма, Приключения, ТриллерРежиссер: Клим ШипенкоАктеры: Владимир Вдовиченков, Павел Деревянко, Александр Самойленко, Виталий Хаев, Оксана Фандера, Любовь Аксенова, Роман Перелыгин, Полина Руденко, Александра Серебрякова, Мария МироноваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A227F850E97E97B52B020C47AAD2749C7DAC4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262684   (292781) от 16.11.2018
+
+Собибор (2018) Blu-ray [H.264/1080i] [FRA Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История сопротивления человеческого духа бездушной машине уничтожения. В октябре 1943 года заключённые лагеря Собибор во главе с лейтенантом Красной армии Александром Печерским поднимают восстание — единственное успешное восстание в нацистском лагере смерти.Производство: Россия / ArtBox CompanyЖанр: Военный, ДрамаРежиссер: Константин ХабенскийАктеры: Константин Хабенский, Кристофер Ламберт, Фелисе Янкелль, Дайнюс Казлаускас, Сергей Годин, Роман Агеев, Гела Месхи, Михалина Ольшанска, Мария Кожевникова, Вольфганг Черны, Максимилиан ДиррПеревод: Не требуется (но отсутствует русский перевод на фрагменты немецкой речи)Субтитры: ФранцузскиеПродолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537BA084FD5A271C3F9706DE55C8FA2F2F1E7BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262644   (292778) от 16.11.2018
+
+На районе (2018) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вова и его лучший друг Киса зарабатывают деньги, занимаясь нелегальной деятельностью. Их жизнь проходит на волне веселья, в погоне за острыми ощущениями и кратковременными удовольствиями, пока очередной заказ не приводит их дружбу к главному испытанию, заставив каждого ответить на вопрос: кто ты?Производство: Россия / DK Entertainment, Марс Медиа ЭнтертейнментЖанр: ДрамаРежиссер: Ольга ЗуеваАктеры: Данила Козловский, Илья Маланин, Елена Оболенская, Ангелина Стречина, Ольга Зуева, Андрей Амшинский, Эдгар Гизатуллин, Александр Мизев, Владимир Хацкевич, Владимир АфанасьевПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97A434EACE39C30F708B151C2AF91C2BB27AF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262733   (292666) от 16.11.2018
+
+Собибор (2018) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История сопротивления человеческого духа бездушной машине уничтожения. В октябре 1943 года заключённые лагеря Собибор во главе с лейтенантом Красной армии Александром Печерским поднимают восстание — единственное успешное восстание в нацистском лагере смерти.Производство: Россия, ArtBox CompanyЖанр: Военный, ДрамаРежиссер: Константин ХабенскийАктеры: Константин Хабенский, Кристофер Ламберт, Фелисе Янкелль, Дайнюс Казлаускас, Сергей Годин, Роман Агеев, Гела Месхи, Михалина Ольшанска, Мария Кожевникова, Вольфганг Черны ...Перевод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D2AD8BE32DD8E7176322827417497D157A23CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262779   (292664) от 16.11.2018
 
 На районе (2018) WEB-DLRip [H.264/720p-LQ]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D13F098EFAD6EAA341174B55EE336B3CA424974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080097   (290154) от 06.12.2016
-
-Осенний лист (2012) HDTVRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга живет с сыном и мужем Виктором, который постоянно ей изменяет, пьянствует и избивает ее. После очередного скандала Ольга решает с ним развестись. Но когда женщина, набравшись храбрости, сообщает об этом супругу, он избивает Ольгу так, что она попадает в больницу. Вернувшись, Ольга узнает, что Виктор арестован. Оставшись одна, Ольга постепенно начинает жить (   Читать дальше...   )Производство: Россия, ВГТРКЖанр: МелодрамаРежиссер: Сергей ГрозновАктеры: Валерия Ланская, Кирилл Гребенщиков, Евгений Миллер, Алексей Панин, Екатерина Молоховская, Ирина Вальц, Михаил Клюшкин, Илья Бондарь, Екатерина Добровская, Константин Кожевников и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2412DAE36B567D3903F8D7818D0A22E964E3ED74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848368   (289842) от 08.12.2014
-
-Другой берег (2014) HDTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блистательная Ксения Конюхова, выпускница консерватории и МГИМО, отзывается от карьеры дипломата и возвращается в родной городок из-за болезни отца. Там ее жизнь круто изменяется: она начинает свой бизнес, выходит замуж и становится одной из самых преуспевающих женщин. У нее есть все: семья, верная подруга, большой дом, деньги. Ксении завидуют. Многим кажется, что (   Читать дальше...   )Жанр: драмаРежиссер: Владимир Басов мл., Ольга БасоваАктеры: Леонид Архангельский, Мария Аниканова, Егор Баринов, Андрей Казаков, Полина Филоненко, Анна Скиданова, Никита ПикаловФормат: MKVПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5328FFABE8DF2627C17BE61204CCA6F75BD06752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422496   (289696) от 13.12.2011
-
-Француз (2004) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он - потомственный аристократ, барон Поль деРуссо - жил в роскошном замке под Парижем и мечтал о настоящем искреннем чувстве. Увы, в его ситуации это было практически невозможно: женщины искали общества Поля исключительно благодаря его богатству и положению в обществе. Единственное спасение для романтической души барона - письма русской девушки Иры, которую нашел (   Читать дальше...   )Производство: РоссияЖанр: Комедия, МелодрамаРежиссер: Вера СторожеваАктеры: Тьери Монфре, Мария Голубкина, Игорь (Гарик) Сукачев, Екатерина Вуличенко, Станислав Дужников, Михаил Ефремов, Бернар Пассави, Нина Русланова, Сергей (Леонид) Попов, Валентина Березуцкая, Владимир Довжик, Наталья СмирноваПродолжительность: 1 серия: 00:48:50, 2 серия: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F23232E58430117DF600101E6884063087F966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263202   (289614) от 18.11.2018
-
-Ухо (2018) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои вызывают такси, чтобы выплеснуть накопившееся. Новая услуга мобильного психолога набирает популярность, по мере того как у пассажиров будущего растет чувство одиночества, тоски и бессмысленности жизни. С этим набором в машину к молчаливому водителю садятся «пациенты», один из которых признается: «Иногда я чувствую себя роботом. Но не чаще, чем обычные люди».Производство: РоссияЖанр: Короткометражный, фантастикаРежиссер: Петр СкворцовАктеры: Юлия Ауг, Максим Виторган, Марина ВасильеваСубтитры: ОтсутствуютПродолжительность: 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A88DA3EA6EDEBD01AC338F7FC317CBE3694B8A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

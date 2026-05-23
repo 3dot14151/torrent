@@ -1,3 +1,107 @@
+###  Публикация: 1614752   (1038298) от 23.02.2023
+
+JUSTICE SUCKS: Tactical Vacuum Action (2022) [Ru/Multi] (1.1.01-615-aa61ab1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+JUSTICE SUCKS: Tactical Vacuum Action - юмористическое приключение, направленное на экшн и хакерство. История начинается после окончания Roombo: First Blood. На семью главного героя нападает карательный отряд FamilyCorp. Протагониста засасывает в телевизор. Находясь перед лицом киберсмерти сознание героя попадает в так называемое телеизмерение. В результате этого (   Читать дальше...   )Тип издания: LicenseРазработчик: Samurai PunkЖанр: Экшены, Приключeния, Инди, АркадыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD501E1477E40E538920C7E47432EFE1BB23CF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315320   (1037865) от 20.01.2021
+
+The Long Dark (2017) [Ru/Multi] (1.93) Repack xatab [Episode 1-3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма. Главной вашей задачей будет выжить как можно дольше, чтобы выяснить что же произошло с миром и как он изменился? Исследуйте местность, собирайте ресурсы и изучайте (   Читать дальше...   )Тип издания: RepackРазработчик: Hinterland StudioЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE44E314CB3A2772DB506497522DECC39C7DCB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615361   (1037768) от 25.02.2023
+
+Samsara Room (2020) [Ru/Multi] (1.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Samsara Room относится к тем играм, где геймеру предлагают найти способ покинуть помещение. В этом коротком квесте с видом от первого лица герой странным образом попадает внутрь кубических покоев. Кроме них в игре есть и другие комнаты, включая секретную локацию. В них размещены зеркала, напольные часы, стол со стационарным телефоном и разные странные вещи.Тип издания: LicenseРазработчик: Rusty LakeЖанр: Adventure, Point-and-click, PuzzleЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6893E1126FAF20A8DFB088589A393B3EA389795C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442161   (1036778) от 24.01.2021
+
+Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пещеры Капу (2006) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Нэнси Дрю отправляется на Гавайи! В качестве младшего научного сотрудника группы доктора Квигли Ким наша героиня приступает к увлекательной исследовательской работе. А местные жители все настойчивее твердят об ужасном чудовище пещеры Капу, которого разбудили неосторожные ученые. Страсти накаляются, и Нэнси придется в полной мере задействовать свой детективный талант, (   Читать дальше...   )Тип издания: LicenseРазработчик: Her InteractiveЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC6DB7FC7EF23CABC54A6CA9635E77BFE7002FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442387   (1036486) от 25.01.2021
 
 Time Commando (1996) [Multi] (1.0) License GOG
@@ -6,7 +110,7 @@ Time Commando (1996) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Fantastic Kitty Rue (2022) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Puzzle Agent (2010) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ File Destined (2023) [Ru/Multi] (1.0.382) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ FATAL FRAME / PROJECT ZERO: Mask of the Lunar Eclipse (2023) [Multi] (Build 1054
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Riddle of the Sphinx: The Awakening / Загадка Сфинкса: Пробу�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Uncertain: Last Quiet Day (2016) [Ru/Multi] (1.0.1.004) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Call of the Sea (2020) [Ru/Multi] (1.1.105) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Late Shift (2017) [Ru/Multi] (20200107) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Room 4: Old Sins (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Her Story (2015) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Rough Justice: '84 (2023) [Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Don't Starve (2013) [Ru/En] (429404/dlc) Repack West4it
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Outcast - Second Contact (2017) [Multi] (Patch 2 Hotfix) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Broken Pieces (2022) [Ru/Multi] (1.3.1 Build 10795835) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD1A82B490C1A6755FEE4A90ED4F4A49E1AB27C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448881   (1030340) от 19.02.2021
-
-The Signifier (2020) [Ru/Multi] (1.04) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в The Signifier – необычное кибернуарное приключение от первого лица, где детективная часть тесно переплетена с экспериментальной психологией и исследованиями искусственного интеллекта. Ваш герой – Фредерик Рассел, психолог, эксперт в области ИИ и создатель Dreamwalker, экспериментального прибора для глубокого сканирования мозга, который помогает (   Читать дальше...   )Тип издания: RepackРазработчик: PlaymestudioЖанр: Adventure (Cybernoir, Detective), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6B471D303090BFE5027BE5BF9324305CBA4481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449375   (1029839) от 21.02.2021
-
-The Shore (2021) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029839.jpg" />
-</div>
-
-
-###  Подробнее
-
-THE SHORE — это игра о тайне неизвестного, действие которой происходит на запретном острове, полном ужасов. Основанный на произведениях Г. Ф. Лавкрафта (H. P. Lovecraft), в рассказе представлены многие из его самых известных творений и многое другое. Игроки увидят мир глазами Эндрю (Andrew), отца, ищущего свою потерянную дочь. Игроки испытают THE SHORE через захватывающий, (   Читать дальше...   )Тип издания: RepackРазработчик: Ares DragonisЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B410F682990B9FAB99803DB5F9FA468E494C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606467   (1029764) от 30.03.2023
-
-A Space for the Unbound (2023) [Multi] (1.0.30.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029764.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Space For The Unbound – игра, выполненная в пиксель-арт стиле. Сюжет переносит пользователя в Индонезию 90-х годов. Атма и Райя дружат с детства, и проходят последний год обучения в школе. В небольшом городке начинают происходить странные события, указывающие на сверхъестественное вмешательство. Главные герои отправляются на поиски ответов и обнаруживают, что само (   Читать дальше...   )Тип издания: LicenseРазработчик: MojikenЖанр: ПриключениеЯзык субтитров: Английский, Португальский, Китайский, Японский и другиеЯзык интерфейса: Английский, Португальский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27A95CD6A2C2DF92729C99D2E96555773739032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449858   (1029425) от 23.02.2021
-
-Find Yourself (2021) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра "Find Yourself" — психологический хоррор от первого лица в замкнутом пространстве. Исследуйте по-настоящему пугающие вагоны метро и узнайте, с какими страхами придется столкнуться главному герою.Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E0B24BFDE1916B0A2138DF2D637A783EBF6293
 ```
 
 https://mybot314.ru/tekegram_catalog/

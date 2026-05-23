@@ -1,33 +1,3 @@
-###  Публикация: 1072017   (351721) от 13.11.2016
-
-Gregorian - Live! Masters of Chant: Final Chapter Tour (2016) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gregorian представляет последнюю главу своего прощального тура "Masters Of Chant" в заключительном концерте "Final Chapter".
-То, что началось для продюсера Фрэнка Петерсона и группы в 1999 году, стремительно превратилось в монументальное победное шествие: более 10 миллионов проданных альбомов, а также множество золотых и платиновых наград, делают (   Читать дальше...   )01. Masters of chant
-02. Still haven't found what i'm looking for / only you
-03. Stay
-04. Join me(   Читать дальше...   )Производство: Ear musicЖанр: New Age, Enigmatic, ChoralРежиссер: Мартин МюллерАктеры: GregorianПеревод: ОтсутствуетПродолжительность: 02:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E87DF3E1A9C63E956EE9DBB4AAD184C5C315042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724562   (350234) от 20.11.2013
 
 The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
@@ -36,7 +6,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -65,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_344866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -91,7 +61,7 @@ Suicidal Angels - Division Of Blood (Bonus DVD) (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +90,7 @@ Led Zeppelin - Celebration Day(2007)  DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -146,7 +116,7 @@ Mike Oldfield - Incantations​ [1978 (переиздание 2011) г., Progres
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_341028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -172,7 +142,7 @@ Clan Of Xymox "Visible" (2008) 2хDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -201,7 +171,7 @@ The Beatles Anthology [Episode 1-4, русская озвучка М.Жолоб�
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +197,7 @@ Sodom - Live Depravity (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -256,7 +226,7 @@ Venom - Live In London 1985 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -285,7 +255,7 @@ Overkill - Wrecking Everything (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -314,7 +284,7 @@ Riverdance - The Show 2002 (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -342,7 +312,7 @@ Motley Crue - The End.Live in Los Angeles.2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +342,7 @@ Rainbow - Memories in Rock: Live In Germany (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_314972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +423,7 @@ Overkill - The Grinding Wheel (Bonus DVD) (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +452,7 @@ Andrea Bocelli (Андреа Бочелли) & David Foster (Дэвид Фост
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +482,7 @@ Destruction - A Savage Symphony - The History Of Annihilation (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +511,7 @@ Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +537,7 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +563,7 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +592,7 @@ Rob Orlemans & Half Past Midnight - Open The Cage (2007) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -651,7 +621,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -677,7 +647,7 @@ Cesaria Evora - Live D'amor (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -706,7 +676,7 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -720,6 +690,32 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184364   (301295) от 17.11.2017
+
+Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

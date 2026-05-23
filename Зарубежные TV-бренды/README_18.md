@@ -1,3 +1,56 @@
+###  Публикация: 132122   (848569) от 26.03.2014
+
+BBC: Как искусство сотворило мир / How Art Made the World (2005) DVDRip (серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый фильм ВВС предлагает Вам совершишь путешествие из глубины веков через все пять континентов, чтобы проследить эволюцию искусства человеческой цивилизации.
+Вы увидите насколько стремительным было развитие искусства на ранних стадиях становления нашей цивилизации, как с течением веков оно обретало различные течения и направления, как заняло свое место в современном (   Читать дальше...   )Производство: США, Великобритания /  British Broadcasting Corporation (BBC), KCETЖанр: Документальный, Научно-популярный, TV минисериалРежиссер: Робин Дэшвуд, Марк Хеджко, Бен МакФерсон...Перевод: ДублированныйПродолжительность: 04:15:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111391   (848518) от 05.03.2017
+
+Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Зима пришла. Маленькие и большие животные, независимо от готовности, должны выстоять в это суровое и жестокое время года. В то время, как одни всеми силами цепляются за жизнь, другие находят возможность пользоваться преимуществами на льду. В этой передаче вы увидите, как животные любыми способами борются за выживание в холодный период.Телекомпания: США, National Geographic ChannelsЖанр: Документальный, фаунаРежиссер: Jessica ConnellПеревод: Одноголосый закадровый, профессиональный, переведено и озвучено на студии Велес, текст читает Дмитрий СтрелковПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4930548404DF6816C8B21B39DF972F3B3ABE476C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111406   (848367) от 05.03.2017
 
 Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (2015) HDTVRip [H.264/720p] (серии 1-3 из 3)
@@ -6,7 +59,7 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ BBC. Смартфоны: темная сторона / Smartphones: The Dark Sid
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_847772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Discovery: Будущее с Джеймсом Вудсом. Заменяя Бо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Tехнологии, которые нас меняют /  DSKNECTD: Is Technolo
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +215,7 @@ History Channel. Америка. История Соединенных Штат�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +241,7 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +267,7 @@ BBC. Европа изнутри: десять лет смятения (деся
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +293,7 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +345,7 @@ BBC: Замерзшая планета (Застывшая планета) / Fro
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +371,7 @@ Tехнологии, которые нас меняют / DSKNECTD: Is Technolog
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +475,7 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +501,7 @@ NG: Марс: Один день на красной планете / Mars: One D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +527,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +554,7 @@ National Geographic. Охотники на питонов. Нашествие з
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +632,7 @@ Discovery: Железная дорога Аляски  / Railroad Alaska (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +658,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +669,6 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C1C4C3A460033CEBEA6352AB1909F17994F3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377326   (840741) от 28.04.2020
-
-Discovery: Золотая лихорадка / Gold Rush (2018) HDTV  [H.264/1080p-LQ] (сезон 9, серии 1-22 из 22, без спецвыпусков)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_840741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живя вдали от цивилизации на Аляске, предприимчивые и всем знакомые золотоискатели продолжают поиски драгоценного металла. С новыми работниками и машинами, новыми участками и способами добычи золота ставки повышаются, как никогда прежде. Но принесёт ли больший риск большую прибыль? У команд есть огромные драги, а значит, можно поставить перед собой самые амбициозные (   Читать дальше...   )Производство: США, Raw Television, Discovery ChannelЖанр: Документальный, природа, география, путешествия, приключения, исследованиеРежиссер: Кристофер ГолдингПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 22 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D391BABCCC44C9AD81161AE259C8AE6FA1DECA00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379196   (840688) от 28.04.2020
-
-Фатальный пожар на Титанике / Titanic's: Fatal Fire / Titanic: The New Evidence (2017) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это был самый большой корабль, когда-либо построенный людьми. Все были уверены, что он просто непотопляем, и когда лайнер "Титаник" затонул во время своего первого же плавания вместе с 1500 пассажирами на борту, это событие вызвало шок во всём мире и послужило поводом для споров о причинах его гибели, которые продолжаются и сегодня.Производство: Великобритания, Канада / Blink Films, Discovery Channel Canada, Smithsonian ChannelЖанр: ДокументальныйРежиссер: Sam Berrigan TaplinПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427A9970173634058C18BCFD149531DFEDACB24A
 ```
 
 https://mybot314.ru/tekegram_catalog/

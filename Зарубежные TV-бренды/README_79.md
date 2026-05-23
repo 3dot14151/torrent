@@ -1,3 +1,55 @@
+###  Публикация: 1054247   (481878) от 25.09.2016
+
+National Geographic. Зона риска. Фестиваль байкеров в Дайтона-Бич / Tthill Zone. Daytona Biker Rally (2007) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дайтона-Бич штата Флорида - излюбленное место туристов со всего мира. Но они почти никогда не заглядывают на главную улицу города. Мэйн-стрит почти безлюдна 11.5 месяцев в году. Но в самом начале весны, в Дайтону в один день, прибудут почти полмиллиона мотоциклистов. И тихий городок превратится в место веселого пикника. Сотни тысяч мотоциклов. Сотни тысяч мотоциклистов. (   Читать дальше...   )Телекомпания: США, Big Fish Entertainment, National Geographic ChannelЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E676BE60D22F3883252D9E02985AC20858729C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055472   (481876) от 25.09.2016
+
+NG: Лесное царство / Kingdom of the Forest (2010) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лес наполнен красотой, покоем и умиротворением. Но под внешним спокойствием скрывается иная действительность. Каждый лесной житель, от самого высокого дерева и до крошечного муравья, борется за пищу, свет, жизненное пространство и право на размножение. Найти союзника здесь непросто. Под пологом из листьев порой разворачиваются жестокие схватки:-соблазны, опасности, (   Читать дальше...   )Телекомпания: Германия, National Geographic,, Nautilus GmbH Production, NDR Naturfilm, Parphenon Entertainment LtdЖанр: ДокументальныйПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8BDBE0675834F5AE0F11EB056B574C5561B280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159660   (481861) от 21.08.2017
 
 Animal Planet: Суперзмея-людоед / Man-Eating Super Snake (2014) HDTV [H.264/1080i-LQ]
@@ -6,7 +58,7 @@ Animal Planet: Суперзмея-людоед / Man-Eating Super Snake (2014) H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: История города пиратов / История города п�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery: Трой / Troy (2014) HDTVRip (1 сезон, 1-5 серия из 6)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery: Трой / Troy (2015) HDTVRip (2 сезон, 1-4 серия из 4)
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ BBC. Секс по интернету. Безопасно? / Websex: What's the 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ DV: Ада Лавлейс: первая леди программировани�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC: Невероятные приключения температуры / From
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NG: Фараоны, которые построили Египет [2 серии
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ NGW: Царство больших акул / Big Sharks Rule (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ NGW: Секретный кубинский риф / Cuba's Secret Reef (2015) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ NGW: Дикая Франция с Рэем Мирсом / Wild France with Ray M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ NG: Осушение океана: Вторая мировая война / Drai
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ History Channel: Великая Марсианская война 1913-1917 / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ DV: Радость победы / The Joy of Winning (2018) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +670,6 @@ DV: Радость победы / The Joy of Winning (2018) IPTVRip [H.264]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4444B1FDCB09DB8A22E2C8EAE3AFCF2069AF18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405585   (476664) от 02.09.2020
-
-Деррен Браун: Толчок / Derren Brown: The Push (2018) WEB-DLRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологический иллюзионист Деррен Браун дебютирует в США с новаторским фильмом The Push. В The Push Браун раскрывает психологические секреты послушания и социального согласия. Он мастерски раскрывает ужасную истину о том, что когда мы сталкиваемся с властью, наш естественный инстинкт непоколебимо подчиняется без вопросов - до такой степени, что даже самые морально (   Читать дальше...   )Телекомпания: США, Vaudeville Productions, NetflixЖанр: ДокументальныйПеревод: Двуголосый профессиональныйПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8740E7975EFCA964D47C473CC204350F7664E333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160296   (476173) от 24.08.2017
-
-NGW: Удивительные слоны (Душа гиганта) / Soul of the Elephant (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слоны - патриархи Африки. Сколько еще они проживут на свете бок о бок с людьми? Чтобы ответить на этот вопрос, пара исследователей живет рядом со слонами. Вместе со зрителями они заглядывают в душу гиганта.Производство: Terra Mater Factual Studios, Thirteen Productions, Wildlife Film ProductionsЖанр: Документальный, фаунаРежиссер: Дерек ЖуберПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CE90DE22D95CF0C098034F8C316086749863C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

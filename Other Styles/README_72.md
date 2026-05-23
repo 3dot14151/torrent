@@ -1,3 +1,227 @@
+###  Публикация: 1290423   (678198) от 20.03.2019
+
+VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquility Spa Universe - Physical Therapy 3:27
+02. Meditation Music Zone - Anti Stress 3:28
+03. Relaxation Meditation Songs Divine - Relief From Stress 3:30
+04. Tranquility Spa Universe - Break Of The Day 3:34(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BDFC6F0EF49BCE5E852BF12F4BAD77305D7640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290471   (677985) от 20.03.2019
+
+Acoustic Sound Orchestra - Candle In The Wind (1997) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. How Deep Is Your Love (3:37)
+02. Little Snowman (2:47)
+03. Spiel Mir Das Lied Vom Tod (3:29)
+04. Claire (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Easy ListeningПродолжительность: 02:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021BFDFFED30A3B559D47B3FD99DC00C7FBB6226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226973   (677425) от 18.06.2014
+
+John Adorney - 8 albums (1998 - 2014) [MP3|320 kbps]<New age, Relax, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+(5:13) 01. In Spiritus
+(5:12) 02. Never Alone
+(5:39) 03. The Wonder Well
+(4:07) 04. At Home
+(4:18) 05. Window to the West
+(4:23) 06. If a Rose Could Speak
+(5:34) 07. Unbounded
+(3:50) 08. The Cup and the Veil
+(4:17) 09. The Meeting Place
+(4:53) 10. Heartstrings(   Читать дальше...   )Жанр: New age, Relax, AmbientПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9E0EC363935FBBC66BA0E17687504D9664D6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508558   (677200) от 11.06.2012
+
+Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Folk, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Harvestmesse (05:21)
+02. Trinity (02:53)
+03. March To Loch Barren (02:38)
+04. Pure Space (05:02)
+05. Amongst The Heather (06:06)
+06. Dig (04:24)
+07. Don't Play With Water (03:42)
+08. Dead Flowers (04:50)
+09. Pure Phase (03:50)
+10. Reflections (03:47)(   Читать дальше...   )2005-2010Жанр: Drone Ambient, Psychedelic Folk, ExperimentalПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508605   (677062) от 11.06.2012
+
+Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. A Grave Is A Grim Horse (04:02)
+02. Clothes Of Sand (02:30)
+03. The Acre (03:28)
+04. Willow Tree (03:42)
+05. Valley Of The Moon (06:27)
+06. The Spider Song (03:25)
+07. Looking For Dry Land (06:42)
+08. Western Son (04:46)
+09. Brigit's Cross (04:12)
+10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507629   (676899) от 11.06.2012
+
+Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Malachite (06:34)
+02. Pneumonic (05:34)
+03. Lonesome (08:00)
+04. Oran Mor (05:17)
+05. Safety In Numbers (07:53)
+06. Everything All Of The Time (09:38)
+07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029876   (676668) от 29.06.2016
+
+The Allegorist - Botanical Utopia (2016) [MP3|320 Kbps] <Electronic, Nu Disco, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Floating Mantra 03:46
+02. Ragged Traveller 07:14
+03. Interstellar Crosswalks 02:40
+04. Plastic Millenium 03:54(   Читать дальше...   )Жанр: Electronic, Nu Disco, AmbientПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6F7153C7BBD69F0CF53133EAE92C63FD9CF267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290663   (676583) от 21.03.2019
 
 Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack>
@@ -6,7 +230,7 @@ Victor Reyes - Down A Dark Hall (2018) [FLAC|Lossless|tracks + .cue] <Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +259,7 @@ Jeff Beal - House Of Cards - Season 6: Music From The Netflix Original Series (2
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +288,7 @@ VA - Вечерняя Коллекция (Звуки природы) (2010) [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -97,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -123,7 +347,7 @@ NeillyRich - Here Now Forever (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -152,7 +376,7 @@ J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +405,7 @@ Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +434,7 @@ Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -239,7 +463,7 @@ VA - Kamasutra Divine: Harmonious Lessons for Love (2013) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +492,7 @@ Holly Benton - Road Trip (2017) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +521,7 @@ VA - Music to Help You Sleep: Deep Restful Sleeping (2017) [MP3|320 Kbps] <Downt
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -326,7 +550,7 @@ VA - Thai Massage Lounge: Asian Zen Spa Relaxation (2017) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -355,7 +579,7 @@ VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -384,7 +608,7 @@ The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -413,7 +637,7 @@ Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -442,7 +666,7 @@ Louis Landon - Ebb and Flow - Solo Piano (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -471,7 +695,7 @@ Aetos - Aetos (2016) [FLAC|tracks|WEB-DL]<Post-Metal, Post-Rock, Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +724,7 @@ Royal Philharmonic Orchestra London - Rock Dreams (Unknown) Box Set, 4CD, Compil
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -529,7 +753,7 @@ Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrum
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -548,216 +772,6 @@ Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrum
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509646   (672078) от 13.06.2012
-
-John Stanford - Deep Space (1999) [FLAC|Lossless]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  The Watchers  (9:25) 
-2.  Deep Space  (8:09) 
-3.  Aurora  (9:58) 
-4.  Sea Of Tranquility  (7:42) 
-5.  Far Centaurus  (10:49) 
-6.  The Edge  (8:47) 
-
-Послушать:Жанр: New Age, AmbientПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD125067A384F6235260B6EA11D6411D846BF75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028799   (671839) от 01.07.2016
-
-VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291120   (670695) от 24.03.2019
-
-Todd Snider - Cash Cabin Sessions, Vol. 3 (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Working on a Song (03:08)
-02. Talking Reality Television Blues (02:34)
-03. Like a Force of Nature (feat. Jason Isbell) (03:54)
-04. Just Like Overnight (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C8F87F345367F778ED33759A6A45DDE2F97BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510253   (670651) от 14.06.2012
-
-Shirley Rumsey - Music of the Renaissance - 2 альбома (1993-1994) [FLAC|Lossless]<Classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacques Arcadelt - La pastorella mia [03:03]
-02. Filippo Azzaiolo - Ti partir cor mio caro [01:44]
-03. Francesco da Milano - Fantasia 16 [01:10]
-04. Marchetto Cara - Mal un muta per effecto [02:24]
-05. Anonimo - Perla mya cara [02:32]
-06. Francesco da Milano - Fantasia 31 [01:17]
-07. Joan Ambrosio Dalza - Piva [02:04]
-08. Antonio Caprioli - Quella Bella E Biancha Mano [02:44]
-09. Vincenzo Capirola - Balletto [01:59]
-10. Adrian Willaert - Vecchie letrose non valete niente [00:59](   Читать дальше...   )1993-1994Жанр: ClassicalПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291301   (670575) от 24.03.2019
-
-Balaklava Blues - Fly (2019) [MP3|320 Kbps] <NewAge & Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Be Like This
-02 – Green
-03 – Alive
-04 – Boom Boom(   Читать дальше...   )Жанр: NewAge & MeditativeПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755A0329E5807C0D227101D15F830D0792AF1676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291131   (670490) от 24.03.2019
-
-Royal Philharmonic Orchestra - Rock Dreams 2 (1994) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7E8CADDA5DC99C075FC12585343C8274096BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030793   (670331) от 02.07.2016
-
-Jamie Llewellyn - Anreise mit dem Buddha: Meditationsmusik (2015) [FLAC|Lossless|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weisheit und Ruhe [00:02:41]
-02. Das Geheimnis Wasserfall [00:06:38]
-03. Beobachten meine Hande [00:02:58]
-04. Unseren geheimen Ort [00:04:56](   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F75CE4318E47131379924528E2B5F3C3149B7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1045707   (557490) от 24.08.2016
+
+Conclusion (2016) [Ru/En] (1.0.2) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нил - белая ворона в своём окружении. Его особенности чинят ему всю жизнь препятствия и проблемы. И главные из них на повестке дня - он оказался неизвестно где и непонятно как. Но почему эта дорога рядом с ним кажется такой знакомой? Дать ответ на этот и все остальные вопросы сможете только Вы.
+Conclusion - это адвенчура с элементами детектива. Вам придётся распутывать (   Читать дальше...   )Тип издания: LicenseРазработчик: TomadeiraЖанр: Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9ACE434562BFC5E9C92DC62C1163A31C87FD43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924690   (557269) от 04.08.2015
+
+Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Давно известно: только настоящие мужчины могут быстро расправиться с врагом, уничтожить секретное оружие, спасти множество невинных душ и, конечно, выиграть войну! И вот настоящие мужчины, такие как, боец Степан и его друг товарищ Пушкин, капитан танковой бригады, вступают в схватку с фашистами! Бескомпромиссная борьба со злом в лице генерала фон Шпрота просто не (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Mirage SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский , АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2960F2019029BF03ECE8A2163913332EF110C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556853   (556854) от 11.06.2022
+
+POSTAL: Brain Damaged (2022) [Multi] (1.0 Build 8904334) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+POSTAL: Brain Damaged — это новая интерпретация культовой серии от Running With Scissors с ретро графикой и динамичным современным геймплеем. Совершите дикую прогулку по запутанной стране чудес, заключенной в безумном разуме Чувака.Тип издания: RepackРазработчик: Hyperstrange, CreativeForge GamesЖанр: Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BB49ADA80FA9E97730280EA8BD81887A85DD61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087737   (556483) от 14.07.2018
+
+SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что вы врываетесь в наполненный врагами зал... через стеклянный потолок. Повсюду осколки стекла, враги стреляют в вас. Пока вы падаете, все движется быстро, но после приземления время замедляется. При каждом вашем движении время снова ускоряется. Со всех сторон в вас летят пули, и вам нужно стильно выбраться из этой ситуации. Сами авторы проекта называют (   Читать дальше...   )Тип издания: RepackРазработчик: SuperHot TeamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD6F736E98E0A4BA1104AC60C14ADD56C1BFF77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125554   (556480) от 14.07.2018
 
 The Signal From Tölva (2017) [En] (1.0.65) License GOG
@@ -6,7 +111,7 @@ The Signal From Tölva (2017) [En] (1.0.65) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Void Bastards (2019) [Ru/Multi] (v1.0) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Day: 40 (2019) [Multi] (1.0/upd6) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ ZOMBI (2015) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack Dok2 [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Call of Juarez: The Cartel (2011) [Ru/Multi] (1.1.12) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +320,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +346,7 @@ Phantaruk (2016) [Ru/Multi] (1.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +372,7 @@ Before Nightfall (2018) [Ru/En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ Frontlines: Fuel of War (2008) [Ru/En] (1.3.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +424,7 @@ Hotel 19-95 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ Redneck Rampage Collection (1997) [En] (1.01/1.0/1.01/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +476,7 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +502,7 @@ Starship Troopers / Звездный десант [Ru] (RePack) 2005 | PUNISHER
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +528,7 @@ Ziggurat (2014) [Ru/Multi] (31.07.2017) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +554,7 @@ Battlezone: Combat Commander (2018) [En/Ge/Fr] (2.0.180) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +580,7 @@ Inner Chains (2017) [Ru/Multi] (2.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +606,7 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +632,7 @@ Star Wars: Republic Commando (2005) [Ru/En] (1.0) Rip R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +658,7 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +669,6 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35E5C339D448CEEAB4A39B02FE68DC18FA1FD1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926279   (534673) от 09.08.2015
-
-Star Wars: Battlefront 2 (2005) [En] (1.1) Repack R.G. Механики
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534673.jpg" />
-</div>
-
-
-###  Подробнее
-
-С абсолютно новыми космическими битвами, играемыми персонажами-джедаями и более, чем с 16 новыми полями боя, игра Star Wars Battlefront II предоставляет вам множество возможностей вести бой в классической вселенной Звездных войн так, как вы захотите.Тип издания: RepackРазработчик: Pandemic StudiosЖанр: Action (Shooter) / 3D / 1st Person / 3rd PersonЯзык озвучки: Русский (частично видеоролики), АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E40C94E13B2D022B45CA5AA0987B43C5D28D4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155597   (533032) от 03.08.2017
-
-Slime Rancher (2017) [Ru/Multi] (1.0.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slime Rancher – это история Беатрис Лебо, молодой и решительной владелицы ранчо, которая отправляется за тысячу световых лет от Земли на «Далекий, далекий предел», где будет зарабатывать себе на жизнь, разводя слизней.Тип издания: LicenseРазработчик: Monomi ParkЖанр: Adventure, Action, 3DЯзык субтитров: Русский, Английский  и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFD4CE5DFE785FAAFA97D77665814CB08B38B55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153165   (532887) от 03.08.2017
-
-Titanfall 2 (2016) [Ru] (2.0.7.0) Rip Other s [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времени битвы при Деметре Ополчение значительно разрослось и перехватило инициативу, основав опорный пункт на планете Гармония. Организованные и вооруженные новейшим оружием, его войска представляют свободные народы Фронтира, настроенные против IMC. В Titanfall™ 2, эпическом продолжении задавшей новые каноны жанра игры, ваши лучшие друзья — это большие пушки.Тип издания: RipРазработчик: Respawn EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757F58769E6CAF0536B8BA97395B61A121D7E4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312357   (530348) от 05.07.2019
-
-Dusk (2018) [En] (1.0) License SKIDROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dusk вновь вводит вас в мир, в котором нужно овладеть навыками резни и кровопролития... если вы хотите дожить до рассвета. Вдохновлённый такими играми как Doom, Quake, Blood, Heretic, Hexen, Half-Life, Redneck Rampage и другими любимыми играми из 90-х, со звуковым сопровождением от великолепного музыканта в жанре "metal" Эндрю Хулшулта (Andrew Hulshult).Тип издания: LicenseРазработчик: David SzymanskiЖанр: Action, FPS, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1943D5F092CEA1B4B2E0AB1157A3596974945395
 ```
 
 https://mybot314.ru/tekegram_catalog/

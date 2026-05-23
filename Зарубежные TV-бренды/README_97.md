@@ -1,3 +1,55 @@
+###  Публикация: 1199369   (306731) от 09.11.2018
+
+History Channel: Скрытые следы / Hidden Traces (2014-2016) HDTVRip [H.264/720p] (серии 2;4-6 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новые археологические находки, интервью с экспертами, компьютерные эффекты и 3D-реконструкция переплетаются в этом сериале, который расскажет о самых символичных эпизодах войн. Каждое поле битвы становится открытой книгой, раскрывающей неожиданные элементы и детали, открывающие новый взгляд на военные конфликты и их контекст.Производство: Франция, Docland Yard, Gedeon ProgrammesЖанр: Документальный, историяРежиссер: Марианна Крамер, Гуйлен Депардье, Изабель ФукьерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A103374B8524BC1FD52F93FC85E2D02D83DB1073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077476   (306324) от 28.11.2016
+
+Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Автомобильная дорога Р504 «Колыма» - действующая автодорога федерального значения между Якутском и Магаданом протяжённостью 2032 км, из которых 1197 км проложено по территории Республики Саха (Якутия), 835 — по Магаданской области. Дорога имеет также историческое название - Колымская трасса. В настоящее время «Колыма» является одной из ключевых автодорог Дальнего (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Телепередача, ДокументальныйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C40449B658969DC689DE3FA90DEE107CF02E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261172   (305345) от 10.11.2018
 
 NG. Скрытые тайны городов: Баку / Hidden Cities Revealed: Baku (2017) DVBRip
@@ -6,7 +58,7 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ NG: Из истории Второй мировой войны. Гражданс
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ NGW: Дикая природа Перу: арена боев – Анды. До�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ NGW. Голый землекоп: Самый странный супергеро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ NG. Космический шаттл: триумф и трагедия / The Sp
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Discovery: Шерпа / Sherpa (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NG: Широкий взгляд с Кэлом Пенном / The Big Picture wit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4B8464B683A7F85DE3B57243B16A12F46A6C42A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334596   (294518) от 29.10.2019
-
-Деррен Браун: Чудеса / Derren Brown: Miracle (2016) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автобиографический фильм расскажет историю знаменитого иллюзиониста и интеллектуала. В своем кругу его давно считают королем человеческих манипуляций. Его взгляд пробирает насквозь. Кажется, что он может пробраться в самые закутки души, туда, куда вход посторонним запрещен, но его это не останавливает. Люди в его руках всего лишь марионетки, которыми он управляет (   Читать дальше...   )Производство: США, Vaudeville Productions, NetflixЖанр: ДокументальныйРежиссер: Джулия Ноулз, Джон Л. СпенсерПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 01:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C907C99669B5680AC40AC35BD7BB102549FD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334826   (292681) от 30.10.2019
-
-Восстание дронов / Rise of the Drones (2013) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>PBS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дроны, эти летающие роботы, всё быстрее и масштабнее заменяют пилотируемые самолеты. Они революционно преобразуют военные действия, позволяя нам видеть и уничтожать цели через полмира. Они сделали фантастику реальностью. Результат тесного сотрудничества учёных, программистов и пилотов открывает нам инновации, которые ведут нас в будущее, а сами дроны становятся всё (   Читать дальше...   )Производство: США, Pangloss Films, A NOVA ProductionЖанр: Документальный, военный, авиацияРежиссер: Питер ЙостПеревод: Двуголосый закадровый, профессиональный (Селена Интернешнл)Субтитры: АнглийскиеПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04582972D24AB35AC7488D561500DFF37D622EBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

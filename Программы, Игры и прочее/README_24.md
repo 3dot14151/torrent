@@ -1,3 +1,85 @@
+###  Публикация: 1444582   (1034409) от 02.02.2021
+
+Film Maker v2.9.1.5 Pro [En] – Видеоредактор, фото и Эффекты
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Film Maker - лучший редактор видео и бесплатный видеомейкер, созданный как для профессионалов, так и для любителей. У нас есть самые полезные функции редактирования видео, которые есть у других лучших профессиональных видеоредакторов и приложений для создания слайдшоу, но их удобнее редактировать и профессионально отображать.
+
+Создавайте великие голливудские фильмы, (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 27 января 2021 гРазработчик: cerdillacПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE6C17E1689912FE7B433722E3CB9A90F1A55032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444511   (1034371) от 02.02.2021
+
+Paranoia: Родительский контроль v1.0.7.1 Premium [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сколько времени Ваш ребёнок готов играть? Бесконечно! Это полезно? Конечно нет, мы понимаем какую это даёт нагрузку на его зрение, да и не только. Возьмите под контроль игровое время Вашего ребёнка.Тип издания: Пиратка (Premium)Релиз состоялся: 21 февраля 2018 г.Разработчик: LocmanMobileПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E405928A3138DADDD0ED6A4645384EE118ED8120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444850   (1034191) от 03.02.2021
+
+Engineering Tools : Mechanical v206 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это приложение для машиностроения - это универсальное приложение для всех нужд машиностроения, оно содержит различные важные инструменты для машиностроения.
+
+Цель этого программного обеспечения - предоставить студентам и специалистам инженерных специальностей инженерные решения.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 4 ноября 2020 г.Разработчик: TOLANПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FE0419DA9D2AD0D913CC1DC961177BEFDD4128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444937   (1034142) от 03.02.2021
 
 PC Remote v7.4.2 Vip [Ru/Multi]
@@ -6,7 +88,7 @@ PC Remote v7.4.2 Vip [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +117,7 @@ Floor Plan Creator v3.6.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +143,7 @@ Kingdom Rush Vengeance v1.9.10 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +169,7 @@ AudioBooks. Аудиокниги бесплатно v4.0.8 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +198,7 @@ Battle of Warships Морской бой v1.72.12 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -171,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -197,7 +279,7 @@ NUM - No UI Movies v1.0.60 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +305,7 @@ Sun Locator Pro v4.20 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -252,7 +334,7 @@ Olympia Pro v21.2.1 [En] - Gym Workout & Fitness Trainer
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -280,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -306,7 +388,7 @@ Avito автопоиск с оповещениями v1.15.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -332,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +442,7 @@ VLC for Android 3.5.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -387,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +495,7 @@ Call Blocker / Блокировщик звонков v4.5.9 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -439,7 +521,7 @@ Very Little Nightmares v1.2.0 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +599,7 @@ Bubble Shooter Royal Pop / Шарики Игры Королевские v2.3.2.2
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +625,7 @@ AirReceiver v4.9.5 FTV/MITV [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,7 +677,7 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,86 +688,6 @@ Resize Me! v2.01.2 [Ru/Multi] - изменение размера изображ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B2124C4744DFB67265B49CA4E7CFBB450FEF210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447367   (1031835) от 13.02.2021
-
-SketchAR v4.57 [Ru/Multi] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Развивай свою креативность с помощью уникального интерактивного подхода AR-рисования, редактирования фотографий и геймификации. Мы объединили дополненную реальность и искусственный интеллект, чтобы ускорить процесс обучения и сделать его более увлекательным.
-
-SKETCHAR это новая ступень развития для креаторов и тех, кто всегда хотел что-то создать, но не мог.Тип издания: Пиратка (получен PRO, удалена реклама и аналитика)Релиз состоялся: 05.02.2021Разработчик: SKETCHARПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BF9BF091BC2C5A6126065AF2E4F26060ADC747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447626   (1031570) от 14.02.2021
-
-Piano Kids - Music & Songs v2.73 [En]
-
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Kids - Music & Songs - познавательно-развлекательное приложение и для детей и для их родителей. С помощью данной программы маленькие пользователи смогут познакомиться с принципами работы различных музыкальных инструментов, самому попробовать на них играть используя интерактивную структуру, услышать классические звуки животных, различных транспортных средств, (   Читать дальше...   )Тип издания: Пиратка (Мод) Premium версияРелиз состоялся: 8 февраля 2021 г.Разработчик: Orange StudiosПоддерживаемая ОС: Android 4.1 и вышеЖанр: Познавательно-развлекательныйЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730BE5D256B22DD30213CCE0329AA937846CE791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447583   (1031565) от 14.02.2021
-
-Ронин: последний самурай v1.0.280.738 [Ru/En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте себя самураем, потерявшим своего господина, в игре с изящной графикой, выполненной в стиле японской живописи. Чтобы отомстить за смерть своего господина, вам придется получать уровни, открывать новые способности, собирать различное снаряжение и постоянно увеличивать свою силу. Не забывайте: путь мстителя — это путь боли и страданий, и, если вы погибнете, (   Читать дальше...   )Тип издания: Пиратка (Мод)Релиз состоялся: 3 февраля 2021 г.Разработчик: Dreamotion Inc.Поддерживаемая ОС: Android 5.0 и вышеЖанр: ЭкшенЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEAF7C04119C5CB83E5FD92C4FD4B35916E568F
 ```
 
 https://mybot314.ru/tekegram_catalog/

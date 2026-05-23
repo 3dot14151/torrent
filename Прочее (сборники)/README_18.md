@@ -1,3 +1,212 @@
+###  Публикация: 975120   (974465) от 13.01.2016
+
+VA - German Top 100 Single Charts (18.01.2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. Matt Simons - Catch & Release
+003. Glasperlenspiel - Geiles Leben
+004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC3B603A77FD812156A7A7048802780F80339AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975114   (974084) от 13.01.2016
+
+VA - Старое по новому 2 (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Дискотека Авария - Новогодняя (DJ Solovey Remix)
+02. ViRUS! - Ты меня не ищи (DJ Jurbas Mix)
+03. Ayur Tsyrenov & DJ Micky Rossa - Если у вас нету тёти
+04. Alex Kafer & Lera - Не обманешь (Queen Russian Cover)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:22:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718C2C12B54698BC64FFDD34C73795E71AC88BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357294   (973887) от 03.02.2020
+
+VA - Дискотека 2020 Dance Club Vol. 197 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. A. Rassevich, Susie Johnson - The Dice (5:13)
+02. NRD1 - All Good Things (Come To An End) (3:27)
+03. TRFN x Dan Port feat. Siadou - Crashing Down (2:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 29:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD96CA2D4AAB82EF8407996E8DF8C834EF49F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608267   (973568) от 11.02.2013
+
+VA - Easy ChillLounge vol.1-3 (2013) [MP3|320 кб/с]<Chill Out, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Voice - 01:14:37
+01. Cafe Del Chillia — New Day (2:54)
+02. Ke Fez — Algiers Dream (4:01)
+03. Brenda Boykin — Wonderful (5:32)
+04. Lazy Hammock — Star (4:05)
+05. Fancy Vienna — I'll Follow (3:25)
+06. Luna Cohen — Bailamos (3:26)
+07. Sol Electrico — Come With Me (4:51)
+08. Lemongrass — For All Seasons (4:33)
+09. Stubborn Heart — Need Someone (5:43)(   Читать дальше...   )Жанр: Chill Out, Lounge, Downtempo, RelaxПродолжительность: 04:55:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975717   (972182) от 15.01.2016
+
+VA - Dance - Floor Hits (2015) [MP3|219-320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Ferrini & Majuri - Dancing On The Clouds (Kris Reen Funky Extended Mix) 05:31
+02. Dj Gary Hendon - You Sure Do (Ibiza Club Mix) 03:52
+03. Hitmakers Feat. Kna Connected - Fire (Fuego) (Dj Gollum Remix) 04:47
+04. Dj Fait & Adrima - Can't Stop Raving (Andy Jay Powell 2012 Remix) 05:47(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588BEB607E6614682C837EA8A968B5BA84894F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975624   (972098) от 15.01.2016
+
+VA - 100 Forgotten Sixties Classics(4CD) (2005) [MP3|192-320 кб/с ] <Oldies, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. The Monkees - Pleasant Valley Sunday (3:07)
+02. The Smal Faces - Sha La La La Lee (2:55)
+03. Buffalo Springfield - For What It's Worth (2:38)
+04. The Byrds - Chimes Of Freedom (3:51)(   Читать дальше...   )Жанр: Oldies, Rock, PopПродолжительность: 04:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BE143F6B81C0AE17B762C510ABC1A79A75B526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975731   (972097) от 15.01.2016
+
+VA - Best Of 2016 Party Dance (2016) [MP3|320 кб/с] <Dance, Pop, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Candys ft. Max C. - Last Man On Earth (Radio Edit)
+02. Jaicko Lawrence - Used To Love Me
+03. Hozier - Take Me To The Church (Gabry Ponte Short Cut)
+04. Madcon ft. Ray Dalton - Don't Worry(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 05:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1476AF35CBCA3AB5EDDB9B8D6650328E2001A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975490   (971931) от 15.01.2016
 
 VA - 100 Fitness (2016) [MP3|320 кб/с] <Latin Urban, Salsa, Bouyon Soca, Kuduro, Ringbang>
@@ -6,7 +215,7 @@ VA - 100 Fitness (2016) [MP3|320 кб/с] <Latin Urban, Salsa, Bouyon Soca, Kudu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +244,7 @@ VA - не Громкие новинки недели 54 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +273,7 @@ VA - 500 Лучших И Самых Ярких Композиций За 10 Ле
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +302,7 @@ VA - Дискотека 2016 Dance Club Vol. 147 от NNNB (2016) [MP3|320 кб/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +331,7 @@ VA - I Love Italo Disco ot Vitaly 72 - 4 (2015) [MP3|320 кб/с] <Italo-Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +360,7 @@ VA - Top 100 Sounds Inception Massive DJs (2016) [MP3|320 кб/с] <Club, House,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +389,7 @@ VA - Disco Party Nights (2016) [MP3|320 кб/с] <Disco, Italo Disco, Eurodisco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +418,7 @@ VA - 100 Greatest BRIT Awards Winners (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +447,7 @@ VA - I Love Italo Disco ot Vitaly 72 - 5 (2015) [MP3|208 - 320 кб/с] <Italo-D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +476,7 @@ VA - I Love Italo Disco ot Vitaly 72 - 6 (2015) [MP3|201 - 320 кб/с] <Italo-D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +505,7 @@ VA - Dance Radio Edit: Celebrate Life (2016) [MP3|256-320 кб/с] <Dance, Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +534,7 @@ VA - Ностальгия NNM-Remix (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +563,7 @@ VA - The Official UK Top 40 Singles Chart 07.02.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +592,7 @@ VA - ЕвроХит Топ 40 Europa Plus 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +621,7 @@ VA - Elegant Cafe Vol. 1-2 (2013) [MP3|320 кб/с]<Lounge, Jazz Blends, Easy Li
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -447,7 +656,7 @@ VA - D.J H i t s  777 ( 1990 - 2000 г ) (2010) [MP3|256 кб/с]<Eurodance, Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +691,7 @@ VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +720,7 @@ VA - 90s & 00s Covers Playlist (2015) [MP3|320 кб/с] <Pop, Covers>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,7 +749,7 @@ VA - Highly Likely: Turbo Funky Mix (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,209 +763,6 @@ VA - Highly Likely: Turbo Funky Mix (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DD3000F1D8C159A083C24AE8C714FC67F0C8F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977178   (966650) от 20.01.2016
-
-VA - Europa Plus. Тор 40 Украина (2016) [MP3|320 кб/с] <Dance, Club, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weekend - The Hills (4:02)
-02. DNCE, Amice - Cake By The Ocean (3:12)
-03. The HardKiss - Tony, talk (3:38)
-04. Hurts - Nothing Will Be Bigger Than Us (4:02)(   Читать дальше...   )Жанр: Dance, Club, RemixПродолжительность: 02:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C6A21FB9D60A1CB619367097219D23B4E59CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977449   (965768) от 21.01.2016
-
-VA - An Endless Drive (2016) [MP3|320 кб/с] <Club, House, Electro, Trance, Tech>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965768.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brenton Mattheus, Ian G, Matierro - Flash feat. Brenton Mattheus
-002. Herve Pagez - Paaarty (Original Mix)
-003. KURA - Makhor (Original Mix)
-004. Alexandre Bergheau & Geert Huinink - Desert Wings (Original Mix)(   Читать дальше...   )Жанр: Club, House, Electro, Trance, TechПродолжительность: 08:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957CCB8A6F24B6B4EF5361534AB8C73183F2883E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978141   (964598) от 22.01.2016
-
-VA - Collection Of Modern Dance Ethnic Group (2016) [MP3|256-320 кб/с] <Modern Ethnic, Folk, Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gawtbass - Empire
-02. Nucleya - Jungle Raja Feat. Divine & Gagan Mudgal
-03. Beauty Brain - Al Andalus
-04. B-Azta - Armutlu(   Читать дальше...   )Жанр: Modern Ethnic, Folk, Dance, PopПродолжительность: 02:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DBDE011EF402C5311B48F104C7A90BDF938B636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359554   (963880) от 12.02.2020
-
-VA - 90s Basic Element Insight (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zymotix - Feel My Love (Club Feeling) 6:10
-02. Donna J - Nobody Knows 4:14
-03. Europhoria feat. Debbie Fredericks - Listen To The Rain (Club Mix) 6:51
-04. Sash! - Mysterious Times (Maxi Original) 5:24(   Читать дальше...   )Жанр: Eurodance, Euro-House, Electronic, DanceПродолжительность: 05:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C39814392D72A29BC3E030FC77BE4463FAD792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359648   (963878) от 12.02.2020
-
-VA - Зайцев.нет Лучшие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Nightwish - Noise (5:40)
-2.Galantis - Steel (4:23)
-3.Artik & Asti - Девочка танцуй (4:21)
-4.Adam Lambert, Nile Rodgers - Roses (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F901FD1B1B7B3D5675CD3941FB79BE9498908B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978549   (963706) от 23.01.2016
-
-VA - Control Improvement Solutions (2016) [MP3|320 кб/с] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoo Brazil Ft. Philip - Heart's A Legend (Solarstone Pure Remix) 08:55
-02. Western Disco Feat. Lura - The Sun (Black Box Remix) 03:55
-03. The Chosen Two - The Herbsman_original Mix 06:55
-04. Nacim Ladj - Under The Bass 06:15(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FEC4440A8407E1961ADCC880BB8BCBC25B3E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978501   (963631) от 23.01.2016
-
-VA - LOVERS Dance Cocktail (2015) [MP3|320 кб/с] <Dance, Deep House, Vocal Trance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ItaloBrothers - Welcome to the Dancefloor (02:53)
-02. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:11)
-03. Royksopp - Here She Comes Again (Dj Antonio Remix) (04:54)
-04. Maroon 5 & Alesso - This Summer (Radio Edit) (03:12)(   Читать дальше...   )Жанр: Dance, Deep House, Vocal Trance, Pop, Vocal House, Progressive HouseПродолжительность: 04:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7CC3539112E6228F33DD1EB2DF868255DCD911
 ```
 
 https://mybot314.ru/tekegram_catalog/

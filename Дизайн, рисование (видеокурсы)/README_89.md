@@ -1,3 +1,82 @@
+###  Публикация: 1681766   (132265) от 04.12.2023
+
+Udemy, Build FX | Master Blender With AI Tools, Blender Addons & Unity (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы научимся работать с надстройками блендера. Нам очень хочется сделать реалистичный 3D-мох и сделать фотореалистичный рендеринг сцены природы. Mossify позволяет пользователям добавлять процедурный мох в 3D-модели внутри Blender, контролируя результаты с помощью простого набора параметров для основного рисунка шума, а также размера и плотности нитей (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B018A0D0F675D86FD10ABDD66343F9920A935F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681755   (132260) от 04.12.2023
+
+Liveclasses, Антон Мартынов | Генерация изображений в Leonardo.Ai (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Leonardo.Ai – это мощный инструмент, предоставляющий уникальные возможности для создания изображений при помощи искусственного интеллекта.
+В ходе этого класса мы исследуем разнообразные аспекты использования Leonardo.Ai, начиная с формулирования простых запросов и заканчивая созданием собственных моделей. Мы рассмотрим, как правильно настраивать параметры генерации, (   Читать дальше...   )Производство: LiveclassesЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 03:13:46Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC140C39BB5290A6545CBF1DBBCB27C3084618B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681776   (132259) от 04.12.2023
+
+Udemy, Bharat Sharma | Introduction to Sculpting in Blender for Absolute Beginners (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот проект посвящен изучению инструментов Blender, которые он предлагает для создания цифровых скульптур. Мы собираемся узнать о кистях, модификаторе мультиразрешения, динамической топологии, Remesh и многих других подобных инструментах. Мы собираемся изучить, как теперь можно рисовать в режиме скульптуры Blender, а также использовать данные рисования для создания (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 04:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C81C369C63988EBC8E49A7D7BE0A4E86AB9D4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681769   (132246) от 04.12.2023
 
 Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop (2023) WEB-DL [EN]
@@ -6,7 +85,7 @@ Udemy, Art Studio313 | Master 3D & 2D Hand Painting/Combine Blender & Photoshop 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +113,7 @@ my_revit | Revit interior (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +142,7 @@ Udemy, Benoit GOMES | Level design Masterclass : Theorizing before crafting (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -91,7 +170,7 @@ Udemy, Meta Brains | Midjourney for Beginners: Embark on Your Artistic Journey (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -117,7 +196,7 @@ Udemy, Markos Resvanis | Unreal Engine 5 Visual Novel and Narrative Game Design 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -145,7 +224,7 @@ Udemy, Zeon Horizon | 3Ds Max MasterClass : Only 3D course that teaches everythi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +252,7 @@ Udemy, Rufana Zade | Master Brand Design: Graphic Masterclass - Time-Saving Step
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -199,7 +278,7 @@ Udemy, Passive Income Gen Z | ChatGPT & DALL-E2 to Create a KDP Storybook for Ch
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -225,7 +304,7 @@ Udemy, Samantha Dabrowski | Become a Graphic Designer in the Film Industry (2023
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +332,7 @@ Udemy, Mepi.pl Video Tutorials | Mastering Real-Time Animation in Unreal Engine:
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -279,7 +358,7 @@ Gumroad, Val Orlov | How to create in 3D Character Concept Art (2023) WEB-DL [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -305,7 +384,7 @@ GNEURO, Никита Глухов, Артур Форостяк | Stable Diffusio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -334,7 +413,7 @@ Udemy, Manas Roy | Adobe Firefly Course: Beginner to Pro AI In One Go (2023) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +442,7 @@ Udemy, Manas Roy | DALL-E and Adobe Firefly Course: AI Art Generation Ethically 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -391,7 +470,7 @@ Udemy, Mrawan Hussain | Blender: Rolls Royce Spectre in 3D (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -420,7 +499,7 @@ School of Motion, Joey Korenman, Greg Stewart и др. | A motion design masterp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -446,7 +525,7 @@ CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +553,7 @@ Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +581,7 @@ Udemy, Aidan Perry | Unreal Engine: Ultimate Survival Horror Course (2022) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +608,7 @@ Udemy, Neil Bettison | Blender 4 Creator Course Stylized 3D Models (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +636,7 @@ Digital Tutors, Pluralsight, Paul Conner | Professional Tips for Modeling Comple
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,7 +664,7 @@ Linkedin, George Maestri | Unreal Engine 5 Essential Training (2023) WEB-DL [EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -611,7 +690,7 @@ Stepik, Арсений Смирнов | Веб-дизайн: ключ к усп�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -623,90 +702,6 @@ Stepik, Арсений Смирнов | Веб-дизайн: ключ к усп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF1ED37EFC54174257BEE56E14BAB1079D2CB8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683043   (130686) от 09.12.2023
-
-Udemy, Alex Cordebard | The Ultimate Blender 3D Animated Short AI Course (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в преобразующее более чем 50-часовое путешествие в мир анимации, где мы проведем вас через пересечение художественного творчества и передовых технологий. В этом комплексном курсе вы узнаете, как использовать возможности Blender 3D, ведущего пакета для создания 3D-изображений с открытым исходным кодом, чтобы вдохнуть жизнь в ваши короткометражные анимационные (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 56:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD689F3EE3C9F8AF6E9062F6897CD8A84070B630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682995   (130682) от 09.12.2023
-
-Udemy, Unreal magic | Unreal Engine 5:Enhance animation skill with Ladder Climbing (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на наш курс Udemy, где творчество процветает даже без ресурсов первоклассной компании! Если вы когда-либо чувствовали себя стеснёнными бюджетными ограничениями, не бойтесь — мы здесь, чтобы раскрыть весь потенциал Unreal Engine и его инструментов.
-
-Мы не компания тройного А
-У нас нет денег нанимать аниматоров(   Читать дальше...   )Производство: UdemyЖанр: 3D Графика, GameDevЯзык озвучки: АнглийскийПродолжительность: 08:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33970E2E7F88398700D6944E24AD221A1E8ADED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682973   (130680) от 09.12.2023
-
-Greech, Анастасия Гречушникова, Вадим Киселев | Дизайнер SMM. Тариф Профи (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стань дизайнером соцсетей и получи стабильный доход от 50000 р в месяц
-
-Тебя ждет более 40 уроков: от введения в профессию до создания портфолио, поиска клиентов и продаж на высокие чеки!
-(   Читать дальше...   )Производство: GreechЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 21:21:24Реклама: Наложение на видео, видео вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213B04E8143502C13E0E5B5E58B23666DB396FFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

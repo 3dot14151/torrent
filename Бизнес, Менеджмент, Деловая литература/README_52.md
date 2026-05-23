@@ -1,3 +1,83 @@
+###  Публикация: 1060904   (446141) от 11.10.2016
+
+Нил Смит, Патриция О'Коннелл | Как компании-лидеры избегают бестолковых решений (2014) [FB2, PDF, DOCX]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Генеральный директор компании по совершенствованию организации производства Нил Смит в своей книге рассказывает о препятствиях, восьми скрытых барьерах, с которыми сталкиваются организации самого разного масштаба – от биржей труда до международных инвестиционных компаний, – и о способах их преодоления. «Помогать и направлять» – вот девиз компании автора настоящего (   Читать дальше...   )Жанр: Бизнес, Общий менеджментПеревод: Г. МаксимюкФормат: FB2, PDF, DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFF03B943444B77C5061F162E4EFC03A0FF770A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248040   (446082) от 18.09.2018
+
+В. Чан Ким, Рене Моборн | Переход к голубому океану. За пределами конкуренции (2018) [FB2]
+
+>>След.
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Как начать процесс перехода к голубому океану? Какие инструменты использовать, чтобы обнаружить новые возможности на рынке? Как определить, какие из стратегий выведут компанию в голубой океан, а какие нет? И, главное, как собрать команду, способную реализовать все запланированное на практике?
+В. Чан Ким и Рене Моборн детально разбирают процесс перехода к голубому (   Читать дальше...   )Жанр: Менеджмент; Деловая психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F817B17738FEEF1D77937A7414D2A79A467A1C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 69901   (445904) от 30.08.2019
+
+Кристофер Лавлок | Маркетинг услуг (2005)
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга Кристофера Лавлока «Маркетинг услуг: персонал, технология, стратегия» (4 издание) - лучшее и наиболее полное издание по маркетингу услуг из числа переведенных на русский язык. Это пособие призвано стать своеобразной «энциклопедией знаний» для всех маркетологов и топ-менеджеров, работающих в сервисном бизнесе. Книгу характеризуют:
+Четкая ориентация на управление (   Читать дальше...   )Жанр: Маркетинг, МенеджментФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADD41C4E299C117A144C651A7A8F6E09E88CA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943033   (442941) от 06.10.2015
 
 Марио Райх, Саймон Долан | Глобальный кризис. За гранью очевидного (2010) [FB2]
@@ -6,7 +86,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1DD77D31937FAFE65DADC536B8114EC0DD80DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410942   (431425) от 23.09.2020
-
-Петр Панда | Копирайтинг: сила убеждения (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Петра Панды «Тексты, которым верят» стала безусловным хитом продаж (за три года шесть дополнительных тиражей!). Уже тысячи авторов и компаний взяли на вооружение «убедительно-позитивный копирайтинг» и смогли с его помощью отстроиться от стандартных текстов.
-Встречайте продолжение бестселлера!
-«Копирайтинг: сила убеждения» погружает читателя в УПК-стиль и рассказывает (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6343D038CA988E0BD3C3CB6BCC6ECA7C5C7A73A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410943   (431424) от 23.09.2020
-
-Максим Михеенко | Миллионы миллиардов. Как стартовать в игровой индустрии, работая удаленно, заработать денег и создать игру мечты (2020) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще на стыке тысячелетий видеоигры были сугубо нишевым продуктом для узкой фанатской аудитории – геймеров. В наши дни ситуация другая – игровая индустрия приносит ежегодный доход более $150 миллиардов, обгоняя кинематограф и музыкальный бизнес вместе взятые. ИГРАЮТ ВСЕ! Цифра эта приведена по состоянию на 2019 год, и динамика впечатляет. Мировая статистика показывает, (   Читать дальше...   )Жанр: Стартапы и создание бизнеса, Игровая индустрияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04BE8AF6A0A9726A5BBA1691B786C96D7F678AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945210   (430841) от 11.10.2015
-
-Оливия Фокс Кабейн | Харизма. Как влиять, убеждать и вдохновлять (2013) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430841.jpg" />
-</div>
-
-
-###  Подробнее
-
-В переводе с греческого харизма означает «дар богов». Многие считают, что это врожденное качество, и воспринимают харизматичную личность чуть ли не как сверхчеловека. Автор этой книги, коуч-консультант, приглашенный лектор Стэнфордского, Йельского и Гарвардского университетов, спорит с общепринятым мнением и, более того, берется доказать, что харизма – это набор (   Читать дальше...   )Жанр: Управление, подбор персонала, Зарубежная деловая литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7C8FF2B1A20F4D6CDBB7D9B4B3ED3FB022E47E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1330933   (283911) от 04.11.2019
+
+Be-Bop High School / Старшая школа Би-Боп [1990, OVA 7 эп.] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Для двоих хулиганистых задир Хироси и Тору обычные школьные будни мало связаны с учебой. Кому нужна эта скукота? Завести себе подружку — вот действительно важная цель, с которой никак не сравнится получение образования. Проблемы? Нет, эти парни не знают такого слова. Возникли какие-то вопросы? Решение всегда найдется — ведь пара железных кулаков всегда при них. Они (   Читать дальше...   )Жанр: комедия, школа, сёненРежиссер: Арисако Тосихико / Arisako ToshihikoПеревод: 1-3 перевод - hSa / 5-7 перевод - Переводилдо & M3LYN
+4 перевод - Hokuto-san, редакторы: Переводилдо & M3LYN.Язык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (7 эп.), 50 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF0E986E46F8168FB49720E4F39794E469D2771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915532   (283280) от 10.12.2015
+
+Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие развернётся в мире, где у небольшого процента детей при достижении пубертата обнаруживаются сверхспособности. Главные герои «Шарлотты» состоят в студсовете академии Hoshi No Umi, предназначенной для таких вот юных дарований. Впрочем, самое интересное заключается в другом — каждая сверхспособность поставляется в комплекте с каким-нибудь изъяном. Видимо, чтобы (   Читать дальше...   )Производство: Студия P.A. WorksЖанр: повседневность, сверхъестественноеРежиссер: Асай ЁсиюкиПеревод: 1) Shift (01-09) + I.D.A. (10-13); 2) HorribleSubsЯзык субтитров: 1) Русский; 2) АнглийскийПродолжительность: 13 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F008B56B3D7A701251D8D71653115BB1EA1D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249185   (282479) от 22.11.2018
+
+Rerided: Tokigoe no Derrida | РЕридеД: Деррида, что путешествует во времени [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Год 2050. Юный инженер-разработчик Деррида Ивэйн получает известность благодаря разработке «автономной машины DZ» в основанной его отцом корпорации «Ребилд». Увы, однажды Деррида и его коллега Натан находят в DZ фатальную ошибку, однако когда они пытаются предупредить начальство об этом, их игнорируют. Зная об опасности, двое друзей всё же решают отложить решение (   Читать дальше...   )Производство: Geek ToysЖанр: приключенияРежиссер: Сато ТакуяПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Немецкие, Испанские, Французские, Итальянские, ПортугальскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B91B82F1BE149F800FEEFA5755C702EC05345A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186916   (282177) от 27.11.2017
+
+Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Confess Your Love Committee | Исполнительный комитет признаний в любви [2016, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нацки Эномото вдруг признается в любви Ю Сэтогути. Но смутившись, забирает свои слова назад и говорит, что это была лишь репетиция перед настоящим признанием.Производство: Qualia AnimationЖанр: повседневность, романтика, школа, комедияРежиссер: Янагисава ТэцуяПеревод: AleX_MytHЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F31B3F4AA7067D52E83FEF29A8F9BDDA19A1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 423839   (281989) от 17.12.2011
 
 Kyousogiga / Шутки чокнутой столицы [2011, OVA] DVDrip raw
@@ -6,7 +111,7 @@ Kyousogiga / Шутки чокнутой столицы [2011, OVA] DVDrip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -37,7 +142,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +168,7 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +194,7 @@ Full Moon wo Sagashite | Searching for the Full Moon | В поисках Пол�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +220,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +246,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +272,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +324,7 @@ GTO / Great Teacher Onizuka / Крутой учитель Онидзука [1999
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +350,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +376,7 @@ Underbar Summer | Лето [2006, OVA, 2 эп. + 2 SP] DVDrip 720 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +402,7 @@ Devil's Line | Линия дьявола [2018, TV, 12 + 1 ОВА] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +480,7 @@ Glass Mask TV 2005 / Стеклянная маска [ТВ-2] [2005, TV, 51] SDT
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +507,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ To Love-Ru: Trouble - Darkness OVA | To Love-Ru Trouble Darkness / Любовн�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +559,7 @@ Kidou Senshi Gundam: Twilight Axis | Mobile Suit Gundam Twilight Axis | Моби
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +585,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -506,7 +611,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +637,7 @@ Wakaokami wa Shougakusei! | Хозяйка гостиницы из младше�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +663,7 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -569,113 +674,6 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190748   (265671) от 11.12.2017
-
-Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в нашем светлом будущем, где война с терроризмом вышла на новый виток, после того как Сараево было уничтожено самодельной ядерной бомбой. Бывшие демократические державы окончательно превратились в государства тотальной слежки, а страны третьего мира захлестнула волна этнических чисток. Мир погрузился в пучины хаоса и насилия. И на руинах (   Читать дальше...   )Производство: студия Geno Studio / ジェノスタジオЖанр: боевик, фантастикаРежиссер: Мурасэ СюкоПеревод: 1) Ивашков Егор; 2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 114 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47A6C75BD5E8DE28C57B4854CCAAC490D56DE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339567   (265332) от 20.11.2019
-
-Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин Джи-Гандам [1994, TV, 49 из 49] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265332.jpg" />
-</div>
-
-
-###  Подробнее
-
-К шестидесятому году Будущего Века человечество покинуло загрязнённую бесконечной войной планету и отправилось в космос. Колонии-государства, созданные по образу и подобию стран-предшественников, решили более никогда не вступать в конфликты, выбирая главенствующую колонию по результатам величайшего турнира — Гандам-Битвы.
-Домон Кашу — сильнейший мастер боевых искусств (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Имагава ЯсухироПеревод: КорнельЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 49 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC9426EEC7448C06DB2DE81E0BDF3567CBABBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267914   (265007) от 08.12.2018
-
-Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды девочка по имени Амацуки Мегуру столкнулась в своей жизни с трудной ситуацией, которая требовала отваги и решимости. Она увидела, как в океане тонет ребёнок, но ничего не смогла с собой поделать и лишь наблюдала за тем, как пучина затягивает малыша. Вдруг, откуда ни возьмись, прилетают две девушки, спасают ребёнка и так же безмолвно исчезают. Мегуру восхитилась (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключенияРежиссер: Ивасаки ЁсиакиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B4EFDE57FAB6E7CBF7317A7E8565388D87E11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267916   (265004) от 08.12.2018
-
-Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юкиай Нагиса - обычная одиннадцатикласница из старшей школы Хиносаки. Дружит с тремя сверстницами: Каэдэ, Шизуки и Ю.
-Инициативная и волевая Каэдэ хороша в спорте. Вот-вот станет капитаном школьной команды по лакроссу. Её энергии хватает, чтобы подрабатывать официанткой в семейном ресторане "SeaGull".
-Тихая и застенчивая Шидзуку мечтает стать кондитером. (   Читать дальше...   )Производство: студия Madhouse Studios / マッドハウスЖанр: повседневностьРежиссер: Ито НаоюкиПеревод: laciЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45F1147E9EA74836249768C785DB78934CC3912
 ```
 
 https://mybot314.ru/tekegram_catalog/

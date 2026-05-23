@@ -1,3 +1,169 @@
+###  Публикация: 818641   (539476) от 04.09.2014
+
+Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Grimes - Genesis
+02. Ellie Goulding - You My Everything
+03. Chase & Status Feat. Jacob Banks - Alive
+04. CHVRCHES - The Mother We Share(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D552E5DA267DB785BAE8C7A6D36FD80A2119E9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818488   (539475) от 04.09.2014
+
+Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. T.I. & Lil Wayne - Wit Me
+02. Ciara Feat. Nicki Minaj - I'm Out
+03. Tinie Tempah Feat. 2 Chainz - Trampoline
+04. Jay Sean Feat. Rick Ross - Mars(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FC65D9F6E97D52CE52949A38E90E600412E1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818371   (539467) от 04.09.2014
+
+Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Nicki Minaj - Pound The Alarm
+02. Timbaland Feat. Ne-Yo - Hands In The Air
+03. Tulisa - Young
+04. Alexandra Burke - Let It Go(   Читать дальше...   )Жанр: Pop, House, DanceРежиссер: MusicmattersdkПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45ACA999CED0157B17C1D13A94344CACC2A4800E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511876   (538720) от 05.08.2018
+
+Сурганова и оркестр - концерт на Красной площади <Rock>   (2012.12.06) TvRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Светлана Сурганова и оркестр на гала-концерте  в Москве на Красной площади 12. 06. 2012 года, в рамках празднования Дня России.1. Увидимся скоро
+2. АпрельскаяЖанр: RockПродолжительность: 00:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A6465AC7E53952658541D9313CBC2AF102EC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696803   (538103) от 04.09.2013
+
+Михаил Булгаков - Мольер (Кабала святош) (1988) SATRip (МХАТ им. А.П. Чехова)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Спектакль, драмаРежиссер: Адольф ШапироАктеры: Олег Ефремов, Наталья Тенякова, Иннокентий Смоктуновский, Олег Табаков, Вячеслав Невинный, Ирина Юревич, Ольга Барнет, Павел Белозеров, Юрий Кочнев, Виктор КулюхинПродолжительность: 02:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906109FA9501983174B7F9E699601491105E288E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532250   (537855) от 07.08.2012
+
+Цирк дю Солей: Большое путешествие / Cirque du Soleil: Journey of Man (2000) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Цирк… Атмосфера чуда и праздника витает в воздухе. Арена притягивает взгляды. И вот гаснет свет, дирижер взмахивает палочкой, оркестр берет первые такты… Представление начинается, и зал замирает в ожидании сказочного действа…Жанр: короткометражка, мюзикл, фэнтези, драма, семейныйАктеры: Иэн МакКеллен, Никки Дьюхерст, Брайан Дьюхерст, Anait Karagyezyan, Крис Ван Вагенен, Кенни Раскин, Cully Smoller, Михаил Маторин, Ив Декосте, Marie-Laure MesnageПеревод: дублированныйСубтитры: Русские, АнглийскиеПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7B1CD0339E2B9A8E64D02187C17346739846EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924887   (536924) от 08.08.2015
 
 Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
@@ -6,7 +172,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +198,7 @@ Lounа - Фестиваль "Нашествие 2011" (2011) WEB-DLRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +337,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -201,7 +367,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -230,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +453,7 @@ Michael Jackson - Moonwalker (1988) BDRip [H.264/1080p]
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -313,7 +479,7 @@ Sting - Live At The Olympia Paris (2017) DVD5 [hand made]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -342,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +536,7 @@ Queen - Greatest Flix I & II LDRip Edition [2011г.; Full Version with Bonus; Go
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +592,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +627,7 @@ Chet Atkins - Certified Guitar Player'87 (2010) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +679,7 @@ VA - Летний марафон № 181 / Видеоклипы (Коктейл�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +708,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,170 +722,6 @@ Europe — шведская рок-группа, созданная в Сток�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663513781AC6F6A1BA5B4F5FD1C4C8D110DFB8CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926257   (533312) от 10.08.2015
-
-Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533312.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 июня 2013 года, «Europe» вышли на сцену на своей родине Швеции по особому поводу: празднование своей 30-й годовщины в рок-музыке. Эта Шведская рок-группа праздновала это событие вместе с 30 тысячами человек на популярном Шведском Рок Фестивале, играя подборку из 28 песен собирая свои персональные любимые моменты, начиная с ранних лет вплоть до их наиболее свежих (   Читать дальше...   )01. Intro / Riches To Rags
-02. Firebox
-03. Not Supposed To Sing The Blues
-04. Scream Of Anger(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalРежиссер: Patric UllaeusПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C964C9524F3D299AD74D0C9C01ECA4597A465FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926350   (533304) от 10.08.2015
-
-В жизни раз бывает 60. Юбилейный концерт Игоря Крутого (2014) HDRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533304.jpg" />
-</div>
-
-
-###  Подробнее
-
-В праздничной программе "В жизни раз бывает 60" примут участие: Лара Фабиан, Ирина Аллегрова, Филипп Киркоров, Лайма Вайкуле, Валерий Леонтьев, Николай Басков, Кристина Орбакайте, Григорий Лепс, Лариса Долина..01. Вступление
-02. Always - Lara Fabian
-03. Счастье ты мое - Алсу
-04. Признание (Буду я любить) - Доминик Джокер(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:49:42 + 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11B08F4BA66BA82C498F9C21EACF47F47F70017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926442   (533108) от 10.08.2015
-
-NikitA - Avocado (2012) MasterRip [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солистки группы «NikitA» вооружены красотой и сексуальностью, и очень опасны!
-Дария Астафьева – главная «playmate» журнала «Playboy». Титул «девушки Playboy» Даша завоевывыла дважды: первый раз – у себя на родине в Украине, второй – в США, став главной юбилейной «рlaymate» в честь 55-летия американского издания «Playboy».
-Анастасия – певица, танцовщица, мастер спорта (   Читать дальше...   )Жанр: PopПродолжительность: 00:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD01C1ADC09B18680F161E280E32F0C24A869F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533605   (532748) от 10.08.2012
-
-Sak Noel - Where? (I lost my underwear) (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 00:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D63687F9E3E4B8190ED5F57EA44603B3C59C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367535   (532722) от 25.07.2011
-
-Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/Country RockПеревод: ОтсутствуетПродолжительность: 02:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11977AD6850C2A0E2DEEB4C79B6E1B6A7042F6DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050646   (532548) от 11.09.2016
-
-Лунин или смерть Жака (1986) SATRip (2 части) (Московский драматический театр на Малой Бронной)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исповедь главного героя - декабриста Михаила Сергеевича Лунина. Стены Акатуйской тюрьмы, где Лунин провел свои последние дни. Но тут же присутствует и другой мир - прежний мир Лунина. Он - в воспоминаниях, в фантазиях... Спектакль начинается с последнего дня жизни Лунина. Именно в этот день ему предстоит подвести последнюю черту прожитому, сделать вывод. Множество (   Читать дальше...   )Производство: СССР, Московский драматический театр на Малой БроннойЖанр: Драма, спектакльРежиссер: Александр ДунаевАктеры: Олег Вавилов, Анна Каменкова, Геннадий Коротков, Анатолий Спивак, Геннадий Сайфулин, Андрей Котов, Виктор Лакирев, Татьяна Кленова, Кирилл Глазунов, Константин Бердиков, Николай СеребренниковПродолжительность: 2 x ~ 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B003609A310D573F5D04D39CC4E506F37A3B2604
 ```
 
 https://mybot314.ru/tekegram_catalog/

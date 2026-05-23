@@ -1,3 +1,110 @@
+###  Публикация: 57232   (229547) от 28.11.2019
+
+One Piece Movie 2 - Nejimaki Tou no Daibouken / Ван-Пис: Фильм второй [2001] raw jp
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Второй Мувик One Piece.
+Действие фильма происходит после событий 56-го эпизода оригинального сериала.
+Не только их корабль был похищен, но и Nami! Для того чтобы получить их обратно, Луффи и его пиратский экипаж встречаются с таинственными "братьями Trump " Borodo и Akisu, которые приведут их к острову часовой работы, городу, управляемому бандой безжалостных (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнПеревод: ОригинальныйФормат: aviПродолжительность: 55 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C3E4AB99FE4F6A961B6DE487E018088D09B9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 120285   (229542) от 28.11.2019
+
+Fuyu ni Saku, Kiseki no Sakura / One Piece Movie 9 - Episode of Chopper Plus / Ван-Пис: Фильм девятый - История Чоппера [2008] DVDRip raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Весь сюжет можно изложить в одном предложении: А что если бы комманда Мугивары Луффи, встретила Чопера уже после Френки? И так, встречайте!  История Чопера  и приключения на Зимнем Острове в новом исполнении.Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Toei AnimationПродолжительность: 112 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2239A88808D59CE747EEBC7C574AD06F869A798E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 93475   (229535) от 28.11.2019
+
+One Piece Movie 5 - Norowareta Seiken / One Piece - The Curse of the Sacred Sword / Ван-Пис: Фильм пятый [2004] raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит на острове где хранился Проклятый меч, который порабощает старого друга Зоро.Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Такэноти КадзухисаПродолжительность: 95 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF6972A47B7CBE0199A83E3340CB6EBF9421317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 93477   (229529) от 28.11.2019
+
+One Piece Movie 6 - Omatsuri Danshaku to Himitsu no Shima / One Piece: Baron Omatsuri and the Secret Island / Ван-Пис: Фильм шестой [2005] raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Ну, что я могу сказать. Пожалуй, этот мувик самый интересный из всей, которые я видела. Да, сюжет прост: "Накама ссорятся и расходятся" В этом и заключается сюжет, что если вы накама, то вы ими и останетесь до конца, и никакие преграды не способны разъеденить вас.
+Сюжет какжется прост, есть уверенность, что в конце концов Луффи и его команды победят, но (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Хосода МаморуПродолжительность: 92 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFB655A0A215598BC0D3C47664923371C8F02DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564929   (229525) от 14.10.2022
 
 Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [2022, TV, 12] WEBRip 720p raw
@@ -6,7 +113,7 @@ Love Live! Superstar!! 2 / Живая любовь! Суперзвёзды!! 2 [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +142,7 @@ One Piece Movie 1 / Ван-Пис: Фильм первый [2000] raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -61,7 +168,7 @@ xxxHOLIC Kei | Триплексоголик (второй сезон) [2008 , TV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -87,7 +194,7 @@ Healer Girl | Девушка-целитель [2022, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -113,7 +220,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou / Touhou: A Summer Day's Dream / 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +246,7 @@ One Piece TV Special 3:Mamore! Saigo no Daibutai / One Piece: Protect! The Last 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +273,7 @@ One Piece TV Special: Umi no Heso Daiboken hen / One Piece Special: Adventure in
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +300,7 @@ One Piece Jidaigeki Special: Luffy Oyabun Torimonocho / One Piece: The Detective
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -222,7 +329,7 @@ One Piece: Taose! Kaizoku Ganzack / One Piece: Defeat the Pirate Ganzack! / Ва
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -249,7 +356,7 @@ One Piece TV Special 2:Oounabara ni hirake! Dekkai Dekkai Chichi no Yume / One P
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -276,7 +383,7 @@ Muteking the Dancing Hero | Герой-танцор Мутэкинг [2021, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -302,7 +409,7 @@ One Piece: Strong World / Ван Пис: Фильм десятый [2009] BDrip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -329,7 +436,7 @@ One Piece: Romance Dawn Story / Ван Пис: Рассвет романтиче
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -357,7 +464,7 @@ Deji Meets Girl | Девушка встречает дэдзи [2021, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +490,7 @@ Lupin Sansei vs. Meitantei Conan The Movie | Lupin III vs. Detective Conan The M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -409,7 +516,7 @@ Aharen-san wa Hakarenai | Непостижимая Ахарэн [2022, TV, 12 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -435,7 +542,7 @@ Slap Up Party: Arad Senki | Крутая компания: Арадские пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -461,7 +568,7 @@ Nanatsu no Taizai Movie 2 Hikari ni Norowareshi Mono-tachi | The Seven Deadly Si
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -487,7 +594,7 @@ Shakugan no Shana II / Жгучий взор Шаны [ТВ-2] [2007, TV, 24] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -513,7 +620,7 @@ Shakugan no Shana III Final / Жгучий взор Шаны III Финал [TV3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -539,7 +646,7 @@ Shakugan no Shana Special: Love and Outdoor Hot Spring Tutorial! / Жгучий 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +673,7 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -577,111 +684,6 @@ Shin Ikkitousen | Истинная сила тысячи [2022, TV, 3 эп.] BDR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2A03F1839F55EAD20516342FC13D228C5D08124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736429   (223969) от 20.12.2013
-
-Guin Saga / Сага о Гуине [2009, TV, 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древнее государство Парро пало от набега коварных и воинственных монгаулов. Королевская семья уничтожена, лишь в последнюю минуту придворный маг успевает телепортировать «две жемчужины» - младших принца и принцессу Ремуса и Ринду - в безопасное место. Увы, в горячке боя промашка вышла - наследники парросского престола попали не к родственникам, а в лес Руд, пользующийся (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Вакабаяси АцусиСубтитры: •Продолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD2422EBCEE140B58AA2E9BD792BEE4C43C0E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501668   (223101) от 29.11.2021
-
-Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истребитель демонов: Поезд «Бесконечный» [ТВ] [2021, TV, 7 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завершив оздоровительные тренировки в Доме бабочки, Тандзиро и его друзья отправляются выполнять новое задание. На поезде «Бесконечный» творится что-то неладное: в одночасье там исчезает более 40 человек! А значит, Тандзиро, Нэдзуко, Иносукэ и Дзэницу предстоит сразиться с могущественным демоном. Присоединившись к одному из сильнейших мечников, пламенному столпу (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 7 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715DA5474A1058755034AC31C4824941C3518F10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965966   (221622) от 16.12.2015
-
-One Punch Man: Road to Hero / Ванпанчмен: Путь к становлению героем [2015, OVA, 1 эп.] DVDRip 576p Raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали от запоминания супер-атак и бесконечных доспехов, но душа просит адреналина и драк? Тогда эта новая экшен-комедия от студии Madhouse для вас!
-Главный герой не размахивает мечом, не выкрикивает боевой клич и вообще не отличается ничем особенно героическим. Всё в этом молодом человеке по имени Сайтама так и вопит: «заурядный» — и его лысая голова, и его хилое (   Читать дальше...   )Производство: Madhouse StudiosЖанр: приключения, комедияРежиссер: Нацумэ СингоСубтитры: РусскиеПродолжительность: 1 серия по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3072871032981E381DF470BAD2274F85FFB442C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342955   (221295) от 04.12.2019
-
-Sounan Desuka? | Are You Lost? | Бедствие ли это? [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221295.jpg" />
-</div>
-
-
-###  Подробнее
-
-После авиакатастрофы четыре старшеклассницы оказываются на необитаемом острове. Здесь нет ничего, поэтому они сами должны делать всё! И поедать всё (бе-е-е)! Хоть это и история выживания, но на самом деле у девушек всё хорошо. Пускай жизнь на необитаемом острове и включает в себя поедание цикад, создание солнцезащитного крема, изготовление ножей, охоту на кроликов (   Читать дальше...   )Производство: студия EzolaЖанр: приключения, комедияРежиссер: Нагаяма НобуёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B2F320091A95CB2A3E7A10B29E25CF54437EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

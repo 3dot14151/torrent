@@ -1,3 +1,186 @@
+###  Публикация: 1668822   (172898) от 15.10.2023
+
+Искусственный интеллект создал странного ходячего робота: он не похож ни на что из существовавшего ранее
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Группа американских исследователей в публикации в Proceedings of the National Academy of Sciences рассказала о том, что искусственный интеллект по их запросу должен был разработать робота, способного ходить.В результате у него получился (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669467   (172701) от 16.10.2023
+
+Adobe Photoshop Lightroom Classic 13.0.1.1 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8D307E183BF5EFE3944463DA1E75C52187D7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669475   (172414) от 18.10.2023
+
+Названа самая продаваемая игра в истории
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики Minecraft рассказали о рекордных продажах игры. Об этом сообщает издание Windows Central.Во время мероприятия Minecraft Live представители студии Mojang заявили, что поставили новый рекорд по продажам игры. По их словам, тайтл распродали тиражом 300 миллионов копий. «Наше невероятное сообщество превратило Minecraft в то, чем оно является сегодня, и в (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567559   (172154) от 19.10.2023
+
+The Mortuary Assistant (2022) [Ru/Multi] (1.2.3) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Mortuary Assistant — хоррор от первого лица. Ребекка Оуэнс (Rebecca Owens) закончив обучение ассистентом поступает работать в городской морг Ривер-Филдс (River Fields). В один из дождливых вечеров ей позвонили и попросили выйти на работу. К сожалению, все пошло не так, как планировалось, и вскоре на дежурстве она понимает, что не одна с мёртвыми...Тип издания: RepackРазработчик: DarkStone DigitalЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский (отдельно), Английский, Немецкий и другиеЯзык интерфейса: Русский (отдельно), Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2C1D22F2D5FC466F81BBFBD91315287DBDCA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 141958   (172150) от 19.10.2023
+
+Маски-шоу (1991-1999) 12xDVD5/DVD9
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Культовый телевизионный комедийный сериал в стилистике немой, гэговой комедии положений. За весь период существования, а на данный момент сериалу исполнилось 18 лет, создано более 100 серий, в среднем по 26 минут каждая. Сериал "Маски-шоу" был обнародован практически на всех крупных телевизионных каналах СНГ, неизменно пользовался и продолжает пользоваться (   Читать дальше...   )Производство: Украина, «Комик-труппа «Маски» (Одесса)Жанр: Комедийный сериалРежиссер: Георгий ДелиевАктеры: Участники комик-труппы "Маски" - Б. Барский, Г. Делиев, Э. Бледанс, В. Комаров, Н. Бузько, И. Токарчук, А. Постоленко, И. Малахов, М. Волошин и др.В ролях: Комик - труппа "Маски"Качество: DVD9Продолжительность: диски по ~90-230 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2D6CAC04077CC3D10899A0C6B0F9F2E75D2B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670322   (171966) от 20.10.2023
+
+Kaspersky Free 21.15.8.493 Repack by LcHNextGen (20.10.2023) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Free – это обновление бесплатной версии защиты. При переходе на это обновление вы получаете уже знакомое вам высокое качество защиты, дополненное нашими новыми разработками, с полностью обновленным интерфейсом для удобного использования.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B3E84691BAF4DDA9A772A7C68E223E4BD774E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670562   (171803) от 21.10.2023
+
+Parallels Desktop Business Edition 19 for Mac 19.1.0 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop 19 для Mac — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение такое, как Microsoft Office, без какого-либо ущерба для быстродействия.
+Parallels Desktop Business (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © 2022 Parallels International GmbHПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42CE11B0C9A8EE5870DAF7F05968D87B6EF76AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670780   (171616) от 22.10.2023
 
 MInstAll v.21.10.2023 By Andreyonohov (ISO) [Ru]
@@ -6,7 +189,7 @@ MInstAll v.21.10.2023 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +241,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5413.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +319,7 @@ F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +426,7 @@ City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +504,7 @@ The Lord of the Rings: Return to Moria (2023) [Ru/Multi] (1.0.0.112055) Repack O
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +530,7 @@ Cloudflare, Apple и Fastly объявили о создании нового п
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_170236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +634,7 @@ Rolls-Royce полагается на малые ядерные реакторы
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_169398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_168638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -488,188 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560214   (168605) от 11.12.2022
-
-Пыльный воротник / Tozluyaka (2022) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-23 из 26) SesDizi (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал о студентах, которые скоро покинут учебное заведения и познакомятся со взрослой жизнью. Ни для кого не секрет, что в студенческие годы чаще всего всё оплачивается родителями. Но, что делать тем студентам, бюджет которых сильно ограничен?Производство: Турция / NTC MedyaЖанр: драмаРежиссер: Семих БагджиАктеры: Чагла Шимшек, Серра Пиринч, Тайанч Айайдын, Долунай Сойсерт, Эмре Кынай, Небиль Сайын, Озгюр Дэниел Фостер и др.Перевод: Двуголосый любительский (SesDizi)Язык озвучки: РусскийПродолжительность: ~01:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28763DC29C849D3D28B3B44F8D53C0E3AD17641B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596662   (168542) от 11.12.2022
-
-Adobe Premiere Pro 2023 23.1.0.86 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro 2023 - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0893C088410924F8774C7610559109BD046B8CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596220   (168539) от 11.12.2022
-
-Освобождение / Emancipation (2022) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беглый раб пробирается через болота Луизианы, спасаясь от преследований хозяина плантации.Производство: США / 	Apple TV, CAA Media Finance, Escape ArtistsЖанр: боевик, триллерРежиссер: Антуан ФукуаАктеры: Уилл Смит, Бен Фостер, Чармэйн Бингва, Гилберт Овуор, Ронни Джин Блевинс, Аарон Мотен, Джаббар Льюис, Michael Luwoye, Стивен Огг, Грант Уитни ХарвиПеревод: дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full, SDH), английские (Forced, Full, SDH), иврит, украинскиеПродолжительность: 02:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007108BF497E82715C478B3F1F3A006F33A81246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596065   (168534) от 11.12.2022
-
-Воины будущего / Warriors of Future (2022) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168534.jpg" />
-</div>
-
-
-###  Подробнее
-
-2055 год. Планета задыхается от загрязнений и глобального потепления, и, видимо, чтобы окончательно избавиться от человечества, высшие силы посылают на Землю метеорит с агрессивной формой жизни. Этот замечательный организм начинает очищать планету от всего живого, включая людей. Но человечество сдаваться не собирается — хорошо вооруженные гонконгские военные дадут (   Читать дальше...   )Производство: Гонконг / One Cool Film Production, Hua Wen Movie Group, Media Asia FilmsЖанр: боевик, фантастикаРежиссер: Нг Юэнь-ФайАктеры: Луис Ку, Шон Лау, Филип Кюн, Карина Лау, Ник Чун, У Цянь, Цзэ Кван-Хо, Чэн Сяося, Лау Хо-Люн, Мак Тинь-ШуПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: русский, китайский, английскийСубтитры: русские, английские (forced, full, SDH), украинскиеПродолжительность: 01:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13665740A9DA15ACB9ACBFAF086F9E83C994DF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343116   (168422) от 12.12.2019
-
-Полицейский с Рублёвки. Полицейская академия (2019) WEB-DLRip (сезон 5, серии 1-8 из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168422.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Рублевке открывается полицейская академия. Возглавит новую структуру Владимир Яковлев, так что теперь будущее российской полиции полностью в руках полковника. Но поговаривают, что ему уже давно хотят присвоить генерала. Если, конечно, Володя и его команда смогут раскрыть одно очень запутанное дело.Производство: Россия / Legio Felix по заказу телеканала ТНТЖанр: комедия, криминалРежиссер: Илья КуликовАктеры: Сергей Бурунов, Роман Попов, Рина Гришина, Ростислав Гулбис, Александр Дерепко, Сергей Штатнов, София Каштанова и др.Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC2B552D4900946CDBD51D76D7F45E3A34063DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276376   (168403) от 12.12.2019
-
-Сергей Медведев. Загадки века (2019) SATRip (сезон 4, серий 35 из ??) (Обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот документальный цикл рассказывает о событиях, которые оставили важный след в мировой истории и имеют непосредственное отношение к нашей стране. Сериал основан на подлинных фактах, полученных из недавно открытых архивов ФСБ, СВР и РГВИА. Кроме этого в каждом фильме будут выдвинуты версии, во многом меняющие ранее существующее представление о том или ином событии. (   Читать дальше...   )Производство: Россия, ИП Медведев С.К., ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный история, расследованиеПродолжительность: 35 х ~ 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0812EED9D4BCF49DFE72F108BA2B002B8E308490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277476   (168381) от 28.10.2023
-
-Настоящий детектив / True Detective (2019) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-8 из 8) Novamedia
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие 3-го сезона «Настоящего детектива» происходит в городе Озарк, штат Арканзас, где детективам Уэйну Хэйсу и Роланду Уэсту предстоит расследовать загадочные исчезновения детей. В центре повествования окажутся «зловещие преступления в самом сердце Озарка и тайна, которая скрывалась несколько десятилетий». События охватят несколько десятилетий, переключаясь между (   Читать дальше...   )Производство: США / Anonymous Content, HBO Entertainment, PassengerЖанр: детектив, криминал, триллер, драмаРежиссер: Дэниэл Сакхайм, Ник Пиццолатто, Джереми СолньеАктеры: Махершала Али, Кармен Эджого, Стивен Дорфф, Рэй Фишер, Бретт Каллен, Дебора Айоринде, Риз Уэйкфилд, Теа Эмили Нельсон, Ричард Миэн и др.Перевод: Многоголосый закадровый, профессиональный - студия Novamedia по заказу AmediaСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D157AEE0AF48367F7EF97C1C87410245FDF7E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

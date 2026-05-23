@@ -1,3 +1,188 @@
+###  Публикация: 1437446   (1041824) от 05.01.2021
+
+Anno 1800 (2020) [Ru/Multi] (9.2/dlc) Uplay-Rip InsaneRamZes [Complete Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: Uplay-RipРазработчик: Blue ByteЖанр: Strategy, SimulatorЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B3FF9766A938EE413DD9D153DC02D04E96DB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245844   (1041820) от 05.01.2021
+
+Mi Band Master v3.1.4 Pro [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Master for Mi Band — Замечательное приложение для работы с умным браслетом Mi Band и умными весами Mi Scale. Невообразимый функционал, интересный дизайн, огромный потенциал — все это собрано в MBM. Теперь ты сможешь использовать Mi Band на максимум!
+
+Шагомер, измеритель пульса, анализ сна, умный будильник, использование кнопки (Mi Band 2), полноценное управление (   Читать дальше...   )Тип издания: Пиратка (Открыт Pro)Релиз состоялся: 27 октября 2020 г.Разработчик: BLACKNOTEПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD0139D856D01BEDEDF41130EEF9C8D558B1C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437321   (1041549) от 06.01.2021
+
+Премия Steam Awards 2020: геймеры выбрали игрой года Red Dead Redemption 2
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ещё 22 декабря 2020 года сотрудники компании Valve запустили премию Steam Awards 2020, в ходе которой геймеры голосовали за лучшие проекты в десяти категориях. В этот раз в каждой из категорий было представлено по пять популярных в определённом жанре игр, среди которых пользователь выбирал что-то наиболее интересное, а вчера, 3 января уже 2021 года, были подведены (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437979   (1041381) от 07.01.2021
+
+Очередное достижение: 4000 релизов от Lancelof!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 4000 релизов от Lancelof!Уважаемые одноклубники!
+Поздравляем нашего почетного релизера Lancelof с новым достижением - 4000 релизов!!!Lancelof спасибо за отличные релизы и регулярное наполнение нашего любимого сайта книжными новинками.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351769   (1041234) от 07.01.2021
+
+Новогодний ремонт (2019) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У Марго есть 24 часа, чтобы сделать ремонт в квартире к приезду дочери и мамы. В попытке найти решение, она случайно отправляет сообщение с просьбой о помощи всем контактам в телефоне. С этого момента дверной звонок звучит непрерывно, а в квартире Риты один за другим появляются старые и новые друзья — русский депутат, учитель-еврей, армянин — владелец ресторана. (   Читать дальше...   )Производство: Россия | "ВитЭл"Жанр: комедия, мелодрамаРежиссер: Артур ПинхасовАктеры: Зоя Бербер, Сергей Комаров, Артём Осипов, Эрик Бигуля, Вадим Галыгин, Ирина Розанова, Виталия Корниенко, Данил Стеклов, Макар Запорожский, Исмаил КонеПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831979C72D9CF79F31FC1355E4F37955B1316543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212463   (1041211) от 11.02.2023
+
+Акции всех магазинов России v125 (463) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 09.02.2023Разработчик: LLC ZIGZAG MOBILEПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F9B62D76F99D70099F14B6F7008EB4C47AE4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437863   (1040988) от 08.01.2021
+
+ADATA: карты памяти формата SD Express
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Компания ADATA Technology, вендор DRAM-модулей памяти, запланировал выпуск карт памяти нового поколения SD Express во II квартале текущего года. Ассоциация SD Association (SDA) приняла новый стандарт SD7.0, основным изменением которого стало включение поддержки интерфейсов PCIe и NVMe картами памяти SD, что позволит значительно увеличить их скорости чтения и записи. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608451   (1040959) от 12.02.2023
 
 High On Life (2022) [Multi] (1.11.4763.0) License RAZOR1911
@@ -6,7 +191,7 @@ High On Life (2022) [Multi] (1.11.4763.0) License RAZOR1911
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +217,7 @@ Osiris: New Dawn (2023) [Ru/Multi] (0.5.616) License TENOKE
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +243,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 08.01.21 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +269,7 @@ Udemy, Владилен Минин | JavaScript 2021 - Полное Руково
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +376,7 @@ CorelDRAW Graphics Suite 2020 22.2.0.532 RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +456,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.050/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +482,7 @@ Samsung SSD 990 Pro получил новую прошивку, которая �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +508,7 @@ Kage no Jitsuryokusha ni Naritakute! / The Eminence in Shadow / Восхожде
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -496,190 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C74C021D9C337148D7020043D581AFDA283BC2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367800   (1039409) от 14.01.2021
-
-The Outer Worlds (2019) [Ru/Multi] (1.4.1.617/dlc) Repack xatab (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039409.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Outer Worlds — новая однопользовательская научно-фантастическая ролевая игра с видом от первого лица, над которой работают Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики.Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF146DF531E9FD8062F83263332D3AD836C72BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439194   (1039206) от 15.01.2021
-
-Huawei выпускает собственный браузер для ПК, чтобы конкурировать с Google Chrome
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Huawei готовит к запуску собственный браузер для настольных ПК и ноутбуков в рамках развития собственной экосистемы. Как пишет профильный портал Huawei Central, вместе с ним на компьютерах появятся фирменный магазин компании (AppGallery), облачный сервис Huawei Cloud, поддержка мобильных сервисов Huawei Media Services (HMS) и ряд других приложений.Подробностей (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613073   (1038968) от 20.02.2023
-
-Заметаем цифровые следы: руководство к действию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Размещая в интернете (раз)личную информацию, многие даже не задумываются о рисках, которые могут таить в себе выложенные в отрытый доступ сведения. Рассказываем, как поменять настройки самых популярных сервисов, чтобы защитить персональные данные при работе в глобальной сетиПрирода интернета такова, что единожды размещённая в нём информация может храниться в публичном (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614067   (1038710) от 21.02.2023
-
-Роскомнадзор создал ПВО для интернета. Испытывается система обезвреживания инфобомб и хайпа
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роскомнадзор начал испытания новой системы «Вепрь». Она сможет оценивать информацию, а точнее «точки информационной напряженности», выявлять авторов анонимных сообщений и прогнозировать развитие хайпа вокруг различных тем. Эксперты в последнее пока не верят.ПВО для интернета
-Подведомственный Роскомнадзору ФГУП «Главный радиочастотный центр» (ГРЧЦ) начал испытания (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440323   (1038626) от 17.01.2021
-
-Adobe After Effects 2020 (17.6.0.46) Portable by XpucT [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038626.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects CC – это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2B618557BF1DDF7528EA100C37A2103E701401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440498   (1038614) от 17.01.2021
-
-Windows 7 SP1 6.1 (Build 7601.24564) (13in2) x86/x64 by Sergei Strelec [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ Windows 7 с интегрированными обновлениями по 16.01.2021
-Интегрированы обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F4F53933EC248FB7A6237D0F0A88621BE9EDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509814   (1038468) от 22.02.2023
-
-Bright Memory: Infinite (2021) [Ru/Multi] (1.42/dlc) License GOG [Ultimate Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038468.jpg" />
-</div>
-
-
-###  Подробнее
-
-2036 год. По всему миру в небе наблюдается странное явление, найти объяснение которому ученым не под силу. SRO (Сверхестественная научно-исследовательская организация) отправляет своих агентов в разные регионы для исследования этого феномена. Вскоре становится ясно, что эти странные происшествия связаны с одной древней загадкой — пока еще неизвестной историей о двух (   Читать дальше...   )Тип издания: LicenseРазработчик: FYQD-StudioЖанр: Шутеры, Экшны, ФантаcтикаЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36D2C8601B8FCF77FAD514F46564EFD404B912B
 ```
 
 https://mybot314.ru/tekegram_catalog/

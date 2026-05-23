@@ -1,3 +1,109 @@
+###  Публикация: 1254204   (627322) от 08.04.2019
+
+Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волшебства TV-3 [2018, TV, 26] HDTV 720p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Неспокойная жизнь всё продолжает преследовать Тому Камидзё, обладателя дара эспера и сокрушительного навыка «Разрушитель барьеров». Ведь ещё бы — ему приходится делить крышу над головой с неугомонной монахиней Индекс, являющейся для всех целью №1, содержа в своей голове более 103-х тысяч запрещённых Церковью магических гримуаров.Приключения невезучего Томы Камидзё, (   Читать дальше...   )Производство: Япония, J.C. StaffЖанр: приключения, комедияРежиссер: Нисикиори ХиросиПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C89577D855F62B97BEFAF25E7BC23AE40FB16AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229095   (627321) от 08.04.2019
+
+High School DxD Hero | Демоны старшей школы 4 [2018, TV, 13] HDTV 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Хёдо Иссэя и его небольшого гарема. Что же его ждёт в этом сезоне?Производство: Япония, Passione / パッショーネЖанр: комедия, фэнтези, эттиРежиссер: Суэда ЁсифумиПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2465C4E6BB00231068095475BA0C2CEC0E1C123F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793299   (626200) от 06.07.2014
+
+Escha & Logy no Atelier: Tasogare no Sora no Renkinjutsushi / Мастерская Эски и Логи: Алхимики Сумрачного Неба [2014, TV, 12 ep] HDTV 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Городок Колсейт стоит на границе королевства с Сумрачными землями – пустыни с руинами древней цивилизации. Когда-то он задумывался как база исследования огромного острова, парящего в небе неподалеку, но корабли не смогли достичь цели, и проект прикрыли – воздушный порт, правда, оставили. Благодаря нему город выжил, жители развели знаменитые яблочные сады, а Научно-техническое бюро, представляющее центральную власть, понемногу изучает окрестные руины и решает текущие проблемы. Главной наукой этого мира является алхимия, и вот в НТБ Колсейта одновременно приходят два молодых специалиста – местная уроженка Эска и столичный парень Лоджи.
+
+Юные алхимики принадлежат к разным школам: если Эска занимается синтезом в дедовском котле, то Лоджи использует новомодные горн и тигель. На результат это не влияет – ребята могут чинить машины и варить зелья с одинаковым успехом. Неугомонную Эску все время тянет к приключениям, в итоге рядовая миссия по очистке воды в ближайшей деревне может превратиться в полноценный рейд по неизведанным (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Ивасаки ЁсиакиПеревод: anipaladinФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CC3722E6E0301CE3176242BE56D5DE3CB33034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035488   (625900) от 17.07.2016
+
+Kurogane no Linebarrels / Linebarrels of Iron / Стальные Лайнбаррели [2009, TV, 24] HDTV 720p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 2019-м году человечество пытается решить проблему боевых роботов «МАКИНА», обладающих искусственным интеллектом и высокой синхронизацией с пилотом. Время от времени такие меха прибывают с околоземной орбиты. Чтобы встретить «гостя» и не допустить больших повреждений, существует корпорация JUDA. Но однажды во время операции по обезвреживанию меха по имени Лайнбаррель (   Читать дальше...   )Производство: Япония, GonzoЖанр: приключения, фантастика, мехаРежиссер: Хидака МасамицуПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCF11E75E23856A4E6C062D7614F74E6E17B13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229802   (622262) от 08.06.2018
 
 Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных добродетелей [2018, TV, 10+2  из 10+2] BDRip 1080p 10-bit raw+rus
@@ -6,7 +112,7 @@ Nanatsu no Bitoku | The Seven Heavenly Virtues | Семь небесных до�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ Ayakashi / Аякаси [2007, TV, 12] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Lupin Sansei: Cagliostro no Shiro / Lupin III: The Castle of Cagliostro / Люп
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +219,7 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +245,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +271,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +300,7 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +326,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +352,7 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +378,7 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +406,7 @@ Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +432,7 @@ Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +458,7 @@ ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +484,7 @@ Beatless / Мёртвый ритм [2018, TV, 20 ep + 4 sp] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +512,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +564,7 @@ Tsuki ga Kirei / Какая красивая луна! [2017, TV, 12 ep] HDTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +590,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +616,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +642,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +668,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,113 +679,6 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1793D7B219EA751BFE50E39C01833F3CF09CB80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299113   (599589) от 01.05.2019
-
-Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [2018, TV, 50 из 100] WEB-Rip raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестая аниме-адаптация по мотивам манги гениального иллюстратора и признанного мастера жанра фольклорных историй из жизни ёкаев Сигэру Мидзуки, скончавшегося в 2015 году в возрасте 93 лет, приуроченная к пятидесятилетию оригинального сериала «Щелкунчик Китаро».
-В XXI веке с ростом технологического прогресса люди, окружённые больше не считающимися фантасмагорией девайсами (   Читать дальше...   )Производство: Япония, студия Toei AnimationЖанр: приключения, фэнтезиРежиссер: Огава КодзиПеревод: Русские - Crunchyroll до 37 серии (Внешние отдельным файлом .ass)Язык озвучки: Японский и русский (Профессиональный (Многоголосый) Studioband / Wakanim)Субтитры: РусскиеПродолжительность: 50 эп. по ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EC0066FECFD2BDB302CBBAF54FC6F2BDF1E1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198091   (597601) от 25.06.2018
-
-Grancrest Senki / Record of Grancrest War / Легенда о Гранкресте [2018, TV, 24 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597601.jpg" />
-</div>
-
-
-###  Подробнее
-
-У жителей континента, где происходят события аниме, есть общий враг, и это демоны, называемые Хаосом, которые неустанно угрожают континенту бедствиями, разрушениями и смертями. Конечно, наличие общего врага обычно объединяет, так и было в самом начале, когда Правители этого континента отбивали атаку Хаоса с помощью Гербов, дающих им сверхъестественные силы. Но жадность (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Омата СинъитиЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 24 эпизода по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C2D5CCB24E363053FD50AFE424879CCF0887D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039265   (597362) от 31.07.2016
-
-Cowboy Bebop: Tengoku no Tobira / Ковбой Бибоп: Достучаться до небес (2001) HDRip [H.264] (ВидеоСервис ) [MP4|720x552@1024x552]
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марс, 2071 год. В самый канун Хэллоуина, когда на Земле по улицам ходят ряженые, а дети украшают дом тыквенными головами со свечками внутри, Красную планету постигает страшная трагедия. В результате теракта с применением биохимического оружия массового поражения погибают сотни колонистов. Тот, кто совершил это злодеяние должен понести заслуженную кару, поэтому за (   Читать дальше...   )Производство: Япония, США / Sunrise Inc., Bandai Visual Co. Ltd., BonesЖанр: Аниме, Мультфильм, Фантастика, Боевик, Триллер, КомедияРежиссер: Синъитиро Ватанабэ, Хироюки ОкиураАктеры: Коити Ямадера, Унсё Исидзука, Мэгуми Хаясибара, Аой Тада, Юсаку Яра, Кадзухико Иноэ, Дзюрота Косуги, Кинрю Аримото, Хидэкацу Сибата, Юдзи УэдаПеревод: Многоголосый закадровый - ВидеоСервисЯзык субтитров: РусскийПродолжительность: 01:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425D3A3B3CB23E1E6CB8B1B220AC07F4DFD9B4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676697   (597196) от 02.05.2019
-
-Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпион [2012, TV, 13] BDrip 720p Hi10P raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое страшное существо во Вселенной – японский школьник, вступивший в пору весны юности! Потому 16-летний Годо Кусанаги ничуть не удивился, когда чудаковатый дедушка послал его, не знающего ни дороги, ни языка, в Италию - вернуть старой знакомой некую каменную табличку. Бравый парень тем более не потерялся, когда узнал, что кругом бродят маги, чудища и древние боги – ведь в аниме, манге и ранобэ все рецепты давно расписаны! Потому, победив с помощью чудесной таблички и резковатой красотки Эрики Бланделли персидского бога Веретрагну, Кусанаги спокойно принял божественные способности, став одним из семи «кампионе» - супервоинов, способных поражать даже небожителей. После этого, как и положено, герой вернулся домой и поступил в старшую школу.
-
-Разумеется, Эрика, оказавшаяся рыцарем-магом из тайной организации «Черный крест», последовала за «любимым» в Японию, ибо не хотела терять из виду перспективного парня. Только в стране Ямато тоже не дураки живут, и к Кусанаги соответствующие структуры мастерски «подвели» Юри (   Читать дальше...   )Жанр: приключения, экшенРежиссер: Кусакава КэйдзёПродолжительность: 13 серий по 24 минуты
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

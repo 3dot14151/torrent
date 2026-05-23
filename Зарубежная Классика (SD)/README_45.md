@@ -1,3 +1,110 @@
+###  Публикация: 1285970   (706788) от 05.03.2019
+
+Человек с бьюиком / L'homme a la Buick (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Богач и добряк мсье Арман Фавро приезжает в маленький городок Анфлер. Что он собирается делать здесь? Жить, ведь он купил одну из лучших вилл на побережье.
+Все складывается прекрасно: в первые же минуты после приезда он встречает прелестную вдову мадам де Лейрак и влюбляется. Но чем сильнее любовь, тем больше расходы.
+И мсье Фавро отправляется в Париж к друзьям. (   Читать дальше...   )Производство: Франция / Gafer, Les Films CopernicЖанр: КомедияРежиссер: Жиль ГранжьеАктеры: Фернандель, Даниель Дарьё, Жан-Пьер Марьель, Амаранд, Кристиан Барбье, Бернар Деран, Эдмон Ардиссон, Рауль Кюре, Жан Дэниэл, Альбер ДинанПеревод: Профессиональный (двухголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28B6CF7F3D2F66854741D9B7AB517BB796397D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 671038   (706263) от 23.06.2013
+
+2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Человечество давно задавалось вопросами: «кто мы?», «зачем мы здесь?», «куда мы идем?»… Теперь у человечества появилась возможность ответить на эти вопросы. Космический корабль, на котором находятся капитан Дэйв Боумэн и капитан Фрэнк Пул, а так же совершеннейший из созданных на Земле компьютеров – ХЭЛ 9000, отправляется в загадочный район галактики, где, как считается, (   Читать дальше...   )Жанр: ФантастикаРежиссер: Стэнли КубрикАктеры: Роберт Битти, Кир Дулли, Уильям Сильвестр, Дэниэл Риктер, Шон Салливан, Дуглас Рэйн, Леонард Росситер, Маргарет Тайзэк, Гэри Локвуд, Фрэнк МиллерПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 02:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4340CC971694D3047B8038983AC5AA333DB99349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022844   (705786) от 14.06.2016
+
+Топкапи / Topkapi (1964) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Турции, в Стамбуле, в суперохраняемом дворце бывшего султана, который теперь называется музеем Топкапи, находится бесценный древний кинжал ювелирной работы, стоимость которого превышает все мыслимые и немыслимые пределы.
+Понятное дело, что находятся безбашенные авантюристы, которые решают завладеть сокровищем. Они разрабатывают гениальный план ограбления и поэтапно (   Читать дальше...   )Производство: США / Filmways PicturesЖанр: Триллер, Комедия, Криминал, ПриключенияРежиссер: Жюль ДассенАктеры: Мелина Меркури, Питер Устинов, Максимилиан Шелл, Роберт Морли, Джесс Хан, Жиль Сегаль, Аким Тамирофф, Титос Вандис, Джо Дассен, Деспо Диамантиду, Жюль ДассенПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D8E75F01910BBC98A79240154CDB2DFF521EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022655   (705780) от 14.06.2016
+
+Все свои / Sami swoi (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История давней ссоры двух крестьянских семей — Павляков и Каргулей. Перед войной Каргуль-старший при распашке поля захватил у Павляков земли… всего на 3 пальца. Это привело к тому, что сгорели два сарая, пролилась кровь, а Яська Павляк, опасаясь ответственности за удар косой по Каргулю, был вынужден бежать в Америку. Закончилась Вторая мировая война, обе семьи переехали (   Читать дальше...   )Производство: ПольшаЖанр: Комедия, экранизацияРежиссер: Сильвестр ХенчиньскийАктеры: Вацлав Ковальский, Владислав Ханьча, Здислав Карчевский, Илона Кусьмерская, Ежи Янечек, Мария Збышевская, Галина Буйно, Александр Фогель, Элиаш Куземский, Витольд Пыркош, Казимеж ТалярчикПеревод: Авторский одноголосый (pandoctor)Язык субтитров: РусскийПродолжительность: 01:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893C571EC34E476CF34A0CCFE19EBF95FC35D250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022669   (705583) от 14.06.2016
 
 Не гони волну / Don't Make Waves (1967) HDTVRip
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_702757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:929DFA86B61763FE846C102FE6FFE6B565DE580D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024610   (697893) от 18.06.2016
-
-Колосс: Проект Форбина / Colossus: The Forbin Project (1970) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Построенный для защиты и помощи управления всей страной суперкомпьютер, внезапно отказывается подчинятся человеку и начинает следовать по своему собственному усмотрению.Производство: СШАЖанр: Фантастика, триллерРежиссер: Джозеф СарджентАктеры: Эрик Браден, Сьюзен Кларк, Гордон Пинсент, Уильям Шэллерт, Георг Стэнфорд Браун, Уиллард Сэйдж, Мартин Э. Брукс, Мэрион РоссПеревод: Любительский одноголосый (eraserheads)Субтитры: ОтсутствуютПродолжительность: 01:36:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE60DF5E3FDA332969AFC2D543D9B70D80DE833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793891   (697839) от 08.06.2014
-
-Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка в тяжелые годы Великой депрессии. Всюду безработица, бедность, люди уезжают из родных мест в поиска лучшей доли на чужбине и берутся за любую работу, чтобы заработать на кусок хлеба и крышу над головой. Поэтому не удивительно, что весьма сомнительный «крупнейший в мире» танцевальный марафон с призом в 1500 долларов легко собрал в мрачном ангаре на побережье (   Читать дальше...   )Производство: США, American Broadcasting Company (ABC), Palomar Pictures CorporationЖанр: ДрамаРежиссер: Сидни ПоллакАктеры: Джейн Фонда, Майкл Сарразин, Сюзанна Йорк, Гиг Янг, Ред Баттонс, Бонни Беделиа, Майкл Конрад, Брюс Дерн, Аль Льюис, Роберт ФилдсПеревод: ДублированныйСубтитры: нетПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF362603E61B8F8B9362D2A1D944F6625892CE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531915   (697399) от 28.02.2022
-
-Часовщик из Сен-Поля / L'horloger de Saint-Paul (1974) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мишель узнаёт от полиции, что его сын Бернар убил человека и скрывается вместе со своей подружкой. Мишель пытается разобраться в мотивах преступления, но внезапно понимает, как мало он знает о собственном сыне.
-Чем он может помочь Бернару? Простому часовщику из Сен-Поля остаётся наблюдать, как самый близкий человек уходит из его жизни. Но отцу не в чем винить сына.Производство: Франция / Lira FilmsЖанр: Драма, КриминалРежиссер: Бертран ТаверньеАктеры: Филипп Нуаре, Жан Рошфор, Жак Дени, Ив Афонсо, Жюльен Берто, Жак Иллинг, Клотильда Жоано, Андре Таинси, Вильям Сабатье, Сесиль ВассорПеревод: Многоголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D13B93C60ECA8AFB557DF8E4224D2A721AD7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531877   (697396) от 28.02.2022
-
-Пройдоха / Прохвосты / I tartassati (1959) [H.264] BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убеждённый в том, что налоги слишком высоки, владелец магазина тканей Торкато Пеццелла хотел бы утаить свои доходы или, хотя бы, часть их. Хитрец разными способами отвлекает инспектора, проверяющего финансовые дела Торкато, от внимательного чтения бухгалтерских книг. Тем временем, дочь сборщика налогов — Лаура влюбляется в сына торговца — Тино...Производство: Франция, Италия, CEI Incom, Champs-Élysées Productions, Maxima Film Compagnia Cinematografica, Société Nouvelle des Établissements Gaumont (SNEG)Жанр: комедияРежиссер: СтеноАктеры: Тото, Альдо Фабрици, Луи де Фюнес, Катя Каро, Лучано Марин, Анна Кампори, Нандо Бруно, Миранда Кампа, Фернан Сарду, Анна Мария БоттиниПеревод: профессиональный многоголосый (5 канал с добавлением Р. Янкелевича), авторский (Роман Янкелевич)Субтитры: нетПродолжительность: 01:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866354BFF5515036A81014D67FB01F2121FFC3A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

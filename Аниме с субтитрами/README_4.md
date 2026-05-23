@@ -1,3 +1,108 @@
+###  Публикация: 1846463   (1051337) от 21.01.2026
+
+Okiraku Ryoushu no Tanoshii Ryouchi Bouei |  Весёлая защита владений беспечного лорда: Превращение безымянной деревни в неприступную крепость с помощью производственной магии [2026, TV, 1 из 12] WE ...
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой переродился в другом мире четвёртым сыном могущественного дворянина по имени Ван. Но из-за того, что Вану была дарована сила «производственной магии», не подходящая для дворянина, его изгнали из родового дома в отдалённую бедную деревню и назначили её лордом. Однако Ван начинает счастливо жить в изгнании, использую свои магию и знания из прошлой жизни, (   Читать дальше...   )Производство: NazЖанр: фэнтези, исекайРежиссер: Kuriyama Takayuki, Tatamitani TetsuyaПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7A75EF5105948FFC92A184478B0A99FF919D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846496   (1051322) от 21.01.2026
+
+29-sai Dokushin Chuuken Boukensha no Nichijou / The Daily Life of a Single 29-Year-Old Adventurer / Повседневная жизнь одинокого 29-летнего авантюриста [2026, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта история о Синономе Хадзиме, авантюристе из Серебряного хребта. Он посвятил себя выполнению заданий от гильдии. Однажды, выполняя квест по добыче мяса монстров, он находит в подземелье странную девушку по имени Лили, которая доставляет ему гораздо больше хлопот, чем приносит пользы. Спасая девушку от верной гибели, он вспоминает о своем похожем прошлом и берет (   Читать дальше...   )Жанр: приключения, комедия, повседневность, фэнтези.Режиссер: Фукусима ТосинориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 минут.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D26FF58312FDB37DDD98731F98E21FD505426F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846310   (1051315) от 
+
+Isekai no Sata wa Shachiku Shidai | Isekai Office Worker: The Other World's Books Depend on the Bean Counter | Судьба параллельного мира в руках трудоголика [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Уже находясь на грани отчаяния, 29-летний корпоративный раб Сэйитиро Кондо внезапно становится свидетелем того, как земля раскрывается и поглощает женщину. В попытке спасти ее, они оба попадают в другой мир. Вскоре он узнает, что жители этого мира вызвали святого, чтобы спасти свое королевство от чумы. В качестве компенсации за то, что втянули Кондо в эту заварушку, (   Читать дальше...   )Производство: Studio DeenЖанр: исекай, фэнтезиРежиссер: Ishihira ShinjiПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB2136C4663B410BC97956976E7ADBAE37FFC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846330   (1051311) от 20.01.2026
+
+Maou no Musume wa Yasashi Sugiru!! / The Daughter of the Demon Lord is Too Kind! / Дочь короля демонов слишком добрая! [2026, TV, 2 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+У демона Аримана есть проблема: его дочь Ду любит всех! В результате Ариман был вынужден приостановить свое вторжение в мир, опасаясь, что поведение его дочери не соответствует ее роду. Она любит заводить друзей, помогать другим и приносить счастье всем существам, включая своих врагов, людей.
+Однако Ариман, вместо того чтобы ругать Доу, поздравляет ее с добрыми поступками. (   Читать дальше...   )Жанр: комедия, повседневность, фэнтези.Режиссер: Ота МасахикоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 минут.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870E86AF91FB005EE582A969320A2E4F5DE3945E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846307   (1051310) от 15.01.2026
 
 Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p raw
@@ -6,7 +111,7 @@ Tasokare Hotel | Отель Тасокарэ [2025, TV, 1 из 12] WEB-DL 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Mayonaka Heart Tune / Tune In to the Midnight Heart / Полуночный мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Yuusha Party ni Kawaii Ko ga Ita no de, Kokuhaku Shite Mita. / There Was a Cute 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Vigilante: Boku no Hero Academia Illegals 2 | Моя геройская акад
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Kirei ni Shite Moraemasu ka. / Wash It All Away / Можете постират�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Osananajimi to wa Lovecome ni Naranai / You Can't Be In a Rom-Com with Your Chil
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Golden Kamuy Saishuushou | Golden Kamuy Final Season | Золотое божес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +295,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku / Sentenced to Be a 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +322,7 @@ Nukitashi the Animation - Special | Нукитаси - Спэшл [2025, SP, 4 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +351,7 @@ Majutsushi Kunon wa Miete Iru | Kunon the Sorcerer Can See Through | Волше�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +377,7 @@ Hanazakari no Kimitachi e | Hana-Kimi | Для тебя во всём цвету
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -299,7 +404,7 @@ Ikoku Nikki | Дневник другой страны [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +430,7 @@ Kizoku Tensei: Megumareta Umare kara Saikyou no Chikara o Eru / Noble Reincarnat
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +456,7 @@ The Daily Life of a Part-Time Torturer | Goumon Baito-kun no Nichijou | Повс
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -379,7 +484,7 @@ Gnosia | Гносия [2025, TV, 12 из 24] WEB-DL 1080p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -406,7 +511,7 @@ Tamon's B-Side | Tamon-kun Ima Docchi!? | Какой сейчас Тамон?! [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +538,7 @@ MF Ghost 3rd Season | MF Призрак [ТВ-3] [2026, TV, 1 из 12 эп.] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -459,7 +564,7 @@ Yuusha Party o Oidasareta Kiyoubinbou / Jack-of-All-Trades, Party of None / Ма
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +591,7 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -512,7 +617,7 @@ Shuumatsu no Walkure III | Record of Ragnarok III | Повесть о конце
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +643,7 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +671,7 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,110 +682,6 @@ New Panty and Stocking with Garterbelt | Панти, Стокинг и Гарт�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E457EDB5C4E9D9B3F84E5A9839950167AC873DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841256   (1047880) от 10.12.2025
-
-Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Человек-бензопила. Фильм: История Резе [2025, Movie] WEB-DL 2160p HEVC 10-bit HDR raw+rus
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэндзи, который уже некоторое время работает в Бюро общественной безопасности, целыми днями только и думает о том, как стать ближе к Макиме — не только его начальнице, но и объекту его воздыханий. Дэндзи уверен в искренности своих чувств и даже не допускает мысли, что кто-то может затмить красоту и очарование его возлюбленной. По крайней мере, он так думал, пока (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Фудзимото ТацукиПеревод: Архив Субтитров (Donate & Тэнши) + МАНИПУЛЯТОР (Пельмеш & Pinger)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8F33DFD5355EB7A1D9B00E9091DD16E874FF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841121   (1047839) от 09.12.2025
-
-Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Человек-бензопила. Фильм: История Резе [2025, Movie] WEBRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэндзи, который уже некоторое время работает в Бюро общественной безопасности, целыми днями только и думает о том, как стать ближе к Макиме — не только его начальнице, но и объекту его воздыханий. Дэндзи уверен в искренности своих чувств и даже не допускает мысли, что кто-то может затмить красоту и очарование его возлюбленной. По крайней мере, он так думал, пока (   Читать дальше...   )Производство: Япония, студия MappaЖанр: экшен, приключенияРежиссер: Тацуя ЁсихараПеревод: iTunes (Екатерина Левина)Язык озвучки: Английский, ЯпонскийСубтитры: Английские, Русские (srt)Продолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F140FF842D9B102DD278DA552A7F244C0D19A481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840183   (1047154) от 04.12.2025
-
-Medalist | Медалистка [2025, TV, 13 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taнцы нa льдy — coвceм нe тo, к чeмy cтpeмилcя Цyкaca Aкэypaджи, кoгдa peшил пoкopить миp фигypнoгo кaтaния. Oднaкo имeннo здecь oн и oкaзaлcя, пocкoлькy «нaчaл cлишкoм пoзднo», чтoбы cтaть ycпeшным oдинoчникoм. Пятиклaccницa Инopи Юицyкa тaк oтчaяннo xoтeлa кaтaтьcя нa кoнькax, чтo тaйнo тpeниpoвaлacь нa кaткe, кyдa Цyкaca пpишёл ycтpaивaтьcя пoмoщникoм тpeнepa. (   Читать дальше...   )Производство: Студия EngiЖанр: спортРежиссер: Ямамото ЯсутакаПеревод: Архив Субтитров (Donate, Тэнши)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по ~23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509360B9D2EFD4574847A7A94B3A4C752AC69E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587162   (1046410) от 01.01.2023
-
-Mamahaha no Tsurego ga Motokano Datta | My Stepmom's Daughter Is My Ex | Дочь моей мачехи - моя бывшая девушка [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мизуто Иридо и Юме Аяи были парой в средней школе, поначалу всё шло хорошо, но чем дальше, тем отношения становились хуже, и к моменту окончания средней школы они расстались. Но за день до поступления в старшую школу они вновь встретились самым неожиданным образом: их родители объявляют о браке, а Мизуто и Юме становятся сводными братом и сестрой. Ставя чувства и (   Читать дальше...   )Производство: студия Project No.9Жанр: комедия, романтика, повседневностьРежиссер: Янаги СинсукэПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3645F224A0FFBAF8E8E9583F97EC7E738ABC131D
 ```
 
 https://mybot314.ru/tekegram_catalog/

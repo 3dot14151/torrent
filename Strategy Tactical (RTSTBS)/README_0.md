@@ -1,3 +1,55 @@
+###  Публикация: 1840062   (1047036) от 02.12.2025
+
+Outpost: Infinity Siege (2024) [Ru/Multi] (2.0/dlc) Repack Let'sРlay [Vanguard Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Outpost: Infinity Siege - это гибридная игра, сочетающая в себе кооперативный шутер от первого лица с элементами стратегии, управлением базой и защитой башен. Игроки управляют мобильной заставой, отправляясь в запретные зоны для сбора ресурсов, при этом им нужно отбиваться от бесконечных волн врагов, строить оборонительные сооружения и улучшать свое снаряжение.Тип издания: RepackРазработчик: Team RangerЖанр: Экшены, СтратегииЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA81430E55AC6ED3A41452E98C5437E1DA813AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839720   (1046826) от 30.11.2025
+
+Broken Arrow (2025) [Ru/Multi] (1.0.11.2/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Broken Arrow - это масштабная военная тактическая игра реальном времени, где сочетается комплексный подход варгеймов, в которых используются разные рода войск, с динамичным, тактическим игровым процессом. В игре насчитывается более 300 реалистичных военных подразделений и технологий, а каждая битва дает полное погружение в процесс и имеет бесконечное множество вариантов (   Читать дальше...   )Тип издания: RepackРазработчик: Steel BalalaikaЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2717E2DBA41A5F362D66BDB36748C7A66FF70070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261483   (1041815) от 05.01.2021
 
 Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
@@ -6,7 +58,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.5.113/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Brigador (2017) [Ru/Multi] (1.65b/dlc) License GOG [Up-Armored Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Mahokenshi (2023) [Ru/Multi] (1.1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Battlefleet Gothic: Armada 2 / Battlefleet Gothic: Armada II (2019) [Ru/Multi] (
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Punk Wars (2021) [Ru/Multi] (1.2.11/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Wasteland 3 (2020) [Ru/Multi] (j2956/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Iron Harvest (2020) [Ru/Multi] (1.1.2.2001/dlc) Repack xatab [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (Build 44725) License CO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.10.0/dlc) License GOG [Omnis
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (45340/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Stronghold: Warlords (2020) [Ru/En] (1.0.19135) Repack West4it
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Iron Harvest (2020) [Ru/En] (1.1.4.2102/dlc) Repack Other s [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.0.19584.2) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Star Renegades (2020) [Ru/Multi] (1.3.1.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Empires in Ruins / На развалинах империй (2021) [Ru/Multi] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Adeptus Titanicus: Dominus (2021) [Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +474,7 @@ They Are Billions (2019) [Ru/Multi] (1.1.4.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.13.010) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Defender's Quest: Valley of the Forgotten (2012) [Ru/Multi] (2.2.6) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (6877287) License Fairlight
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +578,7 @@ UFO2: Extraterrestrials - Battle for Mercury (2021) [Ru/Multi] (1.0) License FAi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (6998499) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.0.15624) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FAB0D13B771FD209B2E340462536C43CAD721D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839242   (1003366) от 27.11.2025
-
-Day of the Shell (2025) [Ru/Multi] (1.1.10) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Day of the Shell – это динамичная тактическая игра в жанре роглайт, где каждый ход совершается одним щелчком мыши. Мир пал, не выдержав божественного гнева, и от всей планеты осталась жалкая горстка островов, по которым для божественного развлечения и предстоит путешествовать одинокой охотнице на монстров.Тип издания: LicenseРазработчик: Duper GamesЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FAC25091A4673BDA280AE3110A4970F12F0ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326634   (1002865) от 07.01.2020
-
-Men of War: Assault Squad 2 - Cold War (2019) [Ru/Multi] (1.006.0) Repack xatab
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная стратегическая серия «В тылу врага» наконец добралась до эпохи холодной войны. Вам предстоит выполнять боевые задачи, командуя войсками США или СССР. Под вашим началом окажутся огромные армии, в составе которых действуют как регулярные части, так и спецподразделения. В числе прочего вы получите в свое распоряжение большое число единиц боевой техники, (   Читать дальше...   )Тип издания: RepackРазработчик: DigitalmindsoftЖанр: Экшены, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABFE5B6F8FF582045D9030A5C522B91D33F78AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

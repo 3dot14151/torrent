@@ -1,3 +1,84 @@
+###  Публикация: 1293927   (631686) от 06.04.2019
+
+Том Вандербильт | ЦА. Как найти свою целевую аудиторию и стать для нее магнитом (2019) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В эпоху безграничного выбора среди брендов и китайских аналогов понравиться становится все сложнее. Конкуренты не упустят шанса вырваться вперед и отжать рынок. Том Вандербильт, исследователь человеческого поведения в области маркетинга и психологии, уверен: вкус можно не только предвидеть, но и управлять им. В книге он раскрывает, как определить своего главного (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:408E58A30351319EB0E7BE16461C77FF67D4179C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908390   (631415) от 15.06.2015
+
+Роберт Саттон | Охота за идеями. Как оторваться от конкурентов, нарушая все правила (2013) [PDF, DOCX, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Строго придерживаясь традиционных методов менеджмента и требуя неукоснительного подчинения от сотрудников, не ждите, что ваша компания будет бурлить от новых идей. При этом без постоянного поиска и реализации новых возможностей ни одна компания эффективно развиваться не может.
+Если же вы хотите создавать интересные продукты, стимулировать творческий потенциал сотрудников, (   Читать дальше...   )Жанр: БизнесФормат: PDF, DOCX, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47EFB6ED796257A5E1FD9AFA299A1B564733EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908646   (631271) от 15.06.2015
+
+Скотт Паттерсон | Кванты. Как волшебники от математики заработали миллиарды и чуть не обрушили фондовый рынок (2013) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бойтесь гиков, формулы приносящих. (Уоррен Баффет)
+Эта книга о квантах - королях Уолл-стрит, колдующих над фондовым рынком. О тех, кто устроил кризис 2007 года, кто сейчас выводит из него мировую экономику и, увы, имеет возможность повторить этот круг еще не раз.
+Что мы знаем о людях, творящих финансовую историю? Ничего, кроме стереотипов. Они делают деньги из ничего? (   Читать дальше...   )Жанр: Биографии и Мемуары, Ценные бумаги, инвестицииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31C1CAAACF7FCE867F9E33783E7241D9251856C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908606   (631270) от 15.06.2015
 
 Джон Янч | По рекомендации. Бизнес, который продвигает себя сам (2015) [PDF, DOCX, EPUB]
@@ -6,7 +87,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,84 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACF4D630072C6BE8EC55F4FA85EEF00BFA4A860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910111   (621277) от 20.06.2015
-
-Антон Петроченков, Евгений Новиков | Идеальный Landing Page. Создаем продающие веб-страницы (2015) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посадочная страница (landing page) — так в Интернете называют те страницы сайта, на которые чаще всего попадают посетители, открывающие сайт из поисковиков. Важность посадочных страниц сложно переоценить: это входные ворота любого сайта, можно даже сказать — витрина веб-ресурса. Как вы уже догадываетесь, посадочные страницы идеально подходят для размещения различной (   Читать дальше...   )Жанр: Реклама, дизайн, бизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590ADA04BF845746BB35D7452A437E7E476A399C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910846   (619851) от 21.06.2015
-
-Гарри Вольф | От офисного рабства к финансовой свободе (2015) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этой книги – не развлечь читателя, а дать ему максимально практическую информацию. Книга будет интересна в первую очередь тому, кто по тем или иным причинам не хочет больше работать на других, а желает обрести финансовую независимость, открыв свое дело. Эта книга - пошаговое практическое руководство по созданию собственного бизнеса.Жанр: Общий менеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BDE242F23AAD38216E2F546EA72E37C6ECC021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036431   (618822) от 21.07.2016
-
-Дэвид Аакер | Аакер о брендинге. 20 принципов достижения успеха (2016) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Аакер – одна из самых крупных фигур мирового брендинга. Его книга – результат многолетней успешной практики – представляет собой двадцать простых, эффективных, доступных принципов достижения успеха. Никаких абстрактных рекомендаций и советов, только конкретные тактики, схемы, концепции и приемы, результатом реализации которых становится разработка, расширение (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3147C89258C18D02122243E59015A5632EB9AFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

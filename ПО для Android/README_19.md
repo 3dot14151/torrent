@@ -1,3 +1,83 @@
+###  Публикация: 1613149   (1039831) от 17.02.2023
+
+Медпомощь При ДТП v1.1.7 [Ru/Ua]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Приложение представляет собой пособие по оказанию экстренной медицинской помощи при ДТП. Содержит в себе алгоритм действий в первые минуты после аварии, особенности оказания первой помощи в тяжелых условиях, а также:Тип издания: ProРелиз состоялся: 12.08.2022Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2E28D2E01E7B84D34BF42E176B3511B83BB237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439510   (1039779) от 13.01.2021
+
+Славяно-Арийский Календарь v31 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Древний Славяно-Арийский Календарь-Часы (Коляды Дар) с конвертером: нумерология, славянский гороскоп и многое другое.
+Гой еси! Представляем Вашему вниманию приложение Славяно-Арийский Календарь (Коляды Дар, Даарийский Круголет Числобога) - древний календарь наших предков староверов.
+Календарь-Часы содержит конвертер времени и настройки, интерфейс календаря кликабельный. (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 21 сентября 2020 г.Разработчик: VodiaПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439713   (1039500) от 14.01.2021
+
+Дорожные Знаки ПДД v3.1.0 [Ru] (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Отличный тренажер, который поможет вам, за несколько дней выучить все знаки дорожного движения России 2021 года. Приложение содержит 280 авторских вопросов, разбитых на 14 билетов. Изучайте знаки дорожного движения РФ в метро или очередях. Отсутствие интернет соединения не критично. Содержит все самые последние нововведения прошедшего 2020 года. Удачи на дорогах! (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 02.01.2021Разработчик: Oleg BarkovПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8B76124AFF47628FF33B9A6F9251E9E6E16398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288778   (1039463) от 18.02.2023
 
 Строительный калькулятор v2.0.1.3 Free / v1.2.3 Pro [Ru/En]
@@ -6,7 +86,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -116,7 +196,7 @@ Spread The Signs v2.0.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -278,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -304,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +437,7 @@ Planner 5D Interior Design v1.26.4 [Ru/Multi] - Планировщик домо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +463,7 @@ Denoise it v1.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -409,7 +489,7 @@ Dub Music Player Premium v5.6 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -493,7 +573,7 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -522,7 +602,7 @@ AR Plan 3D v4.4.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +628,7 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,7 +655,7 @@ Carmin v4.1.6 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -601,7 +681,7 @@ VPN Private v1.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,84 +692,6 @@ VPN Private v1.1.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A09A1FBD62D37D19BC6FD9D30241703F446762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442024   (1037173) от 23.01.2021
-
-Ski Tracker v2.3.01 Premium [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037173.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ski Tracker - отслеживание на лыжах, это приложение для всех, кто любит снег и зимние виды спорта. Полезно для лыжников и сноубордистов. Измерьте максимальную скорость на лыжах, дорожки, расстояние, отметьте склоны на карте и обеспечить полную статистику вашей зимней спортивной деятельности.Тип издания: Пиратка (Premium)Релиз состоялся: 6 января 2021 г.Разработчик: EXA ToolsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470E7DB9B2C10710532F8292FA09EE7935516793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385009   (1037030) от 23.01.2021
-
-Adobe Master Collection For Android [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Master Collection For Android - Сборник всех программ от Adobe под Android. В сборнике имеются абсолютно все программы от данного производителя, за исключением очень старых Приложений.Тип издания: ПираткиРелиз состоялся: 2015-2020Разработчик: AdobeПоддерживаемая ОС: Android 2.2-10Язык интерфейса: Английский, Русский (Не для всех приложений)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93461482F0A148F825434E0C9CFD646A68AD1047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572165   (1036921) от 28.02.2023
-
-RuStore 1.3.6 (159) [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036921.jpg" />
-</div>
-
-
-###  Подробнее
-
-RuStore отечественный магазин приложений от VK для Android устройств. Запуск бета - версии магазина RuStore состоялся 25 мая 2022 года. За создание нового магазина взялись VK с командой опытных сторонних разработчиков, которых контролирует Минцифры РФ. Как обещают, в дальнейшем маркетплейс будет установлен по умолчания на всех российских устройствах андроид. Наша (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 30.08.2022Разработчик: команда VKПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2959B1154FC0647B0FDF1BA9A99BBFB157212B6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

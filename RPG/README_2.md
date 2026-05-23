@@ -1,3 +1,81 @@
+###  Публикация: 1848334   (1052747) от 17.01.2026
+
+CENTUM (2025) [Ru/Multi] (2.4445.1138) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Centum - это повествовательное приключение, которое увлекает игрока в мир, где все не так, как кажется. Сюжет разворачивается в тюремной камере, но цель далеко не ясна. Действительно ли вы попали в ловушку? Или ситуация сложнее? Игра переворачивает традиционное повествование с ног на голову, бросая вас в паутину неопределенности, где стирается грань между правдой (   Читать дальше...   )Тип издания: RepackРазработчик: Hack The PublisherЖанр: Приключенческие игры, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F8CA1B1094DFB39B3DA9693DA2DB57DED38546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847738   (1052344) от 14.01.2026
+
+Земский Собор (2025) [Ru] (1.1.0) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Русь после Смуты на пороге нового испытания. Казак Кирша, прошедший не одну битву, оказался втянут в водоворот событий, разворачивающихся вокруг борьбы за трон. Земский собор обещает порядок, но путь к нему - через интриги и предательство. Вас ждёт приключенческий экшен в сеттинге Руси XVII века, сражения и атмосфера тревожного времени.Тип издания: RepackРазработчик: Cyberia NovaЖанр: Экшен, Ролевая играЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6FCCA34E96D129828D6244F62EB3A05AE6A240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847455   (1052240) от 12.01.2026
+
+UnderRail (2015) [Ru/En] (1.3.0.17/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+UnderRail – изометрическая пошаговая ролевая игра в классическом стиле, действие которой разворачивается в далеком будущем. Жизнь на поверхности Земли давно уже стала невозможной, и остатки человечества теперь обитают в Подрельсовье – огромной системе станций метро, ставших государствами. Похоже, они являются последними бастионами исчезающей расы.Тип издания: RepackРазработчик: Stygian SoftwareЖанр: Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD6E0FBADE43CA331DF4275FE636EE0321BAC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847409   (1052052) от 12.01.2026
 
 Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Edition]
@@ -6,7 +84,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Dragon Ruins (2024) [Multi] (251206) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Salt and Sanctuary (2016) [Ru/Multi] (1.0.2.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Salt and Sacrifice (2023) [Ru/Multi] (2.0.0.1) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Dreamed Away (2025) [Ru/Multi] (1.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Ascent (2021) [Ru/Multi] (72946/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +422,7 @@ UltraGirl Alters (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Fallout 4 (2015) [Ru] (1.10.163.0.1/dlc) Repack CoronerLemur [Game of the Year E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lovely Lady RPG (2025) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +500,7 @@ STAR OCEAN THE DIVINE FORCE (2022) [Ru/Multi] (01.01 Build 23063/dlc) Repack Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Of Ash and Steel (2025) [Ru/Multi] (1.05b) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +552,7 @@ SKALD: Against the Black Priory (2024) [Ru/En] (1.0.7e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Suikoden I & II HD Remaster: Gate Rune and Dunan Unification Wars (2025) [Ru/Mul
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +604,7 @@ ENDER LILIES: Quietus of the Knights (2021) [Ru/Multi] (1.1.6_13932) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Trinity Fusion (2023) [Ru/Multi] (2.8/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980.0/dlc) Repack seleZen [Game of the Year Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Fallout 4 - это продолжение знаменитой постапок�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E0D6670F3ADEFDAEA3585DFC6295130222556A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843942   (1049664) от 23.12.2025
-
-Lost in Random: The Eternal Die (2025) [Ru/Multi] (build 85239/dlc) Repack seleZen
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost in Random: The Eternal Die объединила динамичный экшен в реальном времени, тактические бои и механику игры в кости. Станьте главной фигурой истории королевы Александры, некогда великой правительницы Случая, которая отправляется на поиски мести и искупления. Вооружитесь арсеналом из четырех видов оружия, откройте мощные способности, основанные на картах, используйте (   Читать дальше...   )Тип издания: RepackРазработчик: Stormteller GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E05F860DC1C06B3555A9560CC2C2E83C6BBE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843662   (1049563) от 21.12.2025
-
-Realmz (1999) [En] (7.1.2) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Realmz - это фэнтезийная приключенческая ролевая видеоигра, впервые разработанная и изданная компанией Fantasoft в 1994 году для Apple Macintosh в качестве условно-бесплатной игры. В 1999 году Fantasoft выпустила версию, совместимую с Microsoft Windows.Тип издания: LicenseРазработчик: FantasoftЖанр: Приключение, Ролевые игрыЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BF2F93A11D50E7356E4CE72A7D3A84538A3F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843234   (1049094) от 19.12.2025
-
-Chaos Galaxy II (2) (2022) [Multi] (1.0) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chaos Galaxy 2 – это экономическая, политическая и военная стратегия, в которой игроку предстоит командовать силами целой планеты. Народ должен жить не только в достатке, но еще и в мире, чего очень сложно достигнуть на фоне текущей войны. Народы сцепились между собой, желая отхватить себе во владения как можно больше территорий, некоторые из которых станут просто (   Читать дальше...   )Тип издания: LicenseРазработчик: Han ZhiyuЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096FE68875A895CFC251E85F00A53BD667519F38
 ```
 
 https://mybot314.ru/tekegram_catalog/

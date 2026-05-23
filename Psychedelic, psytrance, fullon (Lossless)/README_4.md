@@ -1,3 +1,29 @@
+###  Публикация: 1686532   (126477) от 23.12.2023
+
+Infected Mushroom - Dream Theater REBORN (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Electro House>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Theater REBORNЖанр: Psy-Trance, Electro HouseПродолжительность: 00:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43696CB31DED71BF786734263F188561DC71A010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694979   (120647) от 27.01.2024
 
 Quirk - Quality Control (1999) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Experimental, Downtempo>
@@ -6,7 +32,7 @@ Quirk - Quality Control (1999) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Experi
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +61,7 @@ Infected Mushroom - REBORN (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Ele
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +90,7 @@ VA - DJ Bim - Matchbox (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +119,7 @@ VA - Stellar Transmissions (Compiled by Fabio Leal) - 2024 [FLAC|Lossless|WEB-DL
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +148,7 @@ Ital - Rukapillan (2024) [FLAC|Lossless|WEB-DL|tracks] <PsyTrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +177,7 @@ Nukleall - Infinite Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

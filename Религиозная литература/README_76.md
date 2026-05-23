@@ -1,3 +1,110 @@
+###  Публикация: 948482   (411785) от 20.10.2015
+
+Н. Гантаев | Церковь и феодализм на Руси (1960) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о реакционной роли православной церкви на Руси о XVI—XVII вв., когда она находилась на вершине своего могущества.
+
+Расходуя огромные средства и в то же время тиранически преследуя все новое и прогрессивное, церковь тормозила хозяйственное и культурное развитие Руси. В этом сказалось полное банкротство всей системы ее векового господства.
+(   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F237F214753AA7C03EC675050BE0CFA7C061AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948496   (411608) от 20.10.2015
+
+Генрих Сузо | Exemplar (2014) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Генрих Сузо (1295/1297—1366) — воспитанник, последователь, апологет, но отчасти и критик своего учителя Майстера Экхарта, суровый аскет, пламенный экстатик, проповедник и духовник женских монастырей, приобретший широкую известность у отечественного читателя как один из главных персонажей знаменитой книги И. Хёйзинги «Осень Средневековья», входит, наряду со своим (   Читать дальше...   )Жанр: БогословиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57BDD1B59352E4EBD47206D06838325826E24A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832594   (410523) от 19.10.2014
+
+Арджума | Оромика [5 книг] (2005-2009) [DJVU, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Работа Арджумы является кратким изложением основ древнего африканского учения о природе и эволюции человека. Она интересна своим современным практическим подходом и предназначена для духовно и интеллектуально развитых читателей, которые интересуются устройством Мироздания и будущим Человечества, для тех, кто еще не разучился задавать "вечные" вопросы и искать на них ответы. Автор приводит краткое объяснение некоторых исторических и современных социальных явлений с точки зрения древнего африканского (   Читать дальше...   )Формат: DJVU, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3898981CC5CE078313FD1A1605E94DB1A34C0DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572674   (410204) от 01.09.2022
+
+Раб Божий Андрей | Встреча с вечностью. Свидетельство раба Божия Андрея о Загробном мире (2004) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Раб Божий Андрей – яркое явление в церковной жизни не только современной России, но и всего Православного мира. Его свидетельства – ценнейшая часть церковного Предания. Всё пережитое и увиденное им значительно дополняет накопленные Православной Церковью сведения о загробном мире. Повествования Андрея не противоречат учению Церкви о мытарствах, не противоречат признанным (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D24F6DD4F84B7631DEA454C1AF7669B0F49C2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948717   (409802) от 21.10.2015
 
 А. А. Кислова | Религия и церковь в общественно-политической жизни США первой половины ХIX века (1989) [DJVU]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,110 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87DD9981948767DCD0D449F02CB502431F30586E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172692   (393225) от 08.10.2017
-
-Петр Алексеевич Преображенский (сост.) | Памятники древней христианской письменности в русском переводе [7 Томов] (1860-1866) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393225.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлены памятники древней христианской письменности в русском переводе, изданные протоиереем Петром Алексеевичем Преображенским.Жанр: ПатрологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765858   (392045) от 09.10.2017
-
-Б.А.Успенский | Крестное знамение и сакральное пространство [Почему православные крестятся справа налево, а католики - слева направо?] (2004) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена истории крестного знамения и призвана ответить на вопрос, сформулированный в заглавии: почему одни христиане (православные и несториане) крестятся справа налево, а другие (католики и монофизиты) — слева направо. Показывается древность обеих традиций и анализируются стоящие за ними религиозные представления. Особый экскурс посвящен истории перстосложения (   Читать дальше...   )Жанр: Религиоведение. История религийФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AFF13ADE8627BD821B798C1FF22374ED8C25EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173202   (391378) от 10.10.2017
-
-Папа Римский Павел VI | Человеческая жизнь [Humanae Vitae] (1993) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391378.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июля исполнилось 49 лет со дня публикации энциклики Папы Павла VI “Humanae Vitae”. Этот фундаментальный документ Учительства Церкви о ценности человеческой жизни и в особенности о ее зарождении и неприемлемости противозачаточных средств, был плодом долгой работы и дискуссий. Выраженное в нем учение было неоднократно возобновлено последующими Римскими Папами, а (   Читать дальше...   )Жанр: ЭнцикликаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50B7EEFEE27142DCEC2DEF59D21C303E6668920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173209   (391377) от 10.10.2017
-
-Высшая Духовная Семинария "Мария Царица Апостолов" (изд.) | Молитвенник [С приложением латинских текстов] (1999) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391377.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлен маленький молитвенник, выпускаемый для внутреннего пользования, семинаристами католической Высшей Духовной Семинарии "Мария Царица Апостолов" в Санкт-Петербурге.Жанр: МолитвенникФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1BC1B81C6910C2CA801F29326F9C8DEE65F2A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1825897   (150805) от 18.10.2025
+
+Crysis Remastered Trilogy (2021-2022) [Ru/Multi] (rc2) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Crysis Remastered: Обычная спасательная операция перерастает в полномасштабную войну, когда рой инопланетных захватчиков высаживается на северокорейский архипелаг. Примерьте нанокостюм суперсолдата Номада и используйте сверхспособности, которые он дает - силу, непробиваемую броню, невидимость и скорость. Вас ждет арсенал оружия с возможностью установки дополнительного (   Читать дальше...   )Тип издания: LicenseРазработчик: Crytek, Saber InteractiveЖанр: Шутеры, От первого лицаЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62527E84DBA40DAE85C527A1009C047E2439DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825905   (150756) от 18.10.2025
+
+Halo Infinite (2021) [Ru/Multi] (6.10020.17952.0/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Последний луч надежды угас, человечество стоит на краю гибели, и Мастер Чиф готов сразиться с самым опасным врагом в своей жизни. Легендарная серия Halo возвращается. Вас ждёт самая масштабная сюжетная кампания с Мастером Чифом в главной роли.Тип издания: RepackРазработчик: 343 IndustriesЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B38DA3920C41BD48CC8854DB8BC754B8125AF919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825977   (150707) от 18.10.2025
+
+Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th Annviersary]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый Крутой Сэм вернулся вместе со своей фирменной неутомимостью в это грандиозное, смелое и красочное продолжение классических игр Serious Sam: First Encounter и Second Encounter! Получивший задание спасти вселенную с помощью пушек от несметных полчищ врагов, путешествующих во времени, Крутой Сэм должен пробиться с боем сквозь непроходимые джунгли, мрачные (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшены, ИндиЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677639   (149840) от 18.11.2023
+
+Straya (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шутер, действие которого происходит в Австралии, где все хочет тебя убить. Straya - это шутер от первого лица, действие которого происходит в Австралии примерно в конце 1960-х годов. Сосредоточившись на выживании среди множества опасных животных, населяющих землю, воздух и воду, игрок может выполнять работу, охотиться, собирать предметы и свободно перемещаться по (   Читать дальше...   )Тип издания: SceneРазработчик: AyrtechЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA0051378FF5B3516AFE1A7FA09A9CCF83D0264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242081   (147769) от 24.12.2019
 
 We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack Other s
@@ -6,7 +110,7 @@ We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Boiling Point: Road to Hell (2023) [Multi] (130759) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Boiling point: Road To Hell / Xenus: Точка кипения (2005) [Ru] (2.2/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ BioShock Remastered (2016) [Multi] (1.0.122872) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Deadfall Adventures (2013) [Ru/En] (1.0.0.16352/dlc/tr) Repack =nemos= [Digital 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Call of Duty: Black Ops (2010) [Ru/Multi] (0.305-05.125430.1/dlc) License PLAZA 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05) Repack xatab [Collection Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Return to Castle Wolfenstein (2001) [En/Ge] (1.41) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ BioShock™ 2 Remastered (2016) [Multi] (1.0.122864) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Transmissions: Element 120 (2016) [Ru] (1.06) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Catalyst [Dig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Crypt of the Serpent King (2016) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Chameleon / Хамелеон [Ru] (RePack) 2005 | R.G.Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Delta Force Anthology / Антология Отряд Дельта (1998-2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +607,7 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +633,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +659,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,116 +672,6 @@ BioShock - шутер, не похожий ни на один из тех, в к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB652D17E8A0065CEC0AFC4CB77A62BEE9242673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592803   (135057) от 23.12.2012
-
-F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способны ли вы посмотреть в глаза ночным кошмарам… и остаться в живых?
-С тех пор как подразделение F.E.A.R. попыталось остановить монстров и супервоинов, вырвавшихся из подземных лабораторий, прошло восемь месяцев. Ужасающие способности Альмы и ее психическое воздействие вдребезги разносят нашу хрупкую реальность. И только ее дети способны пробиться в самое сердце тьмы, чтобы навсегда избавить мир от всепоглощающего страха!
-Бросить вызов тварям Альмы и когортам до зубов вооруженных солдат осмелились Пойнтман, элитный боец отряда F.E.A.R., и его кровный брат-каннибал Пакстон Феттель. Вместе с ними вам предстоит пройти по улицам полуразрушенного города и устроить бесчисленным врагам настоящую бойню, пустив в ход самое современное и разрушительное оружие. Помимо захватывающей одиночной игры, в третьей части легендарного экшена от первого лица предусмотрены как совместное прохождение, так и различные режимы онлайновых боев.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский, Японский, Португальский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C5712E2ADD80F49A6F993AE1E5D0A0FC5C1295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594016   (134338) от 24.12.2012
-
-Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Steam-Rip/1.1.12) 2011 | R.G. Игроманы
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134338.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Call of Juarez: Картель» переносит действие знаменитой серии шутеров про Дикий Запад в наши дни, сохраняя при этом атмосферу и динамику интерактивного вестерна.
-
-История начинается с взрыва, устроенного членами наркокартеля в здании Министерства юстиции США. Разорвавшаяся бомба унесла жизни сотен людей, но это только начало. Правительство приходит к выводу, что члены преступной организации, скорее всего, уже проникли в ряды властных структур. Единственный шанс остановить мафию — собрать отряд особого назначения из верных людей. Выбор падает на агента ФБР Ким Эванс, которая провела детство на улицах среди преступников и негодяев, Эдди Гуэрру, работника Управления по борьбе с наркотиками, увлекающегося азартными играми, и Бена Маккола, потомка героя оригинальной игры Рея Маккола.
-
-В процессе расследования игроки пройдут через множество испытаний и совершат путешествие из Лос-Анджелеса в загадочный Хуарес, а по пути побывают в Аризоне и Нью-Мексико. (   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Multi4Язык интерфейса: Русский, Английский, Multi7
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680188   (134037) от 29.11.2023
-
-Monstrum (2015) [En] (1.5.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели Monstrum взяли привычный рецепт создания игр в жанре survival horror и сделали что-то совершенно новое, добавив процедурную генерацию уровней, управляемых искусственным интеллектом хищников и отсутствие возможности воскреснуть после смерти, чтобы на заброшенном грузовом судне игроки ни на секунду не почувствовали себя в безопасности.Тип издания: RepackРазработчик: Team JunkfishЖанр: Action (Survival horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C90F9333F06DF98F9085AB43829E04B541D4891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680795   (133607) от 30.11.2023
-
-THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.2.0) Scene Rune
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133607.jpg" />
-</div>
-
-
-###  Подробнее
-
-THE MULLER-POWELL PRINCIPLE погружает в межпространственную одиссею в научно-фантастическом приключении, в котором игроки окажутся на месте Гарри Германа, ничего не подозревающего сотрудника Delta Laboratories, оказавшегося в хаосе неудачного эксперимента. Повествование разворачивается в различных параллельных мирах, сплетая интриги и открытия, которые вращаются (   Читать дальше...   )Тип издания: SceneРазработчик: Three Dots GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952047232357F26E54A0B04F4623742250A082D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

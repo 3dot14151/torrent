@@ -1,3 +1,29 @@
+###  Публикация: 1516513   (254828) от 24.04.2023
+
+Archvale (2021) [Ru/Multi] (1.3) License GOG
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно этими землями правил жестокий и злобный король, который вселял ужас в тех, кто вставал у него на пути. Его деяния превратились в легенды, и история о проходе в сказочную Долину — одна из них. Сейчас от тех времен остались лишь Бессмертные: король проклял их, заставив вечно страдать в его подземельях.Тип издания: LicenseРазработчик: idoz & phopsЖанр: Экшн, Приключение, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628860   (254794) от 25.04.2023
 
 Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +32,7 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Arto (2023) [En] (1.0.03) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +84,7 @@ City of Beats (2023) [Multi] (20230427) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Curse of the Dead Gods (2021) [Ru/Multi] (1.24.4.6b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Smurfs (RePack) [En] 1996 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Sonic the Hedgehog 4: Episode 2 (P) [Multi5/-] 2012 | THETA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Hunter×Hunter Nen×Impact (2025) [Multi] (1.1.1/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Sonic Racing: CrossWorlds (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Unreal [En] (RePack) 1991 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Lego Indiana Jones 2: The Adventure Continues / LEGO Indiana Jones 2: Прикл
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +318,7 @@ BALL x PIT (2025) [Ru/Multi] (build 20625643) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Shotgun Cop Man (2025) [Ru/Multi] (20251028_1119) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Alien Shooter 2 - The Legend (2020) [Ru/En] (1.3.2) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Boppin [En] (RePack) 1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Street Fighter x Tekken [Ru/En] (RePack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Insanely Twisted Shadow Planet [Ru] (RePack/1.0r9) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Shanghai Dragon [En] (RePack) 2003 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Street Fighter X Tekken [Ru] (RePack) 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +526,7 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -526,7 +552,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Crimsonland (2014) [Ru/Multi] (1.3.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +604,7 @@ The Simulacrum (2023) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD7FFB21FC8E73BF6EB4E57C62648098C9D3373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833178   (246262) от 01.11.2025
-
-Mortal Kombat (2013) [Ru/En] (1.07/dlc) Repack Necros [Komplete Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Освеженный Mortal Kombat пошел по тропинке, проложенной Street Fighter 4, и сохранил все любимые элементы серии файтингов – двухмерную камеру и кровавые «фаталити», которые стали еще более жестокими благодаря мощному движку и «взрослой» визуальной стилистике. Персонажи, разумеется, давно уже шагнули в трехмерное пространство и щеголяют солидным количеством полигонов, (   Читать дальше...   )Тип издания: RepackРазработчик: NetherRealm Studios, High Voltage SoftwareЖанр: ФайтингЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8052F931CDC693B03AAA862CBC920A4F2AE57ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

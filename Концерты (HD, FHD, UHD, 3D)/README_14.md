@@ -1,3 +1,63 @@
+###  Публикация: 887013   (758984) от 12.04.2015
+
+A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия концерта, состоявшегося 11 февраля 2011 года в Лос-Анджелесе, и посвященного Барбре Стрейзанд, которая на только что завершившейся церемонии Грэмми была объявлена персоной года.
+«Персона года» — престижная награда благотворительной организации «MusiCares», учрежденной «Американской академией звукозаписи» в 1989 году. Присуждается ежегодно (с 1991 года) за выдающиеся заслуги в музыке и активную благотворительную деятельность.За образ диска благодарим PeterGriffin01. Down With Love / Get Happy/ Make Someone Happy – Diana Krall
+02. Guilty – Seal
+03. Somewhere – Leona Lewis
+04. On a Clear Day (You Can See Forever) / Lazy Afternoon – Herbie Hancock and Nikki Yanofsky
+05. My Man – Lea Michele(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F707DDB94381557D802071A49A5ACFBA1ABB182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887644   (758862) от 12.04.2015
+
+Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся 12 апреля 2013 года в Teatro Caupolicаn в Сантьяго (Чили) в рамках "Сталинград" тура... Группа Accept - один из ведущих коллективов западногерманского металла, на ряду со Scorpions продвинули немецкий рок и метал к международным чартам..[01] Intro
+[02] Hung, Drawn And Quartered
+[03] Hellfire
+[04] Restless And Wild(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4BB837737C01887A9B316DAE4C8E7919A56AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280556   (758628) от 04.02.2019
 
 Квартирник НТВ у Маргулиса. Animal ДжаZ (02.02.2019) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +66,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +92,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +121,7 @@ MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +147,7 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +199,7 @@ Tina Turner - One Last Time Live in Concert & Celebrate! (2000/1999) SD Blu-Ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +283,7 @@ Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +314,7 @@ Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -283,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -313,7 +373,7 @@ Europe: War of King – Live at W:O:A (2015) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -339,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -365,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +451,7 @@ Nickelback: Live At Sturgis (2007) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +508,7 @@ Nightwish / From Wishes to Eternity (2001) DVDRip [H.264/720p] [Upscale с Machi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +534,7 @@ Judas Priest - Epitaph (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_745638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +589,7 @@ Queen - Rock Montreal & Live Aid (1981) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,64 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB7CBB861F8579A6D19C5EF6A6D515B38C31B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527789   (736391) от 29.01.2022
-
-Квартирник у Маргулиса. "Браво" и Los Havtanos (22.01.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736391.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса сразу две группы — «Браво» и Los Havtanos. Одни играют что-то среднее между рок-н-роллом, битом и рокабилли, другие исполняют авторскую музыку в стиле латино. «Браво» около 40 лет радуют поклонников своим творчеством и за это время стали по-настоящему легендарными, а Los Havtanos начали свой путь всего несколько лет назад. Оба коллектива, (   Читать дальше...   )0:00:00 Квартирник
-0:00:05 Мама
-0:09:42 Города
-0:15:57 Корабли(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок-н-ролл, латиноЯзык озвучки: РусскийПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7019F35FB2D92AADEA23DADAAA68A72A100CA6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525806   (736297) от 29.01.2022
-
-Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Metallica 1988 года ...And Justice For All — их первый альбом, попавший в десятку лучших альбомов Billboard и занявший 6-е место — до сих пор остается самым продаваемым альбомом группы. На сегодняшний день только в США было продано восемь миллионов копий, пластинка также принесла героям трэш-метала их дебютную награду Грэмми. Содержащий в себе ряд абсолютно (   Читать дальше...   )01 The Ecstasy Of Gold [01:59]
-02 Blackened (Live) [06:37]
-03 For Whom The Bell Tolls (Live) [05:30]
-04 Welcome Home (Sanitarium) (Live) [06:47](   Читать дальше...   )Производство: СШАЖанр: Thrash MetalЯзык озвучки: АнглийскийПродолжительность: 02:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF871D205E78772D6667D93E106C8B661B3A3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

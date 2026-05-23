@@ -1,3 +1,206 @@
+###  Публикация: 1274187   (792250) от 08.01.2019
+
+Philip Wesley - Dark Night of the Soul (2008) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of the East (5:48)
+ 02. Racing Against the Sunset (4:53)
+ 03. The Approaching Night (6:40)
+ 04. Darkness Falls (4:42)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC52A6863772248A7446855DF2D2A62C35195EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274846   (792238) от 08.01.2019
+
+Trent Reznor & Atticus Ross - Bird Box (2019) The Null Corporation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Dark Ambient, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Outside (12:42)
+ 02. Undercurrents (04:03)
+ 03. Looking Forwards And Backwards (09:00)
+ 04. What Isn't Anymore (07:49)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Dark Ambient, ScoreПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023655D2D13D5166E92EA7489F9ABA2E01D02D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201263   (792170) от 25.01.2018
+
+Aryeh Frankfurter - Celtic Whispers (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. She Moved Through the Fair
+02. Ae Fond Kiss
+03. Aye Waulkin O'
+04. The Sandpit(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B281BFBD4B038E1D582693E1CFBE5DD8EC7706E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201484   (792113) от 25.01.2018
+
+VA - Discover Celtic Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Bailey - Turas Domhsa chon na Galldachd
+02. Aryeh Frankfurter - The Morning Dew
+03. Golden Bough - The Wren Boys - Gavin's Hornpipe - Honeysuckle
+04. Scots Guards - Happy Hour(   Читать дальше...   )Жанр: Celtic, FolkПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97082D7CA25ABAD09A525120B4D396341AFADCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201489   (792099) от 25.01.2018
+
+Greg Maroney - Winter (2018) [MP3|320 Kbps] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Winter Grey
+2. Grandmother's Quilt
+3. January
+4. Hearthfire(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB6D4075A8D05E51E85C677A686C83A26C32F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387464   (791834) от 01.06.2020
+
+Krzysztof Kowal & Grzegorz Michalak - 112 Operator Soundtrack (2020) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. What's your emergency?
+02. 911 Management theme
+03. S&R Management theme
+04. S&R Trailer theme(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E26D91C6F1EB970C5A491AF023DAA343FECDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386860   (791807) от 01.06.2020
+
+Sungha Jung - Sungha Jung Cover Compilation 1-5 (2019) [MP3|~245 Kbps (V0)] <Acoustic, Fingerstyle Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Bird (3:39)
+02. Can't Help Falling in Love (2:59)
+03. Fake Love (3:41)
+04. Girls Like You (3:05)(   Читать дальше...   )Жанр: Acoustic, Fingerstyle GuitarПродолжительность: 06:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E56749C2317B0950C5D74BE24957950E050ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201874   (791560) от 26.01.2018
 
 Бузулук - Славьтесь, славьтесь казаки! (2006) [MP3|320 Kbps] <Folk, Казачья песня>
@@ -6,7 +209,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Calexico - The Thread That Keeps Us (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Medita
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +526,7 @@ Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +556,7 @@ The First Nations - Heart and Soul of the Native Indians (2016) [MP3|320 Kbps] <
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +585,7 @@ Peter Ellis - The Best Of Lounge: New York Lounge (2001) [MP3|320 Kbps] <Instrum
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +614,7 @@ Gary Ryan - The Best Of Lounge: L.A. Lounge (2001) [MP3|320 Kbps] <Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +643,7 @@ Variations & Gary Ryan - Romantic Guitar (2006) [MP3|320 Kbps] <Instrumental, Gu
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +672,7 @@ Hilmar Orn Hilmarsson - Children Of Nature (1996) [FLAC|Lossless|image + .cue] <
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,7 +701,7 @@ Leonard Cohen - The Complete Columbia Albums Collection (2011) 17 CD [FLAC|Lossl
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +730,7 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,209 +744,6 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511037   (789839) от 19.11.2021
-
-Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksmusik>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joseph-Jodler 0:36
-02 - Der junge schwarz' Schlossergesell 3:15
-03 - Evi-Landler 3:52
-04 - Bim Bam & Mäh-Jodler 3:23(   Читать дальше...   )Жанр: VolksmusikПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202437   (789829) от 29.01.2018
-
-Celtic Woman - Homecoming: Live from Ireland (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homecoming Lament (Live 2017) (02:02)
-02. Mo Ghile Mear (My Gallant Star) (Live 2017) (04:09)
-03. My Heart Will Go On (Live 2017) (04:26)
-04. Walk Beside Me (Live 2017) (04:26)(   Читать дальше...   )Жанр: FolkПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FE4237F08D3EA8450484665FBB7A6D2199F9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511072   (789763) от 19.11.2021
-
-Митрофановна - Развернула Митрофановна гармонь (2004) [MP3|320 Kbps] <Русская народная музыка>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты возьми гармонь (3:15)
-02. Хуторянка (3:44)
-03. Никто тебя не любит так, как я (3:19)
-04. Все татары, кроме я (2:09)(   Читать дальше...   )Жанр: Фольклор, Русская народная музыкаПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BDFB62409133F21D5C584F676256E4EE0CCF898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511092   (789245) от 20.11.2021
-
-Farinelli: Il Castrato - Original motion picture soundtrack (1994) [FLAC|Lossless|tracks + .cue] <Classical, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son qual nave ch'agitata (08:10)
-02. Alto giove (04:34)
-03. Se al labbro mio non credi (04:55)
-04. Ombra fedele anch'io (09:32)(   Читать дальше...   )Жанр: Classical, Stage & ScreenПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEB4AF81218C2179B6C3E52C85A1E6B59FC2671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276091   (789035) от 14.01.2019
-
-Greg Maroney - Remembrances (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Ask Again 04:46
-2. The Beauty Lies Within 04:47
-3. Lullaby for Leo 04:27
-4. Welcome Home 04:15(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA63AFC5CB7AC6F1CE560FB547CAB389D5D4943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202937   (789017) от 31.01.2018
-
-Франк Пурсель - Музыка хорошего настроения (2005) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Манчестер и Ливерпуль
-02. Поле золотых тюльпанов
-03. Я люблю
-04. Абакаччи(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CA930560B04C6ACFF4A6110C497A96D9E57E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511654   (788939) от 21.11.2021
-
-Митрофановна - Развернула 'Митрофановна' гармонь (2004) [FLAC|Lossless|tracks + .cue] <Фольклор, русская народная песня>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты возьми гармонь... (3:15)
-02. Хуторянка (3:43)
-03. Никто тебя не любит так, как я (3:19)
-04. Все татары кроме я (2:09)(   Читать дальше...   )Жанр: Фольклор, русская народная песняПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68973B58DFADDDBE9E86B1DE8978D62F4879C0FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

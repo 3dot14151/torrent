@@ -1,3 +1,81 @@
+###  Публикация: 1419183   (341914) от 27.10.2020
+
+Разве можно мечтать о большем (2020) HDTVRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мечту скромной медсестры Ксении о прекрасной жизни в новом месте с любимым человеком неожиданно разбивает известие о тяжелой болезни ее мамы. Ксения вынуждена отменить свой переезд за границу и искать деньги на дорогостоящую операцию. Оставшись одна, без жилья и без работы, она пытается сделать все, что в ее силах. Неожиданно она получает предложение стать сиделкой (   Читать дальше...   )Производство: Украина | "Film.UA"Жанр: МелодрамаРежиссер: Алексей ЕсаковАктеры: Александра Сизоненко, Ирина Веренич-Островская, Сергей Дзялик, Владислав Никитюк, Александр Крючков, Оксана Архангельская, Кирилл Никитенко, Ирина Бибик, Ева Шевченко-ГоловкоЯзык озвучки: РусскийСубтитры: Украинские (hardsub)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2AA19B2FC2D0E261E464E29147BB11957C11DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258139   (340707) от 28.10.2018
+
+Одна на двоих  (2018) WEB-DLRip (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оля и Петя – ровесники и соседи с детства: вместе росли, вместе пережили потерю близких в одной аварии (Олиной мамы и Петиного отца), вместе попали в детдом. Детская дружба со временем перерастает в любовь, и к своим восемнадцати молодые люди уверены, что и дальше пойдут по жизни вместе, готовятся к свадьбе. Но в их планы вмешивается Илья Горелов, сын влиятельного (   Читать дальше...   )Производство: УкраинаЖанр: мелодрамаРежиссер: Владимир ЯнощукАктеры: Алина Сергеева, Александр Ратников, Дмитрий Сова, Андрей Исаенко, Ксения Баша-Довженко, Владислав Демиденко, Анна Расстальная, Владимир Миняйло, Олег Щербина, Кристина Мельниченко и др.Язык озвучки: русскийПродолжительность: ~ 00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33197227C390C8B79ACA3EF3D5709936AF0BA20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257969   (340405) от 28.10.2018
+
+Дежурный врач (2017) WEBRip (сезон 2, серии 1-40 из 40)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+24 часа в сутки, семь дней в неделю, без перерывов и выходных! Именно так работает обычная больница скорой помощи. Каждый день сюда попадают десятки новых пациентов. У каждого — своя история болезни, за которой скрываются реальные проблемы и личные драмы. И дежурные врачи становятся невольными участниками этих драм. Иногда они просто наблюдают ход событий, а иногда (   Читать дальше...   )Производство: Украина / IFILM.UA, ТРК "Україна"Жанр: драма, мелодрамаРежиссер: Виктор Полторацкий, Константин Денесюк, Сергей СотниченкоАктеры: Михаил Жонин, Ирина Ткаленко, Руслан Сокольник, Надежда Левченко, Лилия Майборода, Виктория Лушникова, Валентина Вовченко, Леонид Попадько, Елена Новикова, Светлана Князева и др.Язык озвучки: русскийПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2BFAE738E0E307C1C6E306CB2D4EDB1B30A80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419453   (339458) от 28.10.2020
 
 Мой мужчина, моя женщина (2020) WEBRip [H.264] (сезон 1, серии 1-12 из 12)
@@ -6,7 +84,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_335963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F042A77F72C2B7751154023ACE30AE3B4A2EB4E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421926   (315125) от 06.11.2020
-
-Братья по крови (2020) WEBRip (сезон 2, серии 1-12 из 12)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315125.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются после трагического взрыва, в котором пострадали братья Киреевы и их друзья. Снова пережив потерю близких людей, братья пытаются вернуться к нормальной жизни и провести расследование, но их ждут неприятные сюрпризы – изменения в составе руководства и появление в отделе нового судмедэксперта.. .Производство: Украина / «1+1 Продакшн»Жанр: детективРежиссер: Олег МасленниковАктеры: Эрик Абрамович, Сергей Деревянко, Петр Крылов, Зоряна Марченко, Виктор Сарайкин, Федор Гуринец, Наталия Бабенко, Олег Масленников, Вадим Павленко, Владимир Захарченко и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD88DEEDB38E7C961D4E66751E139CAC3F3A66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417588   (314922) от 06.11.2020
-
-Братья по крови (2020) WEB-DLRip [H.264] (сезон 2, серии 1-12 из 12)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двум братьям, Максиму и Андрею Киреевым, приходится работать в одном отделе полиции, чтобы разобраться в запутанном деле загадочной смерти их общего отца. Андрей – сын Киреева от первого брака, надежный и опытный капитан полиции, который годами ненавидел отца за то, что тот бросил их с матерью. Максим – второй ребенок Киреева, инфантильный молодой парень, который (   Читать дальше...   )Производство: Украина | «1+1 Продакшн»Жанр: детективРежиссер: Олег МасленниковАктеры: Эрик Абрамович, Сергей Деревянко, Петр Крылов, Зоряна Марченко, Виктор Сарайкин, Федор Гуринец, Наталия Бабенко, Олег Масленников, Вадим Павленко, Владимир Захарченко и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22CFE019D08BB3117AA4911C1BB4AE509F14E497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260203   (314019) от 06.11.2018
-
-На самой грани (2018) WEBRip [H.264] (серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна попадает в аварию, в которой погибают водитель и ее подруга. Она – единственный свидетель. Виновника аварии, матерого рецидивиста Зотова, который вез контейнер с кровью в больницу для своей сестры, задерживают. Его сестра умирает и Зотов винит этом Аню, обещая отомстить. С этого момента жизнь героини меняется. Погибает ее руководитель, Фомин, а Аню находят без (   Читать дальше...   )Производство: Украина | студия "УПС"Жанр: криминал, мелодрамаРежиссер: Андрей ИвановАктеры: Анна Леванова, Алексей Череватенко, Екатерина Варченко, Артём Мяус, Артём Алексеев, Борислав Борисенко, Вячеслав Василюк, Наталия Цыганенко, Арина Петрова и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CD971D4DF6F115ED599691984F7919BD5AF171
 ```
 
 https://mybot314.ru/tekegram_catalog/

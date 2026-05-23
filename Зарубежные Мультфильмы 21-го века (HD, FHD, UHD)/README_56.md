@@ -1,3 +1,81 @@
+###  Публикация: 1149768   (597863) от 12.07.2017
+
+Лего Фильм: Бэтмен / The LEGO Batman Movie (2017) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Готэму вновь грозит опасность. И на его стражу становится единственный герой, которого заслуживает этот город — Бэтмен, альтер-эго миллиардера Брюса Уэйна, живущего в своем огромном родовом поместье вместе с дворецким Альфредом. Но в этот раз супергерой вынужден взять в напарники парня по имени Дик Грейсон, которого он, сам того не помня, усыновил на одном из светских (   Читать дальше...   )Производство: США, Дания / DC Entertainment, LEGO System A/SЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крис МакКейПерсонажи: Уилл Арнетт, Майкл Сера, Розарио Доусон, Рэйф Файнс, Зак Галифианакис, Дженни Слейт, Джейсон Манцукас, Конан О’Брайен, Даг БенсонПеревод: Дублированный (Лицензия BD CEE)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48AC8683D2521F6A8D2A788212C22DA6B215386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232488   (597780) от 25.06.2018
+
+Аврил и поддельный мир / Avril et le monde truque / April and the Extraordinary World (2015) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1941 год. Во Франции правит Наполеон VI и паровые технологии, потому что уже на протяжении многих лет во всём мире пропадают выдающиеся учёные, и электричество так и не было открыто. Когда Аврил была маленькой, её родители пытались получить эликсир бессмертия, но тоже исчезли таинственным образом. От семьи у девушки остался только говорящий кот, и с тех пор она пытается (   Читать дальше...   )Производство: Франция, Бельгия, КанадаЖанр: Рисованная анимация, Приключения, КомедияРежиссер: Кристиан Димар, Франк ЭкинджиПерсонажи: Марион Котийяр, Филипп Катерин, Жан Рошфор, Оливье Гурме, Марк-Андре Гронден, Були Ланнерс, Анн Косенс, Маша Гренон, Бенуа Бриер, Анджела ГалуппоПеревод: Многоголосый закадровый, профессиональный СВ СтудияСубтитры: русские, английские, французскиеПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC4A095E9CA79C80423EFAB8DDB7EDCEB8712D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548674   (597595) от 03.05.2022
+
+Как рождается пламя / How to Start A Fire (2022) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Короткометражный анимационный фильм расскажет о жизни Хаято в мире Free Fire и его борьбе со страхами и сомнениями. После глобального катаклизма, уничтожившего старый образ жизни на планете, корпорация "Горизонты" стала флагманом будущего и самой влиятельной технологической структурой в мире. Семья Ягами, владеющая крупной компанией в той же отрасли, вошла (   Читать дальше...   )Производство: ЯпонияЖанр: Короткометражный, приключения, фэнтези,  фантастикаПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402A1E66DE0226CCFF2B628DF8A245777BB790AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039345   (597000) от 31.07.2016
 
 Кунг-фу Панда 3 / Kung Fu Panda 3 (2016) Blu-ray [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25DDCEADB74BD7A3349F63062857D6FA76E566E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915345   (592207) от 05.07.2015
-
-Дом / Home (2015) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFB0916F4D939C40DAA2AC91955F9307E488347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915449   (592191) от 05.07.2015
-
-Дом / Home (2015) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инопланетная раса бувов во главе с капитаном Смеком захватывает Землю, чтобы укрыться от своих смертельных врагов и обрести новый дом. Руководствуясь благими намерениями, бувы начинают переселять расу людей, но одной находчивой девушке по имени Тип удаётся сбежать. В бегах она встречается с изгнанным бувом по имени О, который случайно уведомил врагов о своём местонахождении.Производство: США, DreamWorks AnimationЖанр: Мультфильм, Фантастика, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Тим ДжонсонПерсонажи: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: Дублированный (Лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Forced, Full), украинский (Forced, Full), английский (Full)Продолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19058839C5CD17B65B492C6263FCED0C9C6ABA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915448   (591785) от 06.07.2015
-
-Дом / Home (2015) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватив Землю, раса пришельцев Був тут же начинает заниматься её благоустройством и реорганизацией. «Не стоит благодарности!» — заявляют они землянам, собранным на время в отдельных резервациях. Находчивая и рисковая девочка по имени Дар, чудом сбежавшая от пришельцев, встречает на своем пути самого раздражающе-оптимистичного Бува по имени О, отвергнутого своими (   Читать дальше...   )Производство: США, DreamWorks AnimationЖанр: Мультфильм, фантастика, фэнтези, комедия, приключения, семейныйРежиссер: Тим ДжонсонАктеры: Джим Парсонс, Рианна, Стив Мартин, Дженнифер Лопез, Мэтт Джонс, Брайан Степанек, Эйприл Стрюбинг, Стивен Кеарин, Лиза Стюарт, Эйприл УинчеллПеревод: ДублированныйЯзык субтитров: Русские, английские, украинскиеПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D0EDDFAE22949603D2AE925D5F8730F35D91FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

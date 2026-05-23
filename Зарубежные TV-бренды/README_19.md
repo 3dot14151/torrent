@@ -1,3 +1,55 @@
+###  Публикация: 1377326   (840741) от 28.04.2020
+
+Discovery: Золотая лихорадка / Gold Rush (2018) HDTV  [H.264/1080p-LQ] (сезон 9, серии 1-22 из 22, без спецвыпусков)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+Живя вдали от цивилизации на Аляске, предприимчивые и всем знакомые золотоискатели продолжают поиски драгоценного металла. С новыми работниками и машинами, новыми участками и способами добычи золота ставки повышаются, как никогда прежде. Но принесёт ли больший риск большую прибыль? У команд есть огромные драги, а значит, можно поставить перед собой самые амбициозные (   Читать дальше...   )Производство: США, Raw Television, Discovery ChannelЖанр: Документальный, природа, география, путешествия, приключения, исследованиеРежиссер: Кристофер ГолдингПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 22 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D391BABCCC44C9AD81161AE259C8AE6FA1DECA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379196   (840688) от 28.04.2020
+
+Фатальный пожар на Титанике / Titanic's: Fatal Fire / Titanic: The New Evidence (2017) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это был самый большой корабль, когда-либо построенный людьми. Все были уверены, что он просто непотопляем, и когда лайнер "Титаник" затонул во время своего первого же плавания вместе с 1500 пассажирами на борту, это событие вызвало шок во всём мире и послужило поводом для споров о причинах его гибели, которые продолжаются и сегодня.Производство: Великобритания, Канада / Blink Films, Discovery Channel Canada, Smithsonian ChannelЖанр: ДокументальныйРежиссер: Sam Berrigan TaplinПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427A9970173634058C18BCFD149531DFEDACB24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377335   (840627) от 28.04.2020
 
 Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080p-LQ] (сезон 10, выпуски 1-25 из 25, включая спецвыпуски)
@@ -6,7 +58,7 @@ Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Дороги России: Трасса Кола (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery. Смертельный улов / Deadliest Catch (2019) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC. Тайный командующий. Военный стратег Иран
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ BBC: Мир природы: Львы пустыни / Natural World: Desert Lion
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ DV: История письменности / The Written Word (2005) SATRip (с
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Discovery. Техногеника. Лефортовский тоннель (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ NG: Хранители сокровищ Египта / Egypt's Treasure Guardian
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Discovery. Гигантские чудовища: Громадный потро�
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +474,7 @@ History Channel: Письменный код (История письменно�
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -474,7 +526,7 @@ BBC: Терри Джонс и варвары / Terry Jones' Barbarians (2006) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -529,7 +581,7 @@ NG. Загадки Библии. Воины-тамплиеры / The Secret Bibl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -581,7 +633,7 @@ NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00DE154627431350A1CCCB6E1A4D120782188B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251713   (831120) от 04.05.2020
-
-NG. Линии Наска: Погребенные секреты. Древние тайны / Nasca Lines. Ancient Secrets (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Величайшая тайна перуанской пустыни Атакама - геоглифы на плато Наска, которым уже более 1000 лет, и которые видны только с воздуха. С помощью первых 3D-карт этих ставших культовыми очертаний, а также после разгадки тайны захоронения человека без головы, археологи и ученые предположили, что геоглифы использовались индейцами Наска в качестве своеобразных храмов под (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Филип ДэйПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EE00378DDF474C63FDAE6DE2222F0B02E80464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544455   (830588) от 05.04.2014
-
-BBC: Живая Природа. Райские птицы / BBC: Natural World. Birds of Paradise (2010) BDRip [H.264/1080i]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти создания столь прекрасны, что они казались людям спустившимися с небес, не столь удивительно, что европейцы впервые увидев их, посчитали птиц обитателями райского сада Эдема. Этим Эдемом была Новая Гвинея обитаемый остров, который еще не исследовали европейцы и поныне эти великолепные создания можно найти только здесь. Речь идет о невиданных птицах их красота (   Читать дальше...   )Производство: Великобритания / Tigress ProductionsЖанр: ДокументальныйРежиссер: Харви ДжонсПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0642B0F715C88FA52453FD4CCC0ACA4EB3AC19D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

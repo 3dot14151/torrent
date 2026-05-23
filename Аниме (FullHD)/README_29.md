@@ -1,3 +1,55 @@
+###  Публикация: 857704   (585097) от 06.08.2016
+
+Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 14 эп. + 7 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сэйя Каниэ в детстве был знаменитым актером, но потом пережил трагедию и спрятался в образе законченного нарцисса и эгоиста. Красавца-отличника ничто не волнует, хотя… можно и послушать, когда тихая одноклассница Исудзу Сэнто сует тебе в лоб неясно откуда взявшийся старинный мушкет. Так Сэйя узнал о парке развлечений Амаги, оказавшимся анклавом волшебной Кленовой (   Читать дальше...   )Производство: Студии Kyoto Animation и Animation DoЖанр: комедия, фэнтезиРежиссер: Такэмото ЯсухироПеревод: Sa4ko aka Kiyoso ft. Zenobian (01-14 + 7 SP)Язык субтитров: русскийПродолжительность: 14 серий по 24 минуты + 7 спешиалов по 4 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D9809B27BE738D4701ACA277CEE589AD638104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918788   (584662) от 17.07.2015
+
+Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм шестой) [2014, MV] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Описание: Кидо Саори, с рождения обладающая мистической силой, в день своего шестнадцатилетия узнает, что является воплощением богини Афины. С этого момента ее жизнь наполняется невероятными событиями. Загадочное Святилище под управлением Святого отца отправляет подручных, дабы те избавились от самозванки, что выдает себя за Афину. Но на помощь Саори приходят юные (   Читать дальше...   )Производство: Toei AnimationЖанр: приключения, фэнтезиРежиссер: Сато КэйитиПеревод: Anku & mutagenbЯзык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67ED0D57F7FE61F691E6AEBAA4C968A7C29CC682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041072   (584417) от 07.08.2016
 
 NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BDRip 1080p raw
@@ -6,7 +58,7 @@ NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Sarusuberi: Miss Hokusai / Дочь Хокусая [2015, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Appleseed XIII | Яблочное зернышко OVA-2 [2011, OVA, 13 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Selector Infected WIXOSS | Селектор: Заражение WIXOSS [ТВ-1][
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Kaginado | Key и всякое | Кагинадо [ТВ-1] [2021, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Mahouka Koukou no Rettousei / Mahouka / The Irregular at Magic High School / Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Tenkuu no Shiro Laputa / Laputa: The Castle in the Sky / Небесный зам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +299,7 @@ Evangelion Shin Gekijouban: Ha / Evangelion 2.22: You Can (Not) Advance / Ева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +325,7 @@ Evangelion Shin Gekijouban: Jo / Evangelion 1.11: You are (not) alone / Еван
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +351,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | Наша служанка слишком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +377,7 @@ DMC | Detroit Metal City | Detroit Metal City: The Animated Series | Детро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +403,7 @@ Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорци
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +429,7 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +455,7 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +481,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +507,7 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +533,7 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +664,7 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,58 +675,6 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A515AA3761CFA97E887EF3E89DED46840899D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130470   (565390) от 23.07.2017
-
-Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняющая духов [2016, TV, 12 эп. + OVA] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матои Сумераги — ученица второго класса старшей школы, работающая на полставки служительницей в храме Тенман города Камая. С раннего детства Матои воспитывали бабушка и дедушка, и только несколько месяцев назад она наконец-то стала жить со своим отцом. У девушки есть близкая подруга-коллега Юма Кусанаги — дочка первосвященника храма, которая должна стать штатной (   Читать дальше...   )Производство: студия White FoxЖанр: приключенияРежиссер: Сакой МасаюкиПеревод: Mentat & Apostol  & Avant HeimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ADC2612A3786317E5E7BF4A077DE2DEE81A1E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044634   (565047) от 20.08.2016
-
-Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эсперы, называемые в этом мире Минимумами, по-разному относятся к своему дару. Кто-то чувствует ответственность, а кто-то считает себя полубогом, для которого остальные – пыль под ногами. Справиться с такими непросто, но там, где пасует «королевская рать», на стражу закона становятся детективы-эсперы. Они не любят полицейской муштры и часто работают свободными художниками. (   Читать дальше...   )Жанр: приключения, детектив, мистикаРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E64A60FF075E6DDE37ED327CEA7FFBF1E4C5FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

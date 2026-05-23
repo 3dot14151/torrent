@@ -1,3 +1,81 @@
+###  Публикация: 1540504   (623649) от 14.04.2022
+
+Отдых / Rest (2021) WEBRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мальчик пытается взять под контроль кошмар, в котором он находится.Производство: СШАЖанр: Короткометражный, ужасыРежиссер: Дилан КларкАктеры: Бретт МорроуПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 00:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0889D96710F37EC354E1A6E4030AC445D940F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144982   (623638) от 24.06.2017
+
+Жена смотрителя зоопарка / The Zookeeper's Wife  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Реальная история отважного подвига смотрителей Варшавского зоопарка Яна и Антонины Жабинских, давших убежище и сохранивших жизнь более, чем 300 евреям во время II Мировой войны. Ежедневный риск и опасность осложняются для Жабинских взаимоотношениями с бывшим другом семьи, а ныне высокопоставленным нацистским чиновником Лутцем Хеком, влюбленным в Антонину.Производство: Чехия, Великобритания, СШАЖанр: драма, военный, биография, историяРежиссер: Ники КароАктеры: Джессика Честейн, Йохан Хелденберг, Даниэль Брюль, Тимоти Редфорд, Эфрат Дор, Иддо Голдберг, Шира Хаас, Майкл МакЭлхаттон, Вэл Малоку, Марта Иссова, Даниель Ратиморский, Фредерик ПрестонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 02:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B4FAF56304499DE62D8D051D887BA950323A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036322   (620997) от 20.07.2016
+
+Несносные леди / Mother's Day  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фитнес и шопинг, капризные предки и непослушные дети, завистливые подружки и надоевшие бывшие - милые составляющие настоящего женского счастья. А также мужского, если ты - отец-одиночка. И неважно, где и как сведет вас жизнь, если ты встретишь настоящую любовь. Главное - не сдаваться! Ведь судьба - это большой супермаркет, а не магазин на диване.Производство: США, Open Road Films (II), Rice Films, Gulfstream Pictures, Aperture Media Partners, May Day Movies, Triad Film Works, Beatnik Films, Capacity Pictures, PalmStar MediaЖанр: драма, комедияРежиссер: Гэрри МаршаллАктеры: Дженнифер Энистон, Джулия Робертс, Кейт Хадсон, Джейсон Судейкис, Тимоти Олифант, Шэй Митчелл, Калеб Браун, Брэндон Спинк, Сэм Маршалл, Сиена ЛаГамбина, Джозеф Лео Бвари, Мэттью УолкерПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129BC236B3E486A925A566C206D757246E6200FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910765   (619962) от 21.06.2015
 
 А вот и она / And So It Goes  (2014) BDRip [H.264/1080p] [EN / It, En Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8131529307F033963B8CD7AAF8C8E525AE26BA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148832   (602445) от 09.07.2017
-
-Хикок / Hickok (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное приключение Дикого Билла Хикока — американского героя Дикого Запада, легендарного стрелка и разведчика.Производство: США, Status Media & Entertainment, Avery Productions (II), Vision TreeЖанр: ВестернРежиссер: Тимоти Вудворд мл.Актеры: Люк Хемсворт, Трэйси Д. Эдкинс, Крис Кристофферсон, Брюс Дерн, Кэмерон Ричардсон, Каиви Лайман, Хантер Фишер, Роберт Катрини, Бритен Саймонс, Кимберли Александр ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A889B7F46B9F37A6FE7603E6972068CDAB82F5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297756   (601812) от 27.04.2019
-
-Затерянные во льдах / Arctic (2018) BDRip [H.264/720p] [EN  / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601812.jpg" />
-</div>
-
-
-###  Подробнее
-
-В арктической пустыне — ледяной, снежной, оторванной от мира, где температура воздуха может опускаться до 70⁰С, Хаксли, пилот потерпевшего крушение самолёта, отчаянно борется за жизнь. Он научился справляться с холодом, охотиться, чтобы прокормить себя. В этих условиях ему предстоит заботиться о спасательнице, которая попала в шторм и разбилась. Девушка серьёзно (   Читать дальше...   )Производство: Исландия, Armory Films, Pegasus Pictures, Union Entertainment Group (II)Жанр: Приключения, ДрамаРежиссер: Джо ПеннаАктеры: Мадс Миккельсен, Мария Тельма СмарадоттирПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BDBFE4A53B350CE7107C9E4E48BF555E7BE55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231499   (599629) от 24.06.2018
-
-Рэмпейдж / Rampage (2018) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приматолог Дэвис Окойи предпочитает держаться подальше от людей и дружит с Джорджем, удивительно умным самцом гориллы, которого он воспитывал с самого рождения. Но вышедший из-под контроля генетический эксперимент превращает послушную обезьяну в яростного монстра. Более того, вскоре обнаруживается, что существуют и другие модифицированные хищники. Пока свежесозданные (   Читать дальше...   )Производство: США, 7 Bucks Entertainment, ASAP Entertainment, Flynn Picture CompanyЖанр: Боевик, Приключения, ФантастикаРежиссер: Брэд ПейтонАктеры: Дуэйн Джонсон, Наоми Харрис, Малин Акерман, Джеффри Дин Морган, Джейк Лэси, Джо Манганьелло, Марли Шелтон, П.Дж. Бирн, Деметриус Гросс, Джек Куэйд ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956C004D59C3E711A9AD92649C0A602CF8FACF7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

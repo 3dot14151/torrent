@@ -1,3 +1,56 @@
+###  Публикация: 200041   (586512) от 21.05.2022
+
+Natura Sound Therapy 3.0 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Natura Sound Therapy - программа поможет вам отвлечься от работы и хорошенько расслабиться под звуки океанских волн, шума леса, шторма и т.д., при этом выдаются красивейшие видео сцены природы в HD Video качестве с использованием стереозвука.
+У пользователя есть возможность смешивать "плеск волн", "шум леса" и другие аудио-составляющие, накладывать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C64A920BE178281BE21EA197893AEECA7793E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363408   (566670) от 15.07.2011
+
+WinLekar 4.0.0.62 (2011)
+
+>>След.
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+WinLekar - cборник последних версий 18 распространенных активаторов Windows XP, Windows Vista, Windows 7, Windows Server 2008 и Microsoft Office 7,2010. Зачем искать отдельный активатор в интернете, постоянно натыкаясь на архивы требующих отправку платных СМС, когда можно скачать полный сборник безопасных активаторов на каждый день.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924451   (558868) от 03.08.2015
 
 RADIO AdsMan Pro 2.2.2.140 [Ru/En]
@@ -6,7 +59,7 @@ RADIO AdsMan Pro 2.2.2.140 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Maia Mechanics Imaging 2.8.9.0 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +112,7 @@ Mirillis Action! v 3.9.6 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +139,7 @@ Mkey 1.3.5 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +166,7 @@ Dxtory 2.0.127 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +192,7 @@ Driver Signature Enforcement Overrider 1.3b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +218,7 @@ Desktop Gadgets 1.1 [Мульти, Русский]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +244,7 @@ Wall Street RоВоt - форекс советник для МТ4/МТ5 4.2 [Eng
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +270,7 @@ PowerPlan v3.2e & Trackpad++ v3.5b [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +296,7 @@ TransTrade 2.9 [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +322,7 @@ KinoScreen 1.1 + Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +400,7 @@ FPS Monitor 5440 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +428,7 @@ Ripple Screensaver 3.2 RePack by вовава [Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +480,7 @@ Sotis 3.11 (07.12.2016) [Multi/Ru] (Обновляемая)
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +506,7 @@ Keyboard Leds 2.7.1 [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +533,7 @@ Clickermann 4.13.014 Portable [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +585,7 @@ Windows Style Builder (aka Vista Win7 Style Builder) 1.5.6.3 Beta Portable by Xp
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -585,7 +638,7 @@ AIO Runtimes 2023 v.1.1 ( MS Visual C++ MS DirectX + DLL/OCX + Trusted Root CA P
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -611,7 +664,7 @@ EarthView 7.13.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -622,59 +675,6 @@ EarthView — это динамические обои для рабочего �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A2FEE3210A61A21E749BB8A9F0B98DF3195813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834959   (250625) от 04.11.2025
-
-AltSnap 1.66 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лёгкая и бесплатная утилита на русском языке AltSnap - это утилита, облегчающая управление окнами на компьютере. Теперь вы можете удерживая курсор мыши в произвольной точке окна, легко перемещать это окно по экрану.
-Обычно, чтобы переместить или изменить размер окна, нужно щелкнуть на его строке заголовка. С помощью AltSnap всё, что вам нужно сделать — это зажать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4387A1FB4027CD048B8BDCA8AB2169C617D094C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541744   (244050) от 04.04.2022
-
-AMP Font Viewer 3.86 + Portable [Multi]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта программа представляет собой простой в использовании, но достаточно функциональный менеджер шрифтов, который позволяет вам получить краткий обзор как установленных, так и неустановленных шрифтов. Он может устанавливать и удалять шрифты, а также организовывать их по категориям.Язык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36C61D18243D9C4B22FD88A0475E68A439641A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

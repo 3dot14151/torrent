@@ -1,3 +1,171 @@
+###  Публикация: 470204   (83095) от 19.03.2012
+
+Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria
+02. Silent Night
+03. When A Child Is Born
+04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470281   (83066) от 19.03.2012
+
+Мегамикс Philizz Video YearMix 2011. Пиратская Вечеринка HD x264 1080p 6,64Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
+И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2011! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 57 мин 51 сек (00:57:51)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574A9B43AA7475B8BCE9EE20C0BFCBAAB2DC0C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470049   (82932) от 18.03.2012
+
+Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray x264 DTS 1080p 13Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник клипов: Видеоклипы Digital Musical Rays-Vol 01 20101: Hindi New Songs. И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра Blu-Ray!
+
+Данный релиз для тех, кому не "по карману" оригинал 36,3 Gb: Видеоклипы Digital Musical Rays 2010. Пиратская Вечеринка Blu-Ray DTSЖанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 53 мин 13 сек (02:53:13)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0C394640A5F1ACD8A6DEA8EB19BEBE622F95E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469119   (82805) от 18.03.2012
+
+Дядюшкин сон / БДТ им. Товстоногова (2011) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Санкт-Петербургского Большого Драматического театра им.Товстоногова.
+
+В маленький провинциальный городок Мордасов приезжает престарелый богатый князь, которого местная светская "львица" Марья Александровна Москалева решает женить на своей красавице дочери Зиночке, в которую был влюблён Павел Александрович, племянник князя.
+(   Читать дальше...   )Жанр: трагикомедия, спектакльРежиссер: Темур ЧхеидзеПродолжительность: 01:21:04 + 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0E1BF5CE4D7377C97C698D3A0C6E29DDF0C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469028   (82706) от 17.03.2012
+
+UK Top 40 Music Video Hits Febuary 2012 (DVD5)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 Gotye Feat Kimbra - Somebody That I Used To Know
+02 David Guetta Feat Sia - Titanium
+03 Will.I.Am Feat Mick Jagger & Jennifer Lopez - T.H.E. (The Hardest Ever)
+04 Jessie J - Domino(   Читать дальше...   )Жанр: Музыка (видеоклипы)Перевод: ОтсутствуетЯзык субтитров: нетПродолжительность: 02:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AB80BB8F459C2F3A243268EC65BC0167E964ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468309   (82271) от 15.03.2012
+
+Приключения Электроников - Клипы [2001-2011, Pop-Punk, DVDRip,TVRip,WEBRip] [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Приключе́ния Электро́ников — российская панк-рок-супергруппа. «Приключения Электроников» не исполняют собственных песен (за исключением песни "Уходит детство") — исключительно кавер-версии песен из советских детских фильмов, мультфильмов и просто хиты тех лет.Жанр: РоссияПродолжительность: 00:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C88AF25AF57C898C9E75416342D5E3A5641B1C85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467194   (81908) от 13.03.2012
 
 Душевные песни, знакомые с детства / THE OLD [Part 1] (2007) SATRip
@@ -6,7 +174,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +278,7 @@ Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -198,7 +366,7 @@ Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -224,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -250,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -285,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -313,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -342,7 +510,7 @@ ZZ Top - Live From Texas  (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -368,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -394,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +591,7 @@ Pirate party The Best Videoclip (2010-2012) HDTVRip 1080p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +617,7 @@ Ringo Starr and the Roundheads - Live (2005) BDRip[720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +680,7 @@ Sigue Sigue Sputnik – Live In Tokyo (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +706,7 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -549,192 +717,6 @@ Emma Hewitt - Colours (Armin van Buuren Remix) (2012) HDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C601DA0ED9FDF8A40AEB8066CF19A42C0A1DD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458167   (78394) от 25.02.2012
-
-NikitA - Машина (2009) HDRip [720p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0820853631BD1DAD1095278CEEF9FB414E7CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456559   (78214) от 24.02.2012
-
-Deep purple - Machine Head Live 1972 (1999) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456492   (78198) от 24.02.2012
-
-Ozzy Osbourne-The Ultimate Ozzy (1986) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78198.jpg" />
-</div>
-
-
-###  Подробнее
-
-"The Ultimate Ozzy" записанно во время концертов американского тура в поддержку альбома "The Ultimate Sin",кстати,"разогревали" группу OZZY в том американском туре молодые "Metallica", которые очень понравились Осборну...Довольно редкое видео, молодой OZZY в свои самые лучшие времена.01. Shot In The Dark
-02. Bark At The Moon
-03. Suicide Solution
-04. Never Know Why
-05. Mr.Crowley
-06. I Don't Know
-07. Killer Of Giants
-08. Guitar Solo \Jake E.Lee\
-09. Thank God For The Bomb
-10. Lightning Strikes(   Читать дальше...   )Жанр: Hard Rock\MetalПродолжительность: 01:25:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455499   (78191) от 24.02.2012
-
-VA - Millenium Sexy vol.3 - Сборник видеоклипов (2011) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Narcotic Sound and Christian D - Danca Bonito
-02 Blank And Jones feat Bobo - Perfect Silence
-03 NikitA - Bite
-04 David Deejay - Perfect 2
-05 Dj.Sava feat Andreea D and Yolo - Money Maker
-06 Klaas and Bodybangers - Freak
-07 Dev - In The Dark
-08 Outwork feat Mr. Gee - Elektro
-09 Dj.Flower - Jamaican Love
-10 Heaven feat Glance - Sexy Girl(   Читать дальше...   )Жанр: VariousПродолжительность: ~01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DC6C6C973B99AE17476F4B83332ACE0159ABB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455702   (77580) от 21.02.2012
-
-Lee Ritenour & Dave Grusin - Jazzfestival Montreux 2011 (2011) HDTV
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в аудитории Стравинского на  Jazzfestival Montreux 2011 известного гитариста Lee Ritenour и американского пианиста, композитора, аранжировщика Dave Grusin
-http://www.leeritenour.com/
-http://en.wikipedia.org/wiki/Lee_Ritenour
-http://en.wikipedia.org/wiki/Dave_GrusinЖанр: ДжазРежиссер: LEE RITENOURАктеры: LEE RITENOUR - Guitars ; DAVE GRUSIN - Piano, keyboard ; MELVIN DAVIS - Bass ; SONNY EMORY - DrumsПеревод: ОтсутствуетПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454797   (77221) от 19.02.2012
-
-Adele: Live at the Royal Albert Hall (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись, пожалуй лучшего, концерта Адель "Live At The Royal Albert Hall" доступна на DVD и Blu-Ray. Включает полную 90-минутную версию концерта. Впервые все хиты Адель на одном диске.01. Hometown Glory
- 02. I'll Be Waiting
- 03. Don't You Remember
- 04. Turning Tables
- 05. Set Fire To The Rain
- 06. If It Hadn't Been For Love
- 07. My Same
- 08. Take It All
- 09. Rumour Has It
- 10. Right As Rain(   Читать дальше...   )Жанр: Soul, Blues, VocalРежиссер: Paul DugdaleПеревод: ОтсутствуетПродолжительность: 1:41:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1819726   (1153) от 24.09.2025
+
+VA - Buddha Bar - Premium Playlist {c} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Cairo Steps - Desert Road (Wahbas Moonlight Remix) {Buddha-Bar - 20, 2018}.mp3
+02. Calavera & Manya - Mir {Buddha-Bar_ Straight to the Heart, 2024}.mp3
+03. Calavera & Manya feat. Maja Aleksic - Seta (Original Mix) {Buddha-Bar Clubbing • In Deep Session, 2017}.mp3
+04. Calm - Space Is My Place (Mark Barrott's Re-Imagination to the Sacred Heart Center) {Buddha-Bar (   Читать дальше...   )Жанр: Lounge, Chill-Out, World MusicПродолжительность: 05:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE3AF614F56232047D85E500F4286204E27C4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819723   (1131) от 24.09.2025
 
 VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Chill-Out, World Music>
@@ -6,7 +35,7 @@ VA - Buddha Bar - Premium Playlist {#, a} (2007-2025) [MP3|320 Kbps] <Lounge, Ch
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Buddha Bar - Premium Playlist {b} (2007-2025) [MP3|320 Kbps] <Lounge, Chill
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

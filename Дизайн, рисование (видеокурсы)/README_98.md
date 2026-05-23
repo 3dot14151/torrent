@@ -1,3 +1,85 @@
+###  Публикация: 1793857   (20207) от 26.04.2025
+
+Skillshare, Gui Jorge Porto | Blender Grease Pencil: Combining 3D and 2D Animation (2024) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Blender сам по себе является потрясающим бесплатным инструментом для 3D—художников, но с тех пор, как они внедрили Grease Pencil — инструмент, позволяющий рисовать 2D-элементы непосредственно в 3D-пространстве, - он стал незаменимым инструментом и для 2D-художников. Используя Grease Pencil в Blender, у вас появятся бесконечные возможности для смешивания стилей, 2D, (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделирование, Анимация, Grease PencilЯзык озвучки: АнглийскийПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE78F4ADC2820758D1D33F4BAE6AD71902712E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793868   (20206) от 26.04.2025
+
+Джама Джурабаев | 360 Panoramic Drawing in Blender 2.8 (Grease Pencil) (2018) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В этом руководстве показаны различные подходы к созданию 360-градусного панорамного рисунка в Blender 2.8 с помощью Grease Pencil.
+
+Рабочий процесс 360 в Blender гораздо более оптимизирован и эффективен по сравнению с предыдущими техниками, которые я использовал в Photoshop или 3D-Coat.
+(   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, Рисование, Blender, Grease PencilЯзык озвучки: АнглийскийПродолжительность: 03:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196D9EDA913420D05080339807B7CECE1EE8CD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793839   (20197) от 26.04.2025
+
+Udemy, Canopy Games, Michael Bridges | Blender Python Scripting - A Step-by-Step Guide for Beginner (2025) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Хотите повысить эффективность своего процесса 3D-моделирования за счет автоматизации? Тогда вы обратились по адресу!
+Blender - это невероятно универсальное программное обеспечение, способное создавать потрясающие 3D-модели. Но знаете ли вы, что его функциональность можно расширить с помощью сценариев на Python? Этот курс познакомит вас с Python API Blender, что позволит (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, СкриптингЯзык озвучки: АнглийскийПродолжительность: 09:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A485710C74498007934D2705A01F916334A9F050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793825   (20192) от 26.04.2025
 
 Domestika, Davide Virdis | Intro to 3D Livery Design: Decals for Digital Cars (2023) PCRec [EN / EN Sub]
@@ -6,7 +88,7 @@ Domestika, Davide Virdis | Intro to 3D Livery Design: Decals for Digital Cars (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -33,7 +115,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Photogrammetry Course: Photorea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -59,7 +141,7 @@ Artstation Learning, Javier Perez | Creating a Modular Sci-Fi Environment Using 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -87,7 +169,7 @@ Artstation Learning, Enrico Tammekand | Creating a Subsurface Scatter Material i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -113,7 +195,7 @@ Udemy, Chloe Gendron | Accelerate Your Learning with Master Studies in Pen and I
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -140,7 +222,7 @@ CG Cookie | CORE Fundamentals: 9 Essential Courses for Blender 4.2 (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -167,7 +249,7 @@ CG Cookie, Wayne Dixon | RIG: Blender's Character Rigging Playbook (2024) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -195,7 +277,7 @@ CG Cookie, Lucas Falcao | BASEMESH: Create Stylized Characters Quickly with Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -222,7 +304,7 @@ The Gnomon Workshop, Jordan Soler | Realistic Dog Grooming for Production with X
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +331,7 @@ CG Cookie, Kent Trammell | THE COLLABS COURSE: A Raw Look Into Remote Blender Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -277,7 +359,7 @@ Gumroad, John Grello | IONIC Sketchbook 2019 - Digital Edition (2019) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -304,7 +386,7 @@ Stuart Loughridge | Портретный эскиз (2023) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -330,7 +412,7 @@ Gerardo Escamilla | Быстрый набросок (2025) WEBRip [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -356,7 +438,7 @@ Susan Rubin | Основы работы с цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -382,7 +464,7 @@ Kerry Brooks | Яркие портреты цветными карандашам
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +490,7 @@ Susan Rubin | Библиотека для начинающих: Цветные �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +516,7 @@ CGMA, Yves Yumol | Absolute Beginners (2020) WEB-DL [EN / EN, RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +542,7 @@ The Gnomon Workshop, April Connors | Gesture Drawing Fundamentals (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +570,7 @@ Udemy, Sam Parulekar | Learning AutoCAD 2026 (2025) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +596,7 @@ The Gnomon Workshop, Victor Javier Garza | Grooming in Yeti: Hair Solutions for 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,7 +624,7 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -571,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -599,7 +681,7 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,91 +692,6 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB2CD37228C9F23411100A18113388DE1E0874B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786021   (14262) от 18.06.2025
-
-Учебный центр AMS³, Алексей Меркулов, Иван Юриков | Архитектурная визуализация 3ds Max + Corona Renderer (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь создавать современные визуализации экстерьеров.
-Получите крутой опыт и начнете работать на 100% качественнее всех ваших конкурентов!
-Обучаем с нуля. Разбираем каждый шаг на пути к освоению архитектурной визуализации.
-Сопровождаем на каждом этапе и подсказываем как улучшить вашу работу до профессионального уровня.(   Читать дальше...   )Производство: Учебный центр AMS³Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 27:49:18Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7C7DE194357CF0F1E7518FA5E416E86613CF71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802959   (14021) от 20.06.2025
-
-ArtStation, LaurentiuN | Ultimate 3D Weapon Tutorial for Portfolio (2025) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите создать высококачественное 3D-оружие для своего портфолио? Тогда этот курс для вас!
-Привет, я LaurentiuN — старший 3D-художник с более чем 14-летним опытом работы в игровой индустрии, включая работу над такими играми, как Call of Duty и Apex Legends. После многих лет просьб поделиться своим процессом я, наконец, создал учебное пособие, разработанное специально (   Читать дальше...   )Производство: ArtStationЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 35:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE98CF40CBECE8A0D7E12E38A2657EF3FA7C8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803301   (13820) от 22.06.2025
-
-Gumroad, Cane Townsend | Hard Surface in Blender [Part 1-2] (2025) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой рабочий процесс даст вам преимущества полигонального моделирования в сочетании с простым CAD.
-- С тех пор, как я начал использовать полигональное моделирование, оно долгое время было ограничивающей формой моделирования.
-- Постоянное внимание к топологии и технической неразберихе сделало его непривлекательным инструментом для дизайнеров.
-- Я сам отказался от него (   Читать дальше...   )Производство: Gumroad (Part 1, Part 2)Жанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 12:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FE89DC0464EC417E2151744644B11554FEC2E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

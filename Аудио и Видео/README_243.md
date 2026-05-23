@@ -1,3 +1,32 @@
+###  Публикация: 1512944   (227701) от 27.11.2021
+
+VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Compuphonic, Marques Toliver - Sunset (Tim Engelhardt Remix A) (7:10)
+02. Jurek Riegler - Muddy Waters (Original Mix) (8:10)
+03. Kadosh (IL), Yost Koen - Mindrum (Original Mix) (6:37)
+04. Alessio Pagliaroli, Jinadu - Colour My Vision (Massimiliano Pagliara Remix) (9:30)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6CD56E1AAA7CB372C5706ECD79438D40BE53EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512890   (227693) от 27.11.2021
 
 VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
@@ -6,7 +35,7 @@ VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Chillout Adventures, Pt. 7 (2021) [AAC|~330 Kbps] <Ambient, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Balearic Deep-House Winter 2022 (2021) [AAC|~325 Kbps] <Deep House, Chill H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Arabian Nights 2 (2020) [AAC|~329 Kbps] <Chill Out, Downtempo, Organic Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -174,7 +203,7 @@ VA - Arabian Nights (2019) [AAC|~314 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -203,7 +232,7 @@ VA - Winter Chillout Lounge 2021 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -232,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -258,7 +287,7 @@ Wham! - Japanese Singles Collection -Greatest Hits- (2020) [AAC|~322 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -287,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -313,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -339,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -365,7 +394,7 @@ VA - Parvati Records 20th Anniversary (2020) [AAC|~328 Kbps] <Psy-Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -394,7 +423,7 @@ VA - Urban City Vibes, vol. 6 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +452,7 @@ VA - Urban City Vibes, vol. 4 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +507,7 @@ VA - Dark Melodies, Vol. 5 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +536,7 @@ VA - Urban City Vibes, vol. 2 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +565,7 @@ VA - Polyptych Limited: Year One (2021) [AAC|~314 Kbps] <Progressive House, Melo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,7 +594,7 @@ VA - Urban City Vibes, vol. 5 (Urban Funk, Soul and Lounge Music) (2020) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -594,7 +623,7 @@ VA - Summer Collection 2021 (2021) [AAC|~339 Kbps] <Progressive House, Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -623,7 +652,7 @@ VA - Dark Melodies, Vol. 6 (2021) [AAC|~323 Kbps] <Progressive House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -652,7 +681,7 @@ VA - Urban City Vibes, vol. 1 (Urban Funk, Soul and Lounge Music) (2018) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -681,7 +710,7 @@ Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -695,35 +724,6 @@ Till Brönner, Bob James - On Vacation (2020) [AAC|~324 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C05FA528352473A95BE5AD530010FEF6FB9A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424795   (226095) от 18.11.2020
-
-VA - Urban City Vibes, vol. 3 (Urban Funk, Soul and Lounge Music) (2019) [AAC|~333 Kbps] <Chillout, Lounge, Trip-hop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Bronco - Monkeys (Original Mix) (4:51)
-02. Martin Liege - Sunrise Drive (Original Mix) (4:09)
-03. Elton Dumont - All Night Long (Original Mix) (3:16)
-04. Ricky Jones - Just Be (Orginal Mix) (4:44)(   Читать дальше...   )Жанр: Chillout, Lounge, Trip-hopПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1111A20F73A46D0B5AC66F09BED4A0F0B0E6F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

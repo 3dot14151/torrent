@@ -1,3 +1,83 @@
+###  Публикация: 978378   (961941) от 24.01.2016
+
+Кальвин Голливуд | Мощь цифрового света (2012) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Кальвин Голливуд возвращается со своим новым курсом под названием "Мощь цифрового света".
+Все уроки в курсе выполняются на 100% в Фотошопе, и речь в нем пойдет о манипуляции со светом, техникой осветления и затемнения, и о многом другом. Каждый урок содержит в себе клевые техники, которые вы можете использовать в ваших собственных работах.Жанр: Компьютерная графика, PhotoshopПродолжительность: 01:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7599E78C1AC0715ACC44AD25DA3F9353BE15F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361011   (956843) от 18.02.2020
+
+Кент Траммелл / Kent Trammell | Основы цифрового скульптинга в Blender 2.8 / Fundamentals of Digital Sculpting with Blender 2.8 (2020) PCRec [H.264] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Изучите все основные инструменты, функции и методы цифрового скульптинга в программе Blender 2.8. Этот учебный курс поможет освоить базовые знания и в дальнейшем использовать их в будущих проектах. В конце урока мы создадим симпатичного персонажа Акулы по концепту художника Алисы Вейси.
+Вместе мы применим то, чему научились - от цифрового  шарика до трехмерного представления (   Читать дальше...   )Производство: CGCookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2BCDA08C868465C8A0A9C575145449BEDA8344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980112   (956807) от 28.01.2016
+
+Нетология | Веб-дизайнер: эффективный сайт от идеи до реализации (2014) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь своими руками создавать дизайн сайтов и выработаете чувство вкуса, которое станет основной вашего профессионального роста. Общение с ведущими сотрудниками лучших российских веб-студий даст вам бесконечный заряд для новых дизайн-подвигов, а их знания и опыт помогут в нужный момент спуститься с небес на землю, чтобы правильно организовать работу и сделать (   Читать дальше...   )Жанр: Веб-дизайн, дизайн, ux, uiПродолжительность: 40:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAD8ECA11ADC06D6DEB2070487DAC9499F103F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362144   (950651) от 22.02.2020
 
 Чипп Уолтерс | NITROX3D: Недеструктивное моделирование в Blender 2.8 / NITROX3D Non-Destructive Blender Modeling Course (2019) PCRec [H.264/1080p-LQ] [EN]
@@ -6,7 +86,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +113,7 @@ Pluralsight.com | Основы Cinema 4D Mograph / Cinema 4D Mograph Fundamental
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +140,7 @@ Udemy.com | InDesign CC 2019 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +193,7 @@ Lendwings | User Experience: детальное руководство по Юз
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +221,7 @@ Side FX, John Lynch | Houdini 16 Ocean Tools (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +247,7 @@ Side FX, Omar Zarifi | Houdini 17 Masterclass: Whitewater System (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +273,7 @@ Side FX, Andreas Glad | Splashmesh Houdini for games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +299,7 @@ Blender Cloud, Kjartan Tysdal | Low Poly Character Creation (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +381,7 @@ Udemy, Darrin Lile | Create Game Characters with Blender (2017) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +408,7 @@ CG Cookie, Jonathan Williamson | Low Poly Character Creation in Blender (2011) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +435,7 @@ Gumroad, Lu Dongjun | Lava Stone (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +461,7 @@ Gumroad, Lu Dongjun | Snow Rock (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +487,7 @@ Specialist, Эпов Дмитрий Андреевич | Autodesk 3ds Max 2013 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +513,7 @@ TheNewBoston | Адоб Иллюстратор CS6 для начинающих /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +539,7 @@ Udemy | Blender 2.8 Полное руководство от новичка до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +565,7 @@ Diskill | Logo Start. Создание логотипов (2021) WEB-DL [AD]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +594,7 @@ lynda.com | CINEMA 4D R17 Essential Training (2016) PCRec [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,7 +620,7 @@ CGcircuit, David Adan | Introduction to VEX - Volume 1 (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,7 +648,7 @@ Udemy, Mrawan Hussain | Blender 2.83: How to create realistic BedRoom with Cycle
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -596,7 +676,7 @@ TheNewBoston | Фотошоп CS6 / Photoshop CS6 (2014) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,88 +687,6 @@ TheNewBoston | Фотошоп CS6 / Photoshop CS6 (2014) PCRec [EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8000E26F512CD74F64A32AFFC7802DD3F80E7C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491439   (910575) от 25.08.2021
-
-CGcircuit, David Adan | Introduction to VEX - Volume 3 (2019) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот обучающий ролик посвящен изучению основ языка выражений VEX. Он используется для симуляции динамики твердых тел.
-Курс даст зрителю понимание основ динамики твердых тел. Приложив небольшие усилия и используя сниппеты VEX, мы выйдем за рамки настроек по умолчанию.
-В первой части мы разберем базовые настройки динамики твердых тел, подробно обсудим несколько очень (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F512BF25E92F686AB445AA06F1C5F90A174B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491435   (910574) от 25.08.2021
-
-CGcircuit, David Adan | Introduction to VEX - Volume 2 (2019) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс посвящен использованию VEX, языка самых распространенных задач VFX, Particles и Volumes. Хотя это вводный курс, мы обсудим тему реализации полезных и мощных сценариев с использованием атрибутов VOP и Wrangles. Он разработан таким образом, что слушатель будет постепенно изучать использование общих функций VEX с упором на практику.
-В первой части вы узнаете, как (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A0D89A993103434353BC4A707635C6CA7F0CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368106   (910415) от 19.03.2020
-
-Udemy | Скриптинг в Blender 2.81 / Python Scripting in Blender 2.81 with Practical Projects (2019) PCRec [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите Python внутри Blender с помощью этого простого курса. Вам не нужен никакой предыдущий опыт работы с Blender или Python, мы действительно начинаем с основ и начинаем создавать ваши знания с нуля.
-Python - это действительно популярный язык программирования, и в сочетании с Blender поможет вам лучше понять язык через визуальную обратную связь интерфейса Blender. (   Читать дальше...   )Производство: UdemyЖанр: 3D графика, ПрограммированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 01:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A21DA426A0420D7E3726B66112174CE8F2E8C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

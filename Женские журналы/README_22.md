@@ -1,3 +1,185 @@
+###  Публикация: 1338757   (268981) от 16.11.2019
+
+Журнал | Vogue IN №10 (октябрь 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC866F9C5E5F481F3321508AA6F1828C46E1337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338627   (268980) от 16.11.2019
+
+Журнал | Harper’s Bazaar MX №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«Харперс базар» — женский журнал о моде, стиле и обществе, вышедший в свет в США в 1867 году, издавался еженедельно компанией «Harper and Brothers». С 1901 года «Harper’s Bazaar» в формате альбома стал выходить ежемесячно.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE7068B314EA14BAAC4A2FC6ABEBED7673229FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338758   (268978) от 16.11.2019
+
+Журнал | Vogue IN №9 (сентябрь 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F114F1E5AA75CDFD472F65078353877C25A0A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338753   (268977) от 16.11.2019
+
+Журнал | Vogue MX №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0035D7146EBED7CA2CD2BEC9ABF93394FB23DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338751   (268976) от 16.11.2019
+
+Журнал | Vogue Latin America №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1840833EFDC0285A09C6C92ADD2BE00A772211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338628   (268975) от 16.11.2019
+
+Журнал | HOLA Fashion ES №11 (ноябрь 2019) [PDF] [Es]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Все последние новости о моде (подиумы, модели, дизайнеры, тренды, красные дорожки, стиль жизни).Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E5BE7681DE999537E7458063F4002BD997A4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338761   (268919) от 16.11.2019
+
+Журнал | Vogue USA №12 (декабрь 2019) [PDF] [En]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Vogue — женский журнал о моде, издаваемый с 1892 года издательским домом Condé Nast Publications.Жанр: Женский журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755E4747C844575A6879847EF11ACCDBE075BCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338765   (268916) от 16.11.2019
 
 Журнал | Vogue IT №11 (ноябрь 2019) [PDF] [It]
@@ -6,7 +188,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -112,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -294,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -476,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -487,188 +669,6 @@ Cosmopolitan — международный женский журнал. Сод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:462EB07191A7463D46A1E279C1A15BDE1E13B93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458819   (242100) от 30.03.2021
-
-Журнал | Elle Netherlands №3 (март 2021) [PDF] [Nl]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle — французский женский журнал о моде, красоте, досуге и здоровье, издающийся с 1945 года. В середине 1980-х годах, при выходе на международный рынок, стал выпускаться ежемесячно, сохранив еженедельный формат для Франции.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1CD289157561E83005CD4315D8FB735B473B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458825   (242093) от 30.03.2021
-
-Журнал | Elle México №3 (март 2021) [PDF] [Es]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C888C74E891ACAD22FBC568F3607E12216EC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458829   (242051) от 30.03.2021
-
-Журнал | Elle Italia №12 (март 2021) [PDF] [It]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4984CA6CB596DD15F6CCD26603D15E08B26D9BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493392   (238030) от 02.09.2021
-
-Журнал | Elle [México] №8 (август 2021) [PDF] [Es]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle, женский журнал о моде и моде в мире. Его страницы приблизят вас к миру моды, эстетики, последних тенденций, культурного авангарда, социальных вкусов или любого прогресса, направленного на улучшение вашего стиля жизни.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E5D5E6F499B6DF32AE75996D21D68A9DF210242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493369   (237997) от 02.09.2021
-
-Журнал | Mega [Philippines] №9 (сентябрь 2021) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времени выхода своего первого номера в 1992 году филиппинские дизайнеры стараются продвигать филиппинскую моду, ориентируясь на западные тренды.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180CCE0E28977A74B18E0361D0A60997CB492439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360372   (237367) от 15.02.2020
-
-Журнал | Mega PH №12 (декабрь 2019) [PDF] [En]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времени выхода своего первого номера в 1992 году филиппинские дизайнеры стараются продвигать филиппинскую моду, ориентируясь на западные тренды.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32947D14072AE22322CA8BCFFCA280070F6B0C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360383   (237246) от 15.02.2020
-
-Журнал | Elle Québec FR №2 (февраль 2020) [PDF] [Fr]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elle Québec - ежемесячное издание журнала Elle в Квебеке, которое выпускается с 1989 года. В журнале освещаются новости в области моды, красоты, развлечений, декора и т. д.Жанр: Женский журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E19DD42C4716B314C18968D9DBA3B5B3FE0DBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

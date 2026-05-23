@@ -1,3 +1,107 @@
+###  Публикация: 1676236   (158889) от 12.11.2023
+
+Пока, рыбка! (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История о двух молодоженах, поймавших золотую рыбку с вредным характером и мерзким голосом, которая превратила их приятный свадебный отдых в кошмар.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Ярослав ОсетровАктеры: Анна Корепина, Андрей Бурков, Лика Ширяева, Наталья Фенкина, Сергей ТодоровСубтитры: отсутствуютПродолжительность: 00:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD030AE2253CF3ABDA3784FF7D3A85A1CC330C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676209   (158786) от 12.11.2023
+
+Красавец и чудовище (2014) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Варвара Гвоздикова – торговка помидорами и гроза местного рынка. За словом в карман не лезет, себя в обиду не даёт. За непримиримый характер, чумазое лицо и вечную телогрейку Варю называют «чудовищем». Впрочем, не такое уж Варя «чудовище». Просто какой тут лоск, если работаешь от зари до зари, а всю зарплату забирают мать-пьяница и ее непутевый муж? Да и рынок провинциального (   Читать дальше...   )Производство: Россия, МедиапрофсоюзЖанр: мелодрамаРежиссер: Иван КриворучкоАктеры: Вероника Пляшкевич, Алексей Анищенко, Валерия Шкирандо, Артем Давидович, Тамара Миронова, Анастасия Боброва, Анатолий Гурьев, Олег Коц, Виталий Холодок, Ирина Корниевич и др.Субтитры: отсутствуютПродолжительность: 01:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B9BD4BF8B83BECF5CAB1D771E5FAEF0236BFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599975   (158782) от 26.12.2022
+
+Физфак (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В погоне за легкими деньгами студенты Тема и Макс создают мошеннический бизнес по поступлению в престижные ВУЗы. Схема безопасная, а ожидаемый доход будоражит их воображение. Все шло по плану, пока в судьбу каждого не вмешалась роковая любовь.Производство: Россия, КонтАкт продакшнЖанр: триллерРежиссер: Алексей КозловАктеры: Артем Цидилов, Олег Пальвинский, Анастасия Батанова, Дарья Нагибина, Георгий Мочалов, Мария Мельникова, Дарья Иванова, Анастасия Курочкина, Владислав Комаров, Татьяна ЛукасевичПеревод: Не требуется (Русский)Субтитры: отсутствуютПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D29B4FF820FA10AA7707DE08CD178F3CB090AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484291   (158574) от 20.12.2015
+
+Полтергейст - 90 (1991) VHSRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Журналист снял фильм под названием «Мафия бессмертна», но он положен на полку, а создателю недвусмысленно угрожают. На его глазах воспламеняются несколько человек, начинают происходить странные вещи. Он решает провести собственное расследование вместе со своим другом, учёным. Они находят подпольную лабораторию, генерирующую лучи, позволяющие на расстоянии воздействовать (   Читать дальше...   )Производство: студия «Странник» / ТПО «Одесса»Жанр: ФантастикаРежиссер: Владислав Семернин, Борис ЗагряжскийФормат: AVIПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3EFB219D1C3CB6CE2A34025906492FB753F51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 967802   (158299) от 21.12.2015
 
 Райские кущи (2015) WEB-DLRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B29088EB8656A547803CDEA6E1F82AD74CAAEC1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085645   (155558) от 22.12.2016
-
-Хороший мальчик (2016) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная, казалось бы, неделя из жизни ничем не примечательного школьника Коли Смирнова превращается в череду невероятных происшествий: Коля влюбляется в учительницу английского, кто-то поджигает школьную пристройку с новыми компьютерами, а папа Коли заявляет семье о необходимости отказа от ночного сна, из-за чего никому в доме не удается выспаться и собраться с мыслями. (   Читать дальше...   )Производство: Россия / 2D Целлулоид, Art Pictures StudioЖанр: КомедияРежиссер: Оксана КарасАктеры: Семён Трескунов, Константин Хабенский, Михаил Ефремов, Александр Паль, Анастасия Богатырева, Василий Буткевич, Иева Андреевайте, Ирина Денисова, Татьяна Догилева, Ирина ПеговаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E43C1E812255A4306B99AFF403F673AB9B691B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085846   (155457) от 22.12.2016
-
-Человек из будущего (2016) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155457.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Солнца отломался кусок, который летит на Землю. По всем прогнозам должен наступить апокалипсис для всего человечества и никто не знает путь к спасению. Самые богатые и влиятельные люди Земли, строят космические корабли, чтоб покинуть планету. В обычном супермаркете №5 появляется человек из будущего, ученый Меркурьев, который ищет кассиршу супермаркета по имени (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Роман АртемьевАктеры: Александр Числов, Сэсэг Хапсасова, Мария Скорницкая, Дмитрий Блохин, Александр Баширов, Лариса Домаскина, Иван Добронравов, Сергей БуруновПеревод: Не требуется (Русский)Продолжительность: 01:12:22Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843C9F88C078F352ECB0EAB76DFAF5B4E9D11320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085874   (155335) от 22.12.2016
-
-Человек из будущего (2016) WEB-DLRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155335.jpg" />
-</div>
-
-
-###  Подробнее
-
-От Солнца отломался кусок, который летит на Землю. По всем прогнозам должен наступить апокалипсис для всего человечества и никто не знает путь к спасению. Самые богатые и влиятельные люди Земли, строят космические корабли, чтоб покинуть планету. В обычном супермаркете №5 появляется человек из будущего, ученый Меркурьев, который ищет кассиршу супермаркета по имени (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Роман АртемьевАктеры: Александр Числов, Сэсэг Хапсасова, Мария Скорницкая, Дмитрий Блохин, Александр Баширов, Лариса Домаскина, Иван Добронравов, Сергей БуруновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:12:22Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7217070203CFA8A59514350769A11975F7D5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085668   (155303) от 22.12.2016
-
-Врач (2016) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Михайлович работает нейрохирургом в городской больнице. Его день состоит из операций, осмотров больных, попыток выбить квоты на размещение пациентов. Каждый день он оглашает людям страшные диагнозы и, словно мольбы о помиловании, выслушивает вопросы о том, есть ли хоть какая-нибудь надежда. Его преследует один страшный образ — человека, обреченного на неподвижную (   Читать дальше...   )Производство: Россия, АРТЛАЙТЖанр: ДрамаРежиссер: Гоша КуценкоАктеры: Гоша Куценко, Мария Порошина, Александр Яцко, Юрий Кузнецов, Анна Михалкова, Виктория Корлякова, Алёна Хмельницкая, Любовь Руденко, Олеся Железняк, Инна ПиварсПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76408AD81DDD1D03A8C34FFF1CF53A24E1814B0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

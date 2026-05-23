@@ -1,3 +1,55 @@
+###  Публикация: 1321061   (965887) от 10.02.2020
+
+Собачья жизнь / A Dog's Life (2017, 2019) BDRip [H.264/1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Собаки бывают разных пород, мастей и размеров. Они — наши самые верные и преданные друзья, а мы учим их хорошим манерам. Собаки всегда думают о нас, правда, иногда и о беконе. Все они каждый день провожают и встречают нас у порога в уверенности, что пока им есть, кого облизывать и любить, в их жизни есть смысл. Старый пес Бадди прожил несколько жизней, прежде чем (   Читать дальше...   )Производство: Индия, Гонконг, США, Китай / DreamWorks, Walden Media, Amblin Entertainment, Original PicturesЖанр: Фэнтези, драма, комедия, приключения, семейный, экранизацияРежиссер: Лассе Халльстрём, Гейл МанкусоАктеры: Джош Гэд, Дэннис Куэйд, Пегги Липтон, Кей Джей Апа, Брайс Гейзар, Джульет Райлэнс, Люк Кирби, Габриель Роз, Майкл Бофшевер, Бритт Робертсон, Эбби Райдер Фортсон, Бетти Гилпин, Кэтрин Прескотт, Марг Хельгенбергер, Джейк Мэнли, Даниэла Барбоза, Йен Чен, Генри Лау, Эмма Фольк, Джонни ГалэкиПеревод: ДублированныйСубтитры: Русские (форсированные), английские (полные)Продолжительность: 01:40:02 / 01:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A302CF1F89E31DF606427DADB2727BADB45791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747811   (960906) от 20.01.2014
+
+Блэйд / Blade (1998-2004) BDRip [720p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Его настоящее имя — Эрик Брукс, но его прозвали Блэйдом за мастерское владение особым мечом. Сами вампиры называют его «Дневным бродягой» за способность воспринимать солнечный свет, губительный для остальных вампиров. Он окончательно не превращается в вампира только благодаря синтетической сыворотке, периодические инъекции которой поддерживают его жизненные силы (   Читать дальше...   )Фатальные события могут привести к захвату власти в мире вампирами. Блэйд — единственный, кто может предотвратить страшные перемены и воспрепятствовать превращению мира в «Планету вампиров». Стремясь помешать Блэйду в реализации его плана, верхушка вампиров во главе с Даникой Талос натравливают на него людей. Полиция начинает охоту на того, кого теперь все считают (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Фантастика, Фэнтези, Боевик, ТриллерРежиссер: Дэвид С. ГойерАктеры: Уэсли Снайпс, Крис Кристофферсон, Доминик Пёрселл, Джессика Бил, Райан Рейнольдс, Паркер Поузи, Марк Берри, Джон Майкл Хиггинс, Каллум Кит Ренни, Пол ЛевескиПеревод: Дублированный, Многоголосый, ОдноголосыйСубтитры: Русские, АнглийскиеПродолжительность: 01:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A59088E2BF114BFBFC2F419197EB731C146F25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978069   (959437) от 26.01.2016
 
 Знакомство с родителями / Meet the Parents (2000-2010) BDRip [H.264/1080p] [Трилогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51B9E06DEB9C3AE2A8FFCBB7D7606BB5028711C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 864381   (916385) от 31.01.2015
-
-Багровые реки: Дилогия / Les Rivieres pourpres: Dilogy (2000-2004) BDRip [720p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916385.jpg" />
-</div>
-
-
-###  Подробнее
-
-В округе продолжаются убийства: таинственные монахи, обладающие сверхъестественной силой, убивают случайных встречных и исчезают бесследно. При помощи Мари, специалистки по истории религий, полицейские Ниман и Реда пытаются найти ответы на все вопросы…Производство: Франция, Италия, ВеликобританияЖанр: Триллер, боевик, детективРежиссер: Оливье ДаанАктеры: Жан Рено, Венсан Кассель, Надя Фарес, Доминик Санда, Карим Бельхадра, Жан-Пьер Кассель, Дидье Фламан, Франсуа Леванталь, Франсин Берже, Филипп Наон, Бенуа Мажимель, Кристофер Ли, Камилль Натта, Джонни Халлидей, Габриель Лазюр, Огустен Легран, Серж Рябукин, Андре Пенверн, Франсис РеноПеревод: ДублированныйЯзык субтитров: Русский , АнглийскийПродолжительность: 01:46:11 / 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73110D212E6D6B2C5511EF9D2375B609E189E7EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990158   (912987) от 24.02.2016
-
-Мы из будущего: Дилогия (2008-2010) DVDRip/HDRip
-
->>Коллекции / *логии
->>Отечественное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они встретились на поле «реконструкции военных событий» и хотели поиграть в войну. Но война решила поиграть с ними…
-Герои первой части фильма, Борман и Череп, попадают в 1944 год, и вместе с ними в прошлом оказываются еще двое — молодые украинцы Таран и Серый, «игравшие » в войну на другой стороне. Каждый из них совершит свой подвиг, чтобы вернуться домой и сберечь (   Читать дальше...   )Производство: Россия, Компания "А-1 КИНО ВИДЕО"Жанр: Фантастика, ВоенныйРежиссер: Александр Самохвалов, Борис РостовАктеры: Игорь Петренко, Владимир Яглыч, Алексей Барабаш, Дмитрий Ступка, Екатерина Климова, Владислав Резник, Денис Карасев, Иван Краско, Остап Ступка, Кирилл ПолухинПродолжительность: 01:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B8A6903B67B9ACE6C8894900A9C9471EDAFCE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

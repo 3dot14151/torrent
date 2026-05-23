@@ -1,3 +1,90 @@
+###  Публикация: 1369348   (903815) от 23.03.2020
+
+Krewella - zer0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. zer0 (3:48)
+ 02. Mana (Extended Mix) (2:57)
+ 03. Good on You (2:39)
+ 04. Anxiety (3:57)(   Читать дальше...   )Жанр: Dance, ElectronicПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DC624602526E103624A83770F60491903B6FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100221   (901870) от 03.02.2017
+
+Clarke : Hartnoll  (Vince Clarke & Paul Hartnoll) - 2Square (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Leftfield, House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Better Have A Drink To Think (04:16)
+ 02. Zombie Blip (04:18)
+ 03. The Echoes (05:29)
+ 04. Do-A Bong (03:29)(   Читать дальше...   )Жанр: Techno, Leftfield, House, ElectroПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5989D226003834BEC1648A24F8ACA7F3DC1D39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992486   (901015) от 02.03.2016
+
+VA - Потанцуем ? (2000) S&V #03/2000 [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+4
+01. DJ BoBo - Together (3:41)
+02. Ann Lee - 2 Times (3:50)
+03. DJ Jean - The Launch (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AD2485023A80A894C9043B6C20E923F6FF6F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100720   (899842) от 04.02.2017
 
 VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
@@ -6,7 +93,7 @@ VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Duckson - Stuff i did last year (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Pablo Moriego - Deep House Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Alex Spite - Melodic Cosmonaut (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Satin Jackets - Solar Nights (The Remixes) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Dr. Alban - The Very Best Of 1990 - 1997 (1997) [FLAC|Lossless|tracks + .cue] <E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ Headkube - Live in Turin (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Urban Dance Vol.19 (2017) [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ Crooked Colours - Langata (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Orga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ Lady Gaga - The Remix (2010) [FLAC|Lossless|tracks + .cue] <Progressive House, H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ Etienne De Crecy - Super Discount 3 (2015) [FLAC|Lossless|tracks + .cue] <Electr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +499,7 @@ Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Elektro Codes (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +557,7 @@ John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -498,7 +585,7 @@ VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +614,7 @@ VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +643,7 @@ VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Bre
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -585,7 +672,7 @@ The 5th Galaxy Orchestra - Utopia Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,7 +701,7 @@ VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -643,7 +730,7 @@ Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -657,90 +744,6 @@ Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3DABEBA9E76C892EDA9208AC8988CBC803D4F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373946   (884292) от 10.09.2021
-
-Sven Weisemann (Desolate, Jouem, Phidias) - Discography 43 Releases (2006-2021) Fauxpas Musik, Mojuba [FLAC|Lossless|tracks+.cue, tracks] <Tech House, Downtempo, IDM, UK Garage, Deep House, Ambi ...
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sceptrum (07:41)
- 02. Typhon (07:34)Тип издания: CD, Web, VinylЖанр: Tech House, Downtempo, IDM, UK Garage, Deep House, Ambient •Продолжительность: 19:39:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027FAF08C05C17B4A28203216CFFCFD6AB9D6C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995582   (883806) от 11.03.2016
-
-M.A.S.S. - The Music of Jean-Michel Jarre (2000) [FLAC|Lossless|tracks + .cue] <Electro, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene 6 (4:33)
-02. Rendez-vous 4 (4:15)
-03. Equinox 3 (3:10)
-04. Rendez-vous 2 (8:55)(   Читать дальше...   )Жанр: Electro, AmbientПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1740A189D8398B9047C690EE51A502F123B63973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090592   (883581) от 10.09.2021
-
-Heavenchord - Discography 96 Releases (2015-2021) Ubertrend Records, hello▼strange [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House, Techno>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Wind (08:12)
- 02. Hibernation Dub (08:43)
- 03. There Will Be No Tears (Heavenchord Reshape) (08:25)Тип издания: WebЖанр: Dub Techno, Ambient, Deep House, Techno •Продолжительность: 79:19:12 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29398E7B734B97495A30F62ACE4D1C094453B73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1682338   (131622) от 06.12.2023
+
+Мастер Кид / Ji gong zhi xiang long jiang shi / Master Ji Gong / Master Kid (2021) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юный Леон мечтает стать архатом — обладателем божественных способностей и мудрости. Но мальчик совсем не похож на героя: все его попытки помочь больной матери и завоевать уважение соседей заканчиваются полным провалом. Внезапно Леон узнает, что в прошлой жизни он был великим укротителем драконов — а значит, рано или поздно ему суждено открыть в себе сверхспособности (   Читать дальше...   )Производство: Китай / United Entertainment PartnersЖанр: мультфильм, фэнтези, боевикРежиссер: Цяо ЮйАктеры: Ли ЯнПеревод: Дублированный (Pride Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4498139B82D23678C148FE4B8E32F520817B548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066578   (130784) от 09.12.2023
+
+Снеговик и Снежный пёс / The Snowman and the Snowdog (2012) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм создан в стилистике и является продолжением классического мультика «Снеговик» (1982), созданного по одноименной книге Рэймонда Бриггса. Новый фильм, как и его знаменитый предшественник, был нарисован от руки без применения компьютерной графики.Производство: Великобритания, ИрландияЖанр: Рисованная анимацияРежиссер: Хилари ОдусПеревод: не требуетсяПродолжительность: 00:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479F9ECC322808F43084FC5CF1128961703E5EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434143   (130700) от 09.12.2023
+
+Рождественская история / A Christmas Carol (2009) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж — финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Производство: США / Walt Disney Pictures, ImageMoversЖанр: Мультфильм, фэнтези, драма, семейныйРежиссер: Роберт ЗемекисАктеры: Джим Керри, Гари Олдман, Колин Фёрт, Кэри Элвес, Робин Райт, Боб Хоскинс, Стив Валентайн, Дэрил Сабара, Сэйдж Райан, Эмбер Гейни МидеПеревод: Дублированный, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, украинские, английскиеПродолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12F8D921CFE11429DCBCD85A6D01E464445A656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451636   (130649) от 09.12.2023
 
 Тачки / Cars (2006) WEB-DL [H.264/1080p] [Open Matte]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E290472277F90866643D4277C1F2E0BBFA1417DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684880   (127518) от 17.12.2023
-
-Дозор Джунглей: Кругосветка / Les As de la Jungle 2 / The Jungle Bunch 2: World Tour (2023) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таинственный суперзлодей покрывает джунгли розовой пеной, которая взрывается при контакте с водой. Команда разношерстных животных во главе с пингвином Морисом отправляется в кругосветное путешествие наперегонки со временем, чтобы найти способ остановить уничтожение любимых джунглей до начала сезона дождей.Производство: Франция / France 3 Cinéma, Master Films, SND Groupe M6Жанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Лоран Брю, Янник Мулен, Бенуа СомвильАктеры: Филипп Бозо, Лоран Морто, Паскаль Касанова, Селин Монсарра, Эммануэль Кюртиль, Поль Борн, Леопольдин Серре, Фридерик Сердаль, Жереми Ковийо, Готье БаттуПеревод: Дублированный (Мосфильм-Мастер)Субтитры: отсутствуютПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A988C18E4CAB410C894F0DF266A1743B86A0DCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685362   (127292) от 18.12.2023
-
-Побег из курятника 2 / Chicken Run: Dawn of the Nugget (2023) WEB-DL [H.264/1080p]  [UKR, EN / UKR, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершив фееричный побег с фермы, где свирепствовала жестокая хозяйка, главные герои нашли убежище на отдалённом острове, где нет людей. Здесь они живут счастливой и беззаботной жизнью. Но неожиданно на горизонте появляется новая опасность и птицам снова придется встать на свою защиту…Производство: Великобритания, США, Франция / Aardman Animations, Netflix Animation, PatheЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Сэм ФеллАктеры: Тандиве Ньютон, Закари Ливай, Белла Рэмзи, Имелда Стонтон, Линн Фергюсон, Дэвид Брэдли, Джейн Хоррокс, Рамеш Ранганатхан, Дэниэл Мейс, Джози Седжвик-ДэвисПеревод: Дублированный (Netflix / Le Doyen)Язык озвучки: украинский, английскийСубтитры: украинские (forced, full), английские (full, SDH)Продолжительность: 01:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF39C858403FBDD35C1A4B1FBE8EB5A71A64DB59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685670   (127140) от 19.12.2023
-
-Зверогонщики / Rally Road Racers (2023) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ралли «Шёлковый путь» — уникальнейшая гонка. Предельные скорости, разнообразнейшие ландшафты и только лучшие зверогонщики мира. Правда, это не относится к лори Жи, милому пушистому зверьку с большими глазами и добрым сердцем. Ему не везёт на гонках, но он должен во что бы то ни стало обойти чемпиона Арчи Великвалепного, чтобы спасти свой дом. Пожелаем ему удачи! (   Читать дальше...   )Производство: США, Великобритания, ОАЭ / Kintop Pictures, Riverstone Pictures, Vanguard AnimationЖанр: компьютерная анимация, комедия, семейный, спортРежиссер: Росс ВенокурАктеры: Джимми О. Ян, Джон Клиз, Шэрон Хорган, Хлоя Беннет, Дж.К. Симмонс, Кэтрин Тейт, Лиза Лу, Ребекка ЙеоПеревод: Дублированный (Мосфильм-Мастер), Многоголосый профессиональный (TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full, Forced), Английские (Full, SDH)Продолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F3DBB3142CB9C7CC7C7519E111B9F20FB4CBD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

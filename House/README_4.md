@@ -1,3 +1,90 @@
+###  Публикация: 971138   (984599) от 04.01.2016
+
+VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Burdan - Father (07:31)
+02. Chantola - Miami Burning (05:51)
+03. Klaukenberg - Walk Of Shame (05:39)
+04. Kantholz - Motel Star (06:05)(   Читать дальше...   )Производство: Club 86 RecordingsЖанр: House, Club HouseПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442F9A784A01C4498A6D163A64891AE1C459D660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355401   (983628) от 26.01.2020
+
+VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin feat. Norah B. - Summer Nights (Radio Edit) 3:12
+02. Dr. Space - Right Now (Radio Mix) 3:23
+03. Stephan Vegas & Rizzo DJ - Dime Que Me Amas (Radio Mix) 3:36
+04. Skelectro - The Game (Radio Edit) 2:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC280C3728DEF837C91C9B70DC01A1CA1BC5437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972363   (983346) от 05.01.2016
+
+VA - La Nuit (Delicious Chill House Lounge Vol 1) (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Svendaq - Chill Sauce (07:27)
+02. Stephane Lumiere - Too Deep (04:15)
+03. Living Room - Carpark (04:08)
+04. Denis Melody - 2Day & 2Morrow (BarBQ Remix) (06:02)(   Читать дальше...   )Производство: KarmablackЖанр: Deep House, Chill HouseПродолжительность: 01:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9017DF815D34920687992CB11653D1B03441FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355614   (982294) от 27.01.2020
 
 VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <Progressive House>
@@ -6,7 +93,7 @@ VA - Workout All Music (Electro House Music Body Groove) (2020) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Jet Set Love Vol.1 (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -70,7 +157,7 @@ VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -99,7 +186,7 @@ VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -128,7 +215,7 @@ VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Elect
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -157,7 +244,7 @@ B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +279,7 @@ VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +308,7 @@ VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +337,7 @@ VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -279,7 +366,7 @@ VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -308,7 +395,7 @@ VA - When House Goes Deep (2020) [MP3|320 Kbps] <House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -337,7 +424,7 @@ VA - Uphill Workout (2020) [MP3|320 Kbps] <Melodic House, Techno>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -366,7 +453,7 @@ VA - Valentine's Day Collection: King Street Sounds 20 Years Essentials (2013) [
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +488,7 @@ VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +523,7 @@ VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +553,7 @@ VA - House Chill Hop for Lovers (The Best Erotic Sound For Dance Floors) (2020) 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,7 +582,7 @@ VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, T
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -524,7 +611,7 @@ VA - Uplifto-1: - Первая (2007) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +640,7 @@ VA - Resonance (Mixed by DJ Arseniy) (2004) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,7 +669,7 @@ VA - Битва Dj - Dj Denis Binokl & Dj Arseniy (2008) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +698,7 @@ VA - Housemission II - Do You Remember (Mixed by DJ Ярик) (2004) [MP3|320 Kb
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -640,7 +727,7 @@ VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -669,7 +756,7 @@ VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -683,99 +770,6 @@ VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E14779C171A141FBECD629A22C404F1C6B060A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359417   (963276) от 13.02.2020
-
-VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phonique Feat. Die Elfen - The Red Dress (Dub Mix) (6:26)
-02. Random Factor - Dreamstate (5:34)
-03. Ciudad Feliz - How (3:31)
-04. The Visitors - No Under On The Ground (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2E34726E1C5AA52E33E08C3718A5A9D64227FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277498   (961419) от 02.01.2011
-
-VA - Record Super Chart - TOP 100 (2010) [MP3|192-320 kbps]<House, Electro House, Trance, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tiesto & Diplo feat. Girlicious - C'Mon Get Hood
-002. Yolanda Be Cool & Dcup - We No Speak Americano
-003. Pendulum - The Island (Part II)
-004. Dan Balan - Justify Sex
-005. Stromae - Alors On Dance (DJ Pomeha Remix)
-006. David Guetta Feat. Kid Cudi - Memories
-007. Swedish House Mafia Ft. Pharrell - One (Your Name)
-008. Lady Gaga - Alejandro (Bimbo Jones Mix)
-009. Duck Sauce - Barbra Streisand
-010. Kaskade feat. Haley - Dynasty (Dada Life Remix)(   Читать дальше...)Жанр: House, Electro House, Trance, DanceПродолжительность: 09:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC115A732B9AAF1DE3619E6DBE072B5CF9B27AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360289   (960933) от 15.02.2020
-
-R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Tem - Intro (2:15)
-02. R-Tem - Voiceless (Original Mix) (7:32)
-03. R-Tem - Breathe (7:42)
-04. R-Tem - Sunrise (5:18)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
 ```
 
 https://mybot314.ru/tekegram_catalog/

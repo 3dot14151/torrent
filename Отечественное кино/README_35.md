@@ -1,3 +1,107 @@
+###  Публикация: 1089475   (950367) от 04.01.2017
+
+Про Петра и Павла (2015) HDTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Военная драма, повествующая о встрече в апреле 1945 года двух мальчиков - русского и немецкого.Производство: Россия | Продюсерская компания "Медиапрофсоюз"Жанр: Военный, ДрамаРежиссер: Юрий ПоповичАктеры: Килиан Шуберт, Костя Капский, Валерий Жуков, Сергей Удовик, Олег Ткачёв, Роман Шумилов, Кирилл Новицкий, Антон ЖуковПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7E7B70898512E007A3F6DAAE20282E30E9407F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089471   (950286) от 04.01.2017
+
+Кавказское трио (2015) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главные герои — грузин, армянин и азербайджанец — крепко дружили в юности. После распада СССР они оказались гражданами новых государств. Но память об общих счастливых днях не даёт им забыть друг друга…Производство: Россия, Грузия, ФранцияЖанр: ДрамаРежиссер: Эльдар Шенгелая, Фуад ИбрагимбековАктеры: Юрий Стоянов, Гога Пипинашвили, Сергей Гузеев, Баадур Цуладзе, Фатима ИбрагимбековаПродолжительность: 01:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACED70A35726F5E98DE20FAAFF028741130FC406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603245   (950087) от 04.01.2017
+
+Праздник взаперти (2012) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Каждый Новый год актер Слава Белкин подрабатывает Дедом Морозом на частных вызовах. К несчастью, на этот раз его постоянная партнерша-Снегурочка прислала вместо себя подружку. Как гласит народная мудрость — «что криво началось, прямо не продолжится!». Уже на третьем заказе мальчик Саша умудрился запереть гостей в квартире и выбросить ключ. А между тем дедушку Мороза (   Читать дальше...   )Производство: РоссияЖанр: КомедияРежиссер: Сергей ТкачевАктеры: Григорий Сиятвинда, Мария Шалаева, Владимир Вдовиченков, Виктория Исакова, Ольга Сутулова, Виталий Хаев, Ольга Волкова, Дмитрий Шевченко, Владимир Ильин, Роман МадяновПеревод: Не требуетсяПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B034D15F5E6C59F9CC58026F7CA79D8AAD325A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 279716   (950035) от 04.01.2017
+
+Тариф Новогодний (2008) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Новогодняя ночь всегда полна чудес и сюрпризов. Чудеса нашего времени часто происходят благодаря техническому прогрессу, хотя и не без участия Деда Мороза, который нынче может оказаться простым продавцом телефона Мечты… Так и у героев этой истории: Андрей купил новый телефон, а под бой курантов набрал наугад номер, чтобы поздравить с Новым годом совершенно незнакомого (   Читать дальше...   )Жанр: Комедия, ФэнтезиРежиссер: Евгений Бедарев.Актеры: Валерия Ланская, Максим Матвеев, Светлана Суханова, Евгений Славский, Борис Корчевников, Роман Полянский, Мирослава Карпович, Екатерина Маликова, Марк Богатырев, Станислав Беляев, Лана Щербакова и др.Продолжительность: 01:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8FE1BDCF1CE071A568FB775AE3531C2FF44F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597968   (950029) от 04.01.2017
 
 Новогодняя жена (2012) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9002577738123CFB919F6034FE4816D42EBF9353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090765   (945677) от 07.01.2017
-
-Атомный Иван (2012) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945677.jpg" />
-</div>
-
-
-###  Подробнее
-
-История разворачивается в городе-спутнике одной из крупнейших АЭС. Молодой учёный Ваня, как и его родители, занимается атомной энергетикой, но, как он сам считает, — не по призванию, а только из-за давней любви к бывшей однокурснице Тане. Она, напротив, увлечена своим делом, амбициозна и требовательна в личных отношениях. Однажды Таня решает разорвать эти отношения, (   Читать дальше...   )Производство: Россия | ТелестоЖанр: Мелодрама, КомедияРежиссер: Василий БархатовАктеры: Григорий Добрыгин, Юлия Снигирь, Екатерина Васильева, Марина Голуб, Алексей Горбунов, Евгения Дмитриева, Алексей Колубков, Денис СухановПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0CE12AB1946CE27F8102051E06C80852BF39E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090712   (945676) от 07.01.2017
-
-Новогодняя жена (2012) WEB-DL [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945676.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самый разгар вечеринки в клубе Даша и Максим встречают друг друга... и просыпаются в одной постели... Решив, что их свела сама судьба, герои принимаются строить идеальные, «правильные» отношения и...подают заявление в ЗАГС, предварительно заключив пари: если в течение месяца им удастся не просто прожить вместе, но и сохранить чувство влюбленности, дело закончится (   Читать дальше...   )Производство: Россия | Про100 ФильмЖанр: Комедия, МелодрамаРежиссер: Светлана МузыченкоАктеры: Сергей Перегудов, Карина Андоленко, Алёна Яковлева, Анна Донченко, Александр Арсентьев, Антон Васильев, Алексей Гришин ...Продолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C963CF58F9F53080AE0F1EB552A8113E33C18468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090826   (945665) от 07.01.2017
-
-Чудо в Крыму (2015) HDTV [H.264/1080i]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Новым годом в Симферополе встречаются простой водитель и звезда кино. Мария и Дмитрий проводят вместе два дня, и их жизнь меняется.Производство: РоссияЖанр: КомедияРежиссер: Виталий ПавловАктеры: Михаил Пореченков, Ирина Гринёва, Михаил ДитковскийПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7FB9348CCBC765956F0838A32BF39749B8FCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090802   (945624) от 07.01.2017
-
-Убежать, догнать, влюбиться (2015) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис сбегает от своей австрийской невесты на Северный Кавказ, где по воле случая становится учителем музыки для местной девушки Нины. Нина не хочет выходить замуж за жениха, найденного отцом, и всеми силами пытается оттянуть свадьбу. В этом ей помогает Борис: он решает украсть Нину по местному обычаю, и теперь они вынуждены скрываться не только от ее жениха, но (   Читать дальше...   )Производство: Россия | Art Pictures StudioЖанр: КомедияРежиссер: Михаил ШевчукАктеры: Любовь Аксенова, Константин Крюков, Владимир Этуш, Владимир Зельдин, Юсуп Омаров, Юлика Вагнер, Александр Резалин, Марина ГубинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394120ECE2E19F3DFA18DC01AC42981C3909E529
 ```
 
 https://mybot314.ru/tekegram_catalog/

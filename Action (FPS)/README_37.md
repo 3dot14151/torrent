@@ -1,3 +1,107 @@
+###  Публикация: 1828333   (193466) от 24.10.2025
+
+Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack FitGirl [20th Anniversary Update]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый Крутой Сэм вернулся вместе со своей фирменной неутомимостью в это грандиозное, смелое и красочное продолжение классических игр Serious Sam: First Encounter и Second Encounter! Получивший задание спасти вселенную с помощью пушек от несметных полчищ врагов, путешествующих во времени, Крутой Сэм должен пробиться с боем сквозь непроходимые джунгли, мрачные (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшены, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828322   (193461) от 24.10.2025
+
+Metal Eden (2025) [Ru/Multi] (85667) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Metal Eden – научно-фантастический адреналиновый шутер от первого лица. Высокотехнологичный гипермодуль Аска отправляется на смертельно опасную миссию по спасению сердечников простых людей в огромном монолитном городе Мёбиус, который должен был стать новым домом для человечества, но вместо этого превратился в ловушку. Побеждайте корпус внутренней безопастности в (   Читать дальше...   )Тип издания: LicenseРазработчик: Reikon GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A2AC120EA0678D3484C0393960E2151D897CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827683   (193385) от 22.10.2025
+
+Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wanterlude [Premium Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Древний вампир приходит в себя в современном Сиэтле - но город стоит на грани войны. Кому достанется власть? Каким станет город? Решать вам - знакомьтесь с претендентами и выбирайте сторону... Осажденный с трех сторон Сиэтл, ослабевший авторитет вампирской власти, старейшина с чужим голосом в голове и все это в исполнении обладателей премии BAFTA, студии The Chinese (   Читать дальше...   )Тип издания: RepackРазработчик: The Chinese RoomЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796F79C15542CC6884E650EF586AC34ABE8C441A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587537   (192430) от 31.10.2022
+
+Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Это вымышленный постапокалиптический мир, через 15 лет после катастрофы вам предстоит покинуть свое убежище и исследовать мир лишенный человеческой жизни. В одиночку вы должны найти способ выжить. Ты один в мире, полном опасностей! Вы можете пить, только если найдете воду, пережить ночь, только если у вас есть безопасное место для сна - ешьте только то, что вы нашли (   Читать дальше...   )Тип издания: RepackРазработчик: TML-StudiosЖанр: Adventure (Survival), 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587997   (191874) от 02.11.2022
 
 Remoteness (2022) [Ru/Multi] (1.80) License DOGE
@@ -6,7 +110,7 @@ Remoteness (2022) [Ru/Multi] (1.80) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +188,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Scene Rune [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +214,7 @@ DOOM Eternal (2020) [Ru/Multi] (11905845/dlc) Repack dixen18 [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Ghostbusters: Spirits Unleashed (2022) [Ru/Multi] (1.2.3.13348) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Lempo (2023) [Multi] (0.111) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Quake II RTX (2019) [En] (1.7.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Instinct / Инстинкт (2007) [Ru/Multi] (1.0) Repack kosak4
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +422,7 @@ AMID EVIL (2019) [En] (2614/dlc) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (01.02 Build 9460237) License DOGE
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.145) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/En] (7315520/dlc) Repack Decepticon 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Twin Sector (2009) [En] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Choo-Choo Charles (2022) [Ru/Multi] (1.0.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB184BDC433544F7B5260D15A253BB4EA14208CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673037   (165688) от 31.10.2023
-
-Ghostrunner 2 (2023) [Ru/Multi] (39734.9/dlc) Repack Other s [Brutal Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кровь прольется в долгожданном хардкорном слэшере от первого лица, действие которого происходит через год после событий первой части. Вас ждет приключение в постапокалиптическом киберпанковом будущем. В мире, где власть Хозяйки Ключей над Башней Дхармы — последним оплотом человечества — пала вместе с ее тиранией. Джек вернулся, чтобы сразиться с жестоким культом (   Читать дальше...   )Тип издания: RepackРазработчик: One More LevelЖанр: Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AE18A6EDF0D39655A3763803D78DBE527295C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516369   (165619) от 11.12.2021
-
-Terminator: Resistance / Терминатор: Сопротивление (2019) [Ru/Multi] (1.0.7847980/dlc) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Terminator: Resistance – шутер от первого лица во времена Войны Будущего, о которой мельком было рассказано в фильмах «Терминатор» и «Терминатор 2: Судный день». События игры разворачиваются в пост-апокалиптическом Лос-Анжелесе, около 30 лет после Судного Дня, а главным героем выступает новый персонаж, Джейкоб Риверс, солдат Сопротивления во главе с Джоном Коннором.Тип издания: LicenseРазработчик: TeyonЖанр: Action, Adventure, Fantasy, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFA32DA11DBFEF83A4A67F6EDFA7CA4E359B380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673759   (163665) от 02.11.2023
-
-RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex Murphy Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте культовым полицейским, получеловеком-полумашиной, и попытайтесь восстановить справедливость на опасных, охваченных преступностью улицах Старого Детройта. Мощный Auto-9 и другие 20 видов оружия помогут вам разобраться с преступниками на всех этапах этого захватывающего приключения. Робототехника и кибернетика наградили вас силой и навыками, которые можно улучшать (   Читать дальше...   )Тип издания: RepackРазработчик: TeyonЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64FF2D596EA68A09A285FF6EE147CF16B9392E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432035   (163382) от 17.12.2020
-
-BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Букер Девитт — ветеран американской кавалерии в прошлом, а ныне наемник — задолжал не тем людям, и теперь у него лишь один шанс спасти свою шкуру и начать с чистого листа. Он должен вызволить загадочную Элизабет, которая с детства пребывает в заточении в летающем городе Колумбия.Тип издания: LicenseРазработчик: Irrational Games, 2K AustraliaЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Немецкий, Французский, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

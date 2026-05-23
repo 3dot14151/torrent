@@ -1,3 +1,90 @@
+###  Публикация: 1385731   (797277) от 25.05.2020
+
+VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Arsonist Recorder - React (06:22)
+ 02. Sound Synthesis - 60 Minute Bleeps (05:36)
+ 03. Francois Dillinger - Humans Among Us (05:30)
+ 04. Datawave - Genotype 1 (04:04)Жанр: ElectroПродолжительность: 00:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0E7803E3E4BD4F8B126DEA52807F83F9CAAFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385547   (797205) от 25.05.2020
+
+VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Aquanote – Nowhere (Crazy P's Heatwave Mix)
+02. Arvid Feat. Ernestos – Try (Fenomenon Remix)
+03. Blue Six – All I Need (Jimpster Remix)
+04. Central Living – Inside(   Читать дальше...   )Жанр: Electronic, House, Future Jazz, Deep House, DiscoПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3752C1A28D2833C197E5048F7ED12BB9E3A7351E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385539   (797201) от 25.05.2020
+
+Aquanote - The Pearl (2002) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Water Psalm I
+02. Waiting
+03. True Love
+04. All Over You(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A885CC1DB0119CECF1EFA666D28D6173E6BE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011260   (797050) от 27.04.2016
 
 Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Tech House>
@@ -6,7 +93,7 @@ Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, A
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Sun:Sets 2018 (Selected by Chicane) (2018) [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Spacekraft - Большое космическое путешествие (2016)
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +325,7 @@ The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soul
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +441,7 @@ Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - DJ Зорькин - Приключения Электроника (1998) Ga
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks +
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +528,7 @@ Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +557,7 @@ Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +586,7 @@ Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Coll
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +614,7 @@ Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +641,7 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +670,7 @@ Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, De
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +699,7 @@ Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +728,7 @@ IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,90 +740,6 @@ IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1595A8CA37D9E28916613C880AED9B8389D5E92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156137   (794930) от 05.01.2019
-
-Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpolation Tapes 0.1Тип издания: CD, Web, VinylЖанр: Ambient/Dub TechnoПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D100A0BAE17E0FF76A580ACB2EAD81B736E73308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386423   (794554) от 29.05.2020
-
-Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TV (06:53)
-02. DB (Webo Mix) (06:41)
-03. Exotica (05:46)
-04. BC Style (Vinyl Mix) (06:28)(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1545BD10AD44D837A22062B68FD6DA9E92535055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012257   (794351) от 30.04.2016
-
-VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 1)
-02-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 2)
-03-Gershon Jackson - Take It Easy (Sonny FoderaMat Joe remix)
-04-Sonny Fodera & Mystic Bill - Invisible (Sonny Fodera ITH edit)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 07:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387A4A0019AC3C22907C7D0510C69F8CC71B60E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

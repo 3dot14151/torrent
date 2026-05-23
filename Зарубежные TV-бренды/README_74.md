@@ -1,3 +1,55 @@
+###  Публикация: 1052720   (527211) от 15.09.2016
+
+BBC. Чудеса животного мира / The Wonder of Animals (2014) SATRip (серий 6x2 из 12)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Удивительно красочная серия фильмов перенесет зрителя в обычно скрытый мир фауны, и раскроет много тайн и секретов о жизни разнообразных животных.Производство: Великобритания, British Broadcasting CorporationЖанр: Документальный, природа, животныеРежиссер: Джонни Келлинг / Jonny KeelingПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 файлов x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABFD6EBAB8BD117C5B5948A93B64153F08694E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156763   (526975) от 08.08.2017
+
+Генрих VII: Король зимы / Henry VII The King of Winter (2013) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Недавно коронованный Генрих VII женится на Елизавете Йоркской, чтобы создать новую династию. Эта история, история Тюдоровской Англии, полна великолепия и предательстваПроизводство: Великобритания, Lion Television, All 3 Media for BBCЖанр: Документальный, история, исследованияРежиссер: Джулия Кларк, Стюарт ЭллиотПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97F023D76EF19E3636626E24B7D31DD6A966482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156643   (526966) от 08.08.2017
 
 Дикая планета. Коала: семейное досье / Planet Wild. Koala: family confidential (2007) SATRip
@@ -6,7 +58,7 @@
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery: Неизвестная история Египта / The Hidden Histo
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Animal Planet. Амба, русский тигр / Amba the Russian Tiger (2008)
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Discovery. Фальсификация: Дональд Трамп / Donald Trump:
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Discovery: Расследование заговоров. Проверка фа�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ DV: NOVA. Расширение вселенной / Runaway Universe (2000) SATR
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Discovery. Византия: Утраченная Империя / Byzantium: Th
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +453,7 @@ Discovery: Путешествие в Малайзию / Passage To Malaysia: Int
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +479,7 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +533,7 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Discovery: Хроники Эйфелевой башни / La Legende Vraie de la
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Discovery: Человеческое Тело: Грани Возможного / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,58 +674,6 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3E6D412D7C5A34E555019A4C4DA2E59F61992D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229286   (518247) от 22.08.2010
-
-BBC: Мир природы. Сокровища Анд / Natural World. Treasure Of The Andes (1993) SATRip [112 серия]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Природа не перестает поражать воображение своими нерукотворными чудесами. Некоторые из них создавались на протяжении миллионов лет эволюции. Нас ждет знакомство с удивительными местами и их не менее удивительными обитателями. В этих нетронутых уголках земли до сих пор подчиняются одному закону - закону природы. Животные не спорят, но готов ли следовать ему человек? (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314703   (518077) от 15.07.2019
-
-NG. Осушить океан: глубокое погружение. Подводные империи / Drain the Oceans: Deep Dive. Undersea Empires (2018) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518077.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубине мировых вод скрываются забытые империи и следы их кровавых войн. С помощью самых современных технологий авторы проекта впервые найдут эти исчезнувшие империи. Почему фараон построил полсотни огромных крепостей и ни одна из них не видела крупных битв? Как Германия и Великобритания были втянуты в гонку вооружений и потратили миллиарды на мощнейшие военные (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures, National GeographicЖанр: Документальный, история, исследованияРежиссер: Софи Элвин Харрис, Майкл ДивайсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C1F9CBEEBAECFC0AE7EFEAA1CF35B6D392B23F
 ```
 
 https://mybot314.ru/tekegram_catalog/

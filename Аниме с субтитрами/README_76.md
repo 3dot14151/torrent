@@ -1,3 +1,111 @@
+###  Публикация: 1412483   (418207) от 29.09.2020
+
+Kono Oto Tomare! 2 | Stop This Sound! 2 | Задержите этот звук! 2 [2019, TV, 13 из 13] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Музыка очаровывает, восхищает, заставляет задуматься и отвлечься от повседневной суеты. Звуки, которые профессионалы извлекают из музыкальных инструментов, — каждый прекрасен по-своему. Но те, что создают дилетанты, неумело и неловко — тоже могут вызвать бурю эмоций. Пусть еще не виртуозы, а всего лишь любители, собравшись вместе и вложив душу, некоторые из них могут (   Читать дальше...   )Производство: Platinumvision / プラチナビジョンЖанр: повседневность, романтика, драмаРежиссер: Мидзуно РёмаПеревод: AkiraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485F888CB53025993397131FE00AF00951C36B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412482   (418203) от 29.09.2020
+
+Kono Oto Tomare! | Stop This Sound! | Задержите этот звук! [2019, TV, 13 из 13] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кото — традиционный японский музыкальный инструмент. Струнный, громоздкий, непопулярный. Чем он может заинтересовать обычного школьника с ветром в голове и смартфоном в руках? Волшебным звучанием, чем же ещё! И хотя Такэдзо Курата стал членом школьного клуба кото, как он сначала считал, по ошибке, стоило ему втянуться — и мир вокруг зазвучал по-новому.
+Время шло, (   Читать дальше...   )Производство: Platinumvision / プラチナビジョンЖанр: повседневность, романтика, драмаРежиссер: Мидзуно РёмаПеревод: AkiraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CE5D3545F0022B69C46338AE436B7E524CD5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412455   (418189) от 29.09.2020
+
+Fate/Kaleid Liner Prisma Illya: Prisma Phantasm | Судьба: Девочка-волшебница Иллия OVA-3 | Судьба/Калейдопутница Призматическая Иллия: Призматическая Фантазия [2019, OVA, 1 эп.] BDRIp 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Небольшой комедийный альманах по миру "Девочки-волшебницы Илии" в духе "Карнавального фантазма" расскажет несколько историй об основных и второстепенных героях сериала:
+- Несколько неудачных попыток Руби найти подходящую кандидатуру на роль девочки-волшебницы;
+- День открытых дверей в лапшичной Котомине Кирея, где подают адски острые блюда;
+- (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключенияРежиссер: Онума СинПеревод: anrokledЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 65 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC40F1E56DFEB6767557BB7B38F0AEBDF9E109A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412474   (417830) от 29.09.2020
+
+Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + 1 из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Город под названием Дыра, как ни странно, настоящая... дыра. Обитают в нем тоже не самые приятные личности. Однако на их взгляд, есть кое-кто еще более мерзкий и отвратительный — маги. Эти ребята, как несложно догадаться, владеют магией. А дурную репутацию они заслужили благодаря своим бесчеловечным опытам, которые проводят на несчастных гражданах трущоб, вторгаясь (   Читать дальше...   )Производство: MAPPAЖанр: приключения, фэнтезиРежиссер: Хаяси ЮйтироПеревод: satanika, pshenicaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 1 спешиал на 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C240F177B4189DF7CDF162F8CD6BEA2F50C73A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946884   (417541) от 17.10.2015
 
 JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardust Crusaders | Невероятные приключения Джоджо [ТВ-2] [2014, TV, 24] BDrip 1080p Hi10p raw
@@ -6,7 +114,7 @@ JoJo no Kimyou na Bouken: Stardust Crusaders | JoJo`s Bizarre Adventure: Stardus
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ Arslan Senki: Fuujin Ranbu | The Heroic Legend of Arslan: Dust Storm Dance | С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +167,7 @@ Arslan Senki Gaiden | Сказание об Арслане: Происхожде
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ Arslan Senki | The Heroic Legend of Arslan | Сказание об Арслан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +219,7 @@ Souten no Ken: Regenesis | Кулак синих небес: Перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +245,7 @@ Aguu: Tensai Ningyou | Агу: Куклы-гении [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +271,7 @@ Kekkai Sensen | Blood Blockade Battlefront | Фронт кровавой бло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +297,7 @@ High Score Girl | Девчонка не промах [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +323,7 @@ Kuroshitsuji: Book of the Atlantic | Black Butler: Book of the Atlantic | Тём
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +349,7 @@ Hero Mask | Маска героя [2018, Web, 15] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +375,7 @@ Hero Mask (2019) | Маска героя (2019) [2019, Web, 9] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +403,7 @@ Interlude / Интерлюдия [2004, OVA, 3 ep] DVDrip 576p raw Hi10P
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +433,7 @@ Plastic Nee-san / +Tic Elder Sister / Сестрёнка-моделистка [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +462,7 @@ Kikou Soseiki Mospeada | Genesis Climber Mospeada | Моспида - оружи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +488,7 @@ The God of High School | Царь горы [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +514,7 @@ Soba e | Рядом с тобой [2019, Web] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +540,7 @@ Madoromi no Vevara | Vevara in Your Dream | Вевара из мира дрём�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +568,7 @@ Joshi Kausei | Joshikausei | Беспечные старшеклассницы [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +594,7 @@ Keppeki Danshi! Aoyama-kun | Cleanliness Boy! Aoyama-kun | Чистюля! Ао�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +620,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +646,7 @@ Burn the Witch | Сжечь ведьму [2020, Movie] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +672,7 @@ Idolmaster: Cinderella Girls Second Series  / Идолмастер: Золушк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,112 +686,6 @@ Idolmaster: Cinderella Girls Second Series  / Идолмастер: Золушк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F431CAAC59CF8E8540C49AD784F179AB933E506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234270   (410647) от 04.10.2018
-
-Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кентаро Тачибана — тренер бадминтонной команды старшей школы «Китакомачи». Команда переживает не лучшие времена: острая нехватка личного состава не позволяет даже подать заявку на участие в турнире, и это тяжким грузом ложится на плечи тренера. Но однажды он видит, как ученица по имени Аяно Ханесаки ловко взбирается на дерево во дворе, демонстрируя выдающиеся моторные (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: спорт, повседневность, драмаРежиссер: Эдзаки СинпэйПеревод: Crunchyroll; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBCDE6BB4330DD86D1C304E3839A7C87957AFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235987   (410640) от 04.10.2018
-
-Sirius the Jaeger | Сириус-егерь [2018, TV, 12 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Столица Японской Империи, 1930 год. Странная группа людей с чехлами от музыкальных инструментов появляется на Токийском вокзале. Они — «егери», что сражаются с вампирами. Среди них молодой человек, излучающий необычную ауру и безмятежность. Его зовут Юлий, и он волк-оборотень, родную деревню которого истребили вампиры. Теперь он вместе с егерями участвует в смертельном (   Читать дальше...   )Производство: студия P.A. Works / ピーエーワークスЖанр: приключенияРежиссер: Андо МасахироПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024C489C043F3F9F4C952F8AFD33C6D005C11F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236159   (408955) от 05.10.2018
-
-Planet With | Планета Уит [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соя Курой ничего не помнит о своём прошлом и ведёт тихую мирную жизнь. Но однажды его город атакует гигантская машина, известная как «Оружие Небулы». Вместе с кошкоподобным Сэнсэем и готической лолитой Гинко протагонист оказывается втянут в бой и в конце концов становится врагом семерых героев, старающихся защитить город.Производство: Студия J.C. StaffЖанр: приключенияРежиссер: Судзуки ЁхэйПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904215515B31C9F28066A7E4F5F6B82987652962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325826   (408697) от 17.09.2019
-
-Hulaing Babies | Flying Babies | Летающие крошки [2019, TV, 12] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается в курортном городке Иваки. Ученицы средней школы Судзу и Фуми взяли, да и основали кружок танцоров хула… Вот только запал быстро пропал, и теперь девчонки лишь безмятежно коротают деньки. Но вот однажды к ним перевелась Мона, ученица по обмену из Финляндии, и всё как закрутилось!
-
-Девочка, пережившая землетрясение. Девочка, переехавшая (   Читать дальше...   )Производство: Япония, GainaЖанр: повседневность, комедияПеревод: Arashi-sama & Nika_Elrik (YakuSub Studio)Язык озвучки: ЯпонскийСубтитры: ass, внешние, русскиеПродолжительность: 12 эпизодов по ~5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA2C792DBA85B3F2A5754120CB4AA1670450259
 ```
 
 https://mybot314.ru/tekegram_catalog/

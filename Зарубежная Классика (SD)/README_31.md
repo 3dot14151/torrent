@@ -1,3 +1,109 @@
+###  Публикация: 774140   (823346) от 09.04.2014
+
+Другая сторона полуночи / The Other Side of Midnight (1977) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+По роману Сидни Шелдона.
+Красивая француженка Ноэль Паж влюбляется в американского летчика Ларри Дугласа и верит, что он тоже любит ее. Но вскоре понимает, что жестоко обманулась в своих ожиданиях.
+Чтобы отвлечься от грустных мыслей, молодая женщина отправляется в путешествие по Европе. Но забыть Ларри она не в силах. Став любовницей греческого магната Константина (   Читать дальше...   )Производство: США / Frank Yablans PresentationsЖанр: Триллер, Драма, МелодрамаРежиссер: Чарльз ДжэрротАктеры: Мари-Франс Пизье, Джон Бек, Сьюзен Сарандон, Раф Валлоне, Клу Гулагер, Кристиан Маркан, Майкл Лернер, Соррел Бук, Энтони Пондзини, Луис ЗорикПеревод: Дублированный]Продолжительность: 02:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B73A1901007549F7A4394D92166E42CCBE771B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 313934   (823182) от 26.03.2011
+
+Дестри снова в седле / Destry Rides Again (1939) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Только что получившая американское гражданство Марлен Дитрих (1901-1992) должна была чем-то «отплатить» Америке. А так как любимый жанр американцев — вестерны — она снялась в роли роскошной певицы салуна на Диком Западе в фильме, сюжет которого был явно навеян историей пришествия Уайта Эрпа на должность шерифа Додж-сити. И она, и Джеймс Стюарт (1908-1997) впервые (   Читать дальше...   )Производство: США, Universal PicturesЖанр: Комедия, вестернРежиссер: Джордж МаршаллАктеры: Марлен Дитрих , Джеймс Стюарт , Миша Ауэр , Чарльз Виннингер , Брайан Донлеви , Аллен Дженкинс , Уоррен Хаймер , Ирен Херви , Уна Меркел , Билли ГилбертПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048E42A6606B1B34C5B68FDEB1510A11CAFC5BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116167   (822226) от 20.03.2017
+
+Куда же делась седьмая рота? / Mais ou est donc passee la 7eme compagnie (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1940 год. Немецкие войска завоевывают один французский город за другим. Во время всеобщей сумятицы и разгрома бесследно исчезает героическая 7-ая рота французской армии. Как выясняется позже, она попадает в плен, и лишь троим остроумным, но ленивым бойцам чудом удается бежать. Итак, сержант Шодар, рядовые Питивье и Тассен оказываются в тылу противника…Производство: Франция, Италия / Euro International Film (EIA), Gaumont International, S.N.E. GaumontЖанр: Боевик, Комедия, ВоенныйРежиссер: Робер ЛамуреАктеры: Жан Лефевр, Пьер Монди, Альдо Маччоне, Робер Ламуре, Пьер Торнад, Жак Марен, Марсель Рансон-Эрве, Эрик Колен, Пол Бисцилиа, Робер ДальбанПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D238A9D2B1171279BE606DD2D9A8C862B33F9FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005633   (821291) от 15.04.2016
+
+Босс / Il boss (1973) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ник Ланцета работает на Дона Даниэлло, а он в свою очередь подчиняется главарю сицилийской мафии Дону Корраско. Однажды дочь Дона Даниэлло похищают мафиози из калабрийского клана. Это их месть за убитых членов семьи. Вызволить её должен Ник, но Дон Даниэлло всё же хочет пойти на сговор с калабрийцами и выкупить дочь. Ланцета убивает своего начальника и постепенно (   Читать дальше...   )Производство: Италия / Cineproduzioni Daunia 70Жанр: Боевик, Триллер, КриминалРежиссер: Фернандо Ди ЛеоАктеры: Генри Сильва, Ричард Конте, Джанни Гарко, Антония Сантилли, Коррадо Гайпа, Марино Мазе, Ховард Росс, Клаудио Никастро, Джанни Музи, Марио ПизуПеревод: Одноголосый закадровый, любительскийСубтитры: ОтсутствуютПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E1E43F909C348FFFFA8818EC6A0DE170A602AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005562   (821197) от 15.04.2016
 
 Миланский калибр 9 / Milano calibro 9 (1972) BDRip [H.264] [VO]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEECBF2684CCFB8ADD90C1A50275305447060F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501537   (813848) от 22.10.2021
-
-Таггарт / Taggart (1964) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый владелец ранчо Бен Блейзр, который считает, что все земли в округе принадлежат ему, решил изгнать только что прибывших переселенцев, Таггертов. Вместе со своими людьми, он нападает на переселенцев. В ходе конфликта, сын Блейзера убивает старших Таггертов. Свидетелем этого становится их сын Кен. Охваченный жаждой мести, он устремляется в погоню за нападавшими.Производство: США / Universal PicturesЖанр: ВестернРежиссер: Р.Г. СпрингстинАктеры: Тони Янг, Дэн Дюрьи, Дик Форан, Эльса Карденас, Джин Хейл, Эмиль Мейер, Дэвид Кэрредин, Питер Дюрьи, Том Риз, Рэй ТилПеревод: Авторский, Алексей ЯковлевСубтитры: ОтсутствуютПродолжительность: 01:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F120CDA92C25359DB2CE49CE4ECA2B3B6FE0B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197522   (813790) от 08.01.2018
-
-Черный Барт / Black Bart (1948) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Калифорния времен Золотой Лихорадки. В погоне за легкой наживой сюда устремляются как золотодобытчики, так и бандиты с авантюристами всех мастей. Одним из самых известных преступников становится Черный Барт, грабящий почтовые дилижансы, перевозящие золото. Но странностью во всех его дерзких преступлениях является то, что налетам подвергаются дилижансы только одной (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Боевик, Мелодрама, Криминал, ВестернРежиссер: Джордж ШерманАктеры: Ивонн Де Карло, Дэн Дюрьи, Джеффри Линн, Перси Килбрайд, Ллойд Гоф, Фрэнк Лавджой, Джон МакИнтайр, Дон Беддоу, Рэй Уолкер, Соледад ХименесПеревод: Одноголосый закадровый (SATKUR)Субтитры: РусскиеПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83FEA02DDE3A3B4FD626A43A8BB60AD3942745F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007565   (813576) от 19.04.2016
-
-Отдых в Искья / Vacanze a Ischia (1957) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остров Искья, с его солнцем и чудесной природной красотой, влечет многих, мечтающих провести здесь отдых и насладиться всеми прелестями морского климата. В этих райских местах курортный сезон сводит вместе адвоката, инженера, компанию молодых людей, французскую пару. Кто-то приезжает подлечиться, кто-то отдохнуть, кто-то надеется завести мужа или любовную интрижку. (   Читать дальше...   )Производство: Италия, Франция, Монако, Германия (ФРГ) / Bavaria Film, Bavaria-Filmkunst GmbH, Francinex, Rizzoli Film S.p.a., Tohan Pictures CompanyЖанр: Мелодрама, КомедияРежиссер: Марио КамериниАктеры: Витторио Де Сика, Изабель Кори, Антонио Чифарелло, Надя Грей, Мириам Брю, Паоло Стоппа, Сюзанна Крамер, Раф Маттиоли, Пеппино Де Филиппо, Маурицио АренаПеревод: Двуголосый закадровый (компания "Твин")Субтитры: ОтсутствуютПродолжительность: 01:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A3E4E911FDA60E520BCC5C96E8D4B658765144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118342   (813178) от 25.03.2017
-
-Отряд Стрела / War Arrow (1953) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф Чандлер и Морин О’Хара играют, соответственно, кавалерийского майора Хауэлла Брэди и его возлюбленную Элейн Корвин. Опасаясь восстания индейцев Кайова, Брэди обучает группу семинолов, которые согласились помочь отразить атаку. Однако командующий фортом полковник Мид, человек, глубоко ненавидящий индейцев, считает доверие майора к семинолам безрассудным. Кто (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Вестерн, ВоенныйРежиссер: Джордж ШерманАктеры: Морин О’Хара, Джефф Чандлер, Джон МакИнтайр, Сюзен Болл, Ной Бири мл., Чарльз Дрэйк, Генри Брэндон, Деннис Уивер, Джей Сильверхилс, Джим БэннонПеревод: Двуголосый закадровый, любительский (DeadSno & den904)Субтитры: Русские, английскиеПродолжительность: 01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE1EBC3DE118615B3B965A1D9DDD3F1C7AA539E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1336908   (273367) от 11.11.2019
+
+Это не навсегда (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — истории четырёх воспитанников детского дома. Петя, Ваня, Настенька и Миша мечтают об одном: найти свою семью. Несмотря на то, что их судьбы тесно переплетены между собой, у каждого из них свой путь. Герои проживают вместе нелегкие будни, однако надеются и верят, что это не навсегда.Производство: Россия / Вега ФильмЖанр: ДрамаРежиссер: Евгения Яцкина, Алена РубинштейнАктеры: Агриппина Стеклова, Ольга Лапшина, Яна Есипович, Александр Мохов, Марта Дроздова, Михаил Сазанов, Макар Пусторамов, Саша Агашков, Даниил Коновалов, Тимур ШошинПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C594D4DE7F47758D053A58C508F65E57C028843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336859   (273357) от 11.11.2019
+
+Лови момент (2019) WEB-DLRip [H.265] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня — милая амбициозная девушка Рита из провинциального городка на черноморском побережье. Она решает вырваться из рутины ведения местных свадеб и утренников и приезжает покорять столицу, пытаясь поступить в театральное училище. Ее ждет много сложных испытаний, которые порой превращаются в очень комичные истории.Производство: Россия, Новые телеканалы, РВВ ФильмЖанр: КомедияРежиссер: Антонина РужеАктеры: Юлия Топольницкая, Алексей Кортнев, Юрий Быков, Валерия Федорович, Юлия Сулес, Михаил Тарабукин, Ольга Кузьмина, Ингрид Олеринская, Валерия Дергилева, Алексей ВесёлкинПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E78D57607775E289AF3483DAEE62BE3B4A7785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188786   (273338) от 03.12.2017
+
+Кадриль (1999) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далекой русской деревушке живут две семейные пары — Коля Звягинцев с женой Лидой и его сосед Саня Арефьев с женой Валей. Женаты они очень давно, дружат много лет и, конечно, всё друг про друга знают. Хоть и перевалило этим четверым уже за 50, а всё подшучивают друг над другом, разыгрывают. И вот однажды Валя и Лида разругали своих благоверных в пух и прах и решили… (   Читать дальше...   )Производство: Россия, Мосфильм, Киностудия "Жанр"Жанр: КомедияРежиссер: Виктор ТитовАктеры: Любовь Полищук, Валентина Теличкина, Олег Табаков, Станислав Любшин, Нина УсатоваПродолжительность: 01:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C212D0ABB8A74F8450CDA552F961E1CC1E17F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083437   (273280) от 16.12.2016
+
+Гений (1991) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Герой фильма, в прошлом талантливый физик — электронщик, а ныне директор овощного магазина, имеет криминальное хобби. Его изобретательные и технические великолепные операции задевают интересы не только правоохранительных органов, но и кровожадных мафиозных структур.Производство: СССР, Ленфильм, ЛадогаЖанр: Криминал, КомедияРежиссер: Виктор СергеевАктеры: Александр Абдулов, Лариса Белогурова, Юрий Кузнецов, Иннокентий Смоктуновский, Сергей Проханов, Валентина Талызина, Анатолий Кузнецов, Альгис Матуленис, Виктор Костецкий, Михаил Морозов, Аркадий Коваль, Виктор ИльичевПродолжительность: 02:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A862B920E08F3FF1DA378D90DC7DB4894DA9CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083707   (273136) от 16.12.2016
 
 Землетрясение (2016) WEB-DL [H.264/720p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7B04F0D456DC7ADF14D710C3E320BFF4EA976A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 805961   (269077) от 03.12.2018
-
-Страна глухих (1998) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная Москва. Действие происходит на улицах, в ночных клубах, квартирах. Рита, героиня фильма, - особа весьма избалованная, привыкшая к поклонению и любви. Случилось так, что любовник Риты, проиграв огромную сумму денег, не имея возможности расплатиться, оставляет ее в залог. Глухая девушка, Яя, новая подруга Риты, помогает ей вырваться из "плена". (   Читать дальше...   )Производство: Россия, Франция / киностудия им. М. ГорькогоЖанр: Драма, Комедия, КриминалРежиссер: Валерий ТодоровскийАктеры: Чулпан Хаматова, Дина Корзун, Максим Суханов, Никита Тюнин, Сергей Юшкевич, Александр Яцко, Ярослав Бойко, Олег Валкман, Алексей Горбунов, Валерий Иваков, Эвклид Кюрдзидис, Алексей Дьяков, Павел ПоймаловПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F7B991FB0BEB91BE42170A0235A9EF5DDBB0E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257531   (269062) от 03.12.2018
-
-Владыка времени (2015) WEB-DLRip [H.265/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269062.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману Екатерины Неволиной. В секретной школе проходит обучение группа обычных подростков. Их готовят к сложному и опасному заданию. Героям предстоит стать первыми путешественниками во времени. Они не похожи на обычных людей. Их жизнь засекречена, ведь они – охотники за артефактами – предметами, обладающими особой мистической силой. Любовь и прочие (   Читать дальше...   )Производство: Россия, Медиа Группа ВыходЖанр: Приключения, Фантастика, ДрамаРежиссер: Александр БаршакАктеры: Андрей Смоляков, Кирилл Ермичёв, Станислав Тикунов, Виктория Заболотная, Сергей Сосновский, Рина Гришина, Виталий Вашедский, Максим Юдин, Александр ЧисловПродолжительность: 01:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3807E06BAC997C74C70B57D154E6826DEA61567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338601   (268676) от 16.11.2019
-
-Побег из Москвабада (2015) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она — Маша Ласточкина, молодая русская женщина, приехавшая в Москву всего пару лет назад. Не так давно от рук гастарбайтера погиб её близкий друг Андрей. Маша — инспектор Федеральной Миграционной Службы, и свою работу по борьбе с нелегальной миграцией она выполняет теперь с удвоенной энергией, беспристрастно и жёстко. Он — Хасан — таджик, стукач, презираемый своими (   Читать дальше...   )Производство: РоссияЖанр: драмаРежиссер: Дарья ПолторацкаяАктеры: Мария Машкова, Джавахир Закиров, Никита Панфилов, Микаэл Джанибекян, Александр Гришин, Артём Насыбулин, Анастасия Бусыгина, Андрей Фролов, Кирилл Кяро, Виталий СеркинПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7737852EFE625C014435C68FF6D467F0F3961FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338578   (268614) от 16.11.2019
-
-Три в одном (2019) SATRip [H.264] (фильм 6, серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сразу по возвращении из романтического отпуска Журавлева задерживают по подозрению в убийстве коллеги. Улики и свидетельские показания не оставляют ни малейших сомнений в его причастности к содеянному. И только Инга отказывается принять официальную версию следствия и сама занимается выяснением правды.Производство: Россия / Свэлл-фильмЖанр: детективРежиссер: Илья ХотиненкоАктеры: Наталья Рычкова, Александр Ратников, Артём Семакин, Сергей Белякович , Андрей Карако, Александр Ефремов , Сергей Паршин, Ольга Нефёдова, Андрей Курилов и др.Продолжительность: 00:45:25+00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5C059E6CDBCB4F6849610B7762D03606F08ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1207732   (780346) от 19.02.2018
+
+Смерть Сталина / The Death of Stalin (2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!.. В общем, тоталитарная комедия в вольной трактовке.Производство: Великобритания, Франция / Quad Productions, Main Journey, GaumontЖанр: Комедия, ИсторияРежиссер: Армандо ИаннуччиАктеры: Андреа Райзборо, Джейсон Айзекс, Ольга Куриленко, Руперт Френд, Стив Бушеми, Джеффри Тэмбор, Пэдди Консидайн, Ричард Брэйк, Джонатан Арис, Майкл Пэйлин ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1B81943137B4F4802FBFD9EFC2314096772B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207745   (780344) от 19.02.2018
+
+Смерть Сталина / The Death of Stalin (2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!.. В общем, тоталитарная комедия в вольной трактовке.Производство: Великобритания, Франция / Quad Productions, Main Journey, GaumontЖанр: Комедия, ИсторияРежиссер: Армандо ИаннуччиАктеры: Андреа Райзборо, Джейсон Айзекс, Ольга Куриленко, Руперт Френд, Стив Бушеми, Джеффри Тэмбор, Пэдди Консидайн, Ричард Брэйк, Джонатан Арис, Майкл Пэйлин ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CCDB05FDC5EDDCA66AB061C765700047B5E95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207785   (780334) от 19.02.2018
+
+Сердце из стали (Кровоточащая сталь) / Ji qi zhi xue / Bleeding Steel (2017) WEBRip [H.264/1080p-LQ] [EN, CHI / EN, CHI Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент Линь, защищая гениального ученого, разрабатывавшего биологическое оружие, от внезапного нападения вооруженной группы элитных наёмников, возглавляемых беглым биороидом, получает тяжелые ранения и чудом остаётся жив, благодаря своевременной медицинской помощи и передовым технологиям. И теперь, работая под прикрытием, наш герой должен стать незримым (   Читать дальше...   )Производство: Китай, Гонконг / Heyi Pictures, Sparkle Roll Media, Village Roadshow Pictures AsiaЖанр: Боевик, Фантастика, ТриллерРежиссер: Чжан ЛицзяАктеры: Джеки Чан, Шоу Ло, Нана Оу-ян, Эрика Сяхоу, Каллэн Мулвей, Тесс Хобрич, Ким Джинджелл, Дэмиен Гарви, Боуи Лам, ElenaПеревод: ОтсутствуетЯзык озвучки: Английский, КитайскийСубтитры: Английские, Китайские (вшитые, не отключаемые)Продолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140E9CF454CDB982DF5C8FA212184306B4B156F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207947   (780207) от 20.02.2018
 
 Обитель теней / Marrowbone  (2017) BDRip [H.264/1080p] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3439099C09A4AD293B2609FB4BE8822EAA997E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211062   (778097) от 05.03.2018
-
-Мама и папа / Mom and Dad  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со стороны семья Райан кажется идеальной - муж хорошо зарабатывает, красавица-жена, двое детей. Но проблемы есть в любой семье. Дочь-старшеклассница перестала общаться с матерью и таскает у неё деньги из кошелька. Младший брат постоянно задирает сестру, родители тоже с трудом находят общий язык. Внезапно по телевизору начинают передавать странный сигнал, и все услышавшие (   Читать дальше...   )Производство: США / Armory Films, Zeal MediaЖанр: ужасы, триллер, комедияРежиссер: Брайан ТейлорАктеры: Николас Кейдж, Сэльма Блэр, Лэнс Хенриксен, Энн Уинтерс, Рэйчел Мелвин, Джозеф Д. Рейтман, Лорена Диас, Оливия Крочиккия, Закари Артур, Саманта Лемоул, Энджи Уиллмотт, Кэти СтэнлиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FFCFACBAF03383FC71E2C4254A7F59166327299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211235   (777724) от 06.03.2018
-
-Колесо чудес / Wonder Wheel  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777724.jpg" />
-</div>
-
-
-###  Подробнее
-
-История страсти, жестокости и предательства, рассказывающая о четырех героях, чьи судьбы переплелись среди бурной жизни знаменитого парка развлечений. Действие разворачивается на живописном Кони Айленде в Нью-Йорке.Производство: США / Amazon Studios, Gravier Productions, Perdido ProductionsЖанр: драмаРежиссер: Вуди АлленАктеры: Джеймс Белуши, Джуно Темпл, Джастин Тимберлейк, Кейт Уинслет, Макс Казелла, Джек Гор, Дэвид Крамхолц, Роберт С. Кирк, Томми Нохилли, Тони Сирико, Стив Ширрипа, Джон ДуманьянПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAFCC1DBFD494BE65C4EB24FFD74AD2E1BF4C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211175   (777719) от 06.03.2018
-
-Восставший из ада: Приговор  / Hellraiser: Judgment  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективы Шон и Дэвид Картеры расследует дело о жутких серийных убийствах. Объединив усилия с другим детективом, Кристин Эджертон, они следуют за убийцей всё дальше и дальше в лабиринт ужаса, которому нет места в мире живых. Чем глубже они опускаются по спирали в преисподнюю, тем явственнее понимают, что они клюнули не на ту наживку. Похоже, сенобиты ждут вовсе не (   Читать дальше...   )Производство: США / Dimension Films, Puzzle Box PicturesЖанр: ужасыРежиссер: Гэри Дж. ТанниклиффАктеры: Рэнди Уэйн, Хэзер Лэнгенкэмп, Риган Уоллес, Алексис Харрис, Джон Гулагер, Пол Т. Тейлор, Майк Дж. Риган, Дэймон Карни, Молли Никки Андерсон, Мэри Кэтрин Брайант, Хелена Грэйс Дональд, Грэйс МонтиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8277B753AEEECF5D634BD9FB3A23C19AD1F99F80
 ```
 
 https://mybot314.ru/tekegram_catalog/

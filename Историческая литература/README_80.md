@@ -1,3 +1,84 @@
+###  Публикация: 1260213   (311839) от 07.11.2018
+
+Ян Мортимер | Елизаветинская Англия. Путеводитель путешественника во времени (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что машина времени перенесла вас во времена Елизаветы I…
+Что вы видите? Как одеваетесь? Как зарабатываете на жизнь? Сколько вам платят? Что вы едите? Где живете?
+Автор книга, доктор исторических наук Ян Мортимер, раз и навсегда изменит ваш взгляд на средневековую Англию, показав, что историю можно изучить, окунувшись в нее и увидев все своими глазами. (   Читать дальше...   )Жанр: История, КультурологияПеревод: Андрей ЗахаровФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC623C75DE53A328D0726DEE03B207DC61BC7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260204   (311838) от 07.11.2018
+
+Ян Мортимер | Средневековая Англия. Путеводитель путешественника во времени (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прошлое - другой мир. И эта книга - ваш путеводитель. Представьте, что машина времени перенесла вас в четырнадцатый век… Что вы видите? Как одеваетесь? Как зарабатываете на жизнь? Сколько вам платят? Что вы едите? И где живете?
+Автор книг, доктор исторических наук Ян Мортимер, раз и навсегда изменит ваш взгляд на средневековую Англию, показав, что историю можно изучить, (   Читать дальше...   )Жанр: История, КультурологияПеревод: Андрей ЗахаровФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E996E0B89165A36F4E5FC3A7D29F6D8C63E2FC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422425   (310509) от 08.11.2020
+
+Сергей Зотов | История алхимии. Путешествие философского камня из бронзового века в атомный (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обычно алхимия ассоциируется с изображениями колб, печей, лабораторий или корня мандрагоры. Но вселенная златодельческой иконографии гораздо шире: она богата символами и аллегориями, связанными с обычаями и религиями разных культур. Для того, чтобы увидеть в загадочных миниатюрах настоящий мир прошлого, мы совершим увлекательное путешествие по Древнему Китаю, таинственной (   Читать дальше...   )Жанр: Культурология, Научно-популярная литература, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68FB4224699DA3CA744FDEFE4D906E90241C782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960113   (310189) от 27.11.2015
 
 Дмитрий Винтер | Опричнина. От Ивана Грозного до Путина (2014) [FB2]
@@ -6,7 +87,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,87 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C9ECC79BC53713BE22E4634D7B1FDE77CF8356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533199   (302720) от 16.11.2017
-
-Сергей Соловьев | История России с древнейших времен (29 томов в 6 книгах) (Раритетное издание) [1896] [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается фундаментальное издание, знаменитый труд великого русского ученого-историка Сергея Михайловича Соловьева, являющийся крупнейшим достижением русской исторической науки XIX века. Эта, не имеющая себе равных в отечественной науке, работа стала невиданным событием в российском обществе, явлением истинно мирового масштаба. На создание этого (   Читать дальше...   )Жанр: Раритеты / Научная литература / История РоссииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5462393D1486A71506A60C46DE1C9EF89157322A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078303   (302637) от 30.11.2016
-
-А. П. Окладников и др. | По следам древних культур [3 книги] (1951-1954) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302637.jpg" />
-</div>
-
-
-###  Подробнее
-
-В серии «По следам древних культур» советские археологи излагают результаты своих многолетних исследований древней истории и культуры народов СССР и их предков.
-
-Первый том серии посвящен достижениям советских археологов в изучении древнейших культур и государств на территории СССР.
-(   Читать дальше...   )Жанр: История, культурология, археология, науковедение, искусство, политология, этнографияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6C071EF45A211CED39FB82F91F68A61AD5A38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184391   (301497) от 17.11.2017
-
-С. К. Бушуев | Борьба горцев за независимость под руководством Шамиля (1939) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая работа имеет целью выяснение основных вопро­сов истории борьбы горцев Дагестана, Чечни и Ингушетии про­тив русского царизма за свою независимость в первой половине XIX в. История Кавказа, особенно отдельных его народов — один из крайне сложных, еще недостаточно разработанных вопросов общей истории СССР. Для всестороннего уяснения данного во­проса необходимо (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8963143C766F53C71648CED67784AE944A77371F
 ```
 
 https://mybot314.ru/tekegram_catalog/

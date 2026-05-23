@@ -1,115 +1,3 @@
-###  Публикация: 768970   (858950) от 21.03.2014
-
-Наталия Новаш | Переводные картинки из книги Тир (1993) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошла вторая неделя с тех пор, как в комнате поселились привидения.
-    Шкафовник жил в одежном шкафу. Летун — на самой верхней книжной полке под потолком.
-    Двое обитали на подоконнике: Прозрачник в обыкновенной трехлитровой банке, из которой поливают цветы, и Подгеранник — в цветочном горшке под большим кустом красной герани.
-    В холодильнике тоже кто-то жил…Жанр: СказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4535E9DBF7E21326550784B41398DAEE1F4BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769075   (858829) от 21.03.2014
-
-Сельма Лагерлеф | Перстень Лёвеншёльдов (1989) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858829.jpg" />
-</div>
-
-
-###  Подробнее
-
-В саге о пяти поколениях семьи Левеншельдов параллельно развиваются три истории, охватывающие события с 1730 по 1860 год. Представителей этого рода связывает тема преступления и наказания, тайные предсказания и довлеющие над членами семьи проклятия. И противостоять этому может лишь любовь и добрая воля человека, способные победить лицемерие, корысть и зло.
-Действие (   Читать дальше...   )Жанр: Зарубежная литература для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238E4BC93ED61158D6EB74DEE9856F976E29DC83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768841   (858383) от 21.03.2014
-
-Леонардо да Винчи | Сказки, легенды, притчи (1998) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мудрый гений Леонардо убедительно изобразил в сказках все стороны жизни человека. Высшая мудрость в простоте, поэтому скорее короткие притчи, легенды, а не многотомные философские сочинения посеют зерна истины в сердце читателя. Причем эти зерна с благодарностью к великому сеятелю.
-
-Для широкого круга читателей всех возрастов и взглядов на жизнь.Жанр: ПритчиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CEA89132A7505FD398B47DCE164944EA2B445E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376717   (858132) от 18.04.2020
-
-Ганс Христиан Андерсен | Все сказки Ганса Христиана Андерсена (2018) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в России – полное собрание сказок Ганса Христиана Андерсена в одной книге!
-В этой книге собраны все сказки всемирно известного датского писателя, переведенные на русский язык за последние 150 лет. Проиллюстрированы они лучшими произведениями из букинистических изданий XIX–XX веков и дополнены жизнеописанием и личной перепиской автора.
-«Жизнь – прекраснейшая (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EC760C0AC8C44116055CBD5233E4EEE0FD6671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000634   (857643) от 26.03.2016
 
 Алексей Алферов | Беглецы (1929) [FB2]
@@ -118,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -676,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -688,6 +576,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DCBF377B2CD0DA400C5F0192469D5DF90EC548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110294   (853605) от 02.03.2017
+
+Кир Булычев | Тайна третьей планеты (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кир Булычев - один из самых замечательных российских фантастов. ТАЙНА ТРЕТЬЕЙ ПЛАНЕТЫ - повесть о приключениях девочки Алисы, ее ученого папы и капитана Зеленого, а также добродушного Громозеки и птицы Говоруна.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776ACD403763604DA812764B9FC332F0262C3164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769992   (853488) от 24.03.2014
+
+Митко Яворски | Пшеничное зерно и Океан (1980) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кусочек золота лежал себе укрытый в земле. Дружочки его — мелкие камушки, приютившиеся тут же под землёй, жили и радовались тому, что он сиял в темноте, освещая всё кругом ровным светом, и прозвали его Огневичком. Огневичок никогда не покидал своего убежища, не знал ничего о том, что делается на земле, поэтому не только внимал похвалам приятелей, но и вообще воображал, (   Читать дальше...   )Жанр: СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21690D2FAC3A472F09F8FD7A20EF3D6A52674BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769868   (853333) от 24.03.2014
+
+Яков Волчек | Рассказы о капитане Бурунце (1959) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отвага и мужество, человечность и душевность - именно этими благородными качествами обладают герои произведений Я. Волчека, которые повседневно занимаются огромной самоотверженной и подчас небезопасной работой.
+Книга рассказывает читателям о борьбе с нарушителями общественного порядка и социалистической законности, о том, как простые советские люди помогают милициЖанр: Детская прозаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1B32190964B86A41604559BAD2E88EB42B4E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377373   (852930) от 21.04.2020
+
+Михаил Вострышев (сост.) | 198 басен дедушки Крылова (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+…Во всех отношениях самый народный наш поэт…
+(А. С. Пушкин)
+…Его басни отнюдь не для детей. Тот ошибется грубо, кто назовет его баснописцем в таком смысле, в каком были баснописцы Лафонтен, Дмитриев, Хемницер и, наконец, Измайлов. Его притчи – достояние народное и составляют книгу мудрости самого народа.
+(Н. В. Гоголь)(   Читать дальше...   )Жанр: Русская классика для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6D5E921DAF1A9599DCB1B605B477BE7530BA90
 ```
 
 https://mybot314.ru/tekegram_catalog/

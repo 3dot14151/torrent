@@ -1,3 +1,108 @@
+###  Публикация: 1392861   (768908) от 28.06.2020
+
+Tachibanakan to Lie Angle | Любовные Страсти Пансиона Тачибана [2018, TV, 12 ep] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ханаби Нацуно вернулась в свой родной город, чтобы учиться в старшей школе. «Теперь у меня новая, прекрасная жизнь», — думала она, но Татибана, общежитие, в котором собиралась жить Ханаби, стало не тем местом, о котором она мечтала.Производство: Creators in Pack, ЯпонияЖанр: Комедия, Романтика, ЭттиРежиссер: Хирасава ХисаёсиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 4 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2870BABB909609D88F0CF852697656B1E8617A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393012   (768903) от 28.06.2020
+
+Carnival Phantasm | Карнавальный Фантазм [2011, TV, 12 ep + 2 SP + OVA] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Адаптация манги «Тейк Мун», придуманной Эри Такэнаси. Представляет собой набор пародий на работы студии Type-Moon, такие как «Судьба/Ночь схватки», «Повесть о лунной принцессе», «Талая кровь» и др. Знакомые нам персонажи предстают перед нами в весьма неожиданных и смешных амплуа, иронизируют над ошибками оригиналов, словом, делают всё то, что и должны делать персонажи (   Читать дальше...   )Производство: Lerche, ЯпонияЖанр: Приключения, Комедия, Фантастика, ЭттиРежиссер: Киси СэйдзиОзвучка: Одноголосая, Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 14 Мин; 1 Эпизод 20 Мин; 1 Эпизод 26 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4368CEE2A504F3C7F9098023AEC66CB78485172E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392973   (768837) от 28.06.2020
+
+Kore wa Zombie Desuka? Of the Dead | Уж не Зомби ли Это? Среди Мертвецов [TV-2] [2012, TV, 10 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Аюму Аикава случайно стал зомби. Вот не повезло парню — но он не унывал, продолжал ходить в школу и даже познакомился с несколькими ошеломительными девчонками, которые, каждая по своей причине, даже перебрались к нему жить.
+После сумасбродных приключений в первом сезоне наступило недолгое затишье. Парень уже стал привыкать к жизни обычного зомби-старшеклассника, (   Читать дальше...   )Производство: Studio Deen, ЯпонияЖанр: Приключения, Комедия, Фантастика, ЭттиРежиссер: Канасаки ТакаомиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 10 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F44313D19F0299C5EE48312EE73E53B090D8C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392876   (768836) от 28.06.2020
+
+Sora no Otoshimono Final: Eternal My Master | Утраченное Небесами: Мой Хозяин Навсегда [2014, Movie] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Второй фильм дилогии, завершающий историю Томоки Сакурая, его друзей и ангелоидов.Производство: Production IMS, ЯпонияЖанр: Комедия, ЭттиРежиссер: Сайто ХисасиОзвучка: Одноголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFC86BD5F8DEAB129AFCE21E6661E8B52231819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392854   (768835) от 28.06.2020
 
 Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небесами: Ангелоид Времени [2011, Movie] BDRip 1080p 10-bit raw+rus
@@ -6,7 +111,7 @@ Sora no Otoshimono: Tokeijikake no Angeloid | Утраченное Небеса�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Kore wa Zombie desuka? | Уж не Зомби ли Это? [2011-2012, OVA, 3 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +164,7 @@ Sora no Otoshimono: Forte | Утраченное Небесами: Сильне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Sora no Otoshimono | Утраченное Небесами [TV-1] [2009, TV, 13 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Mahouka Koukou no Rettousei Movie: Hoshi wo Yobu Shoujo | Непутевый у�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ Suisei no Gargantia | Гаргантия на Зелёной Планете [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +295,7 @@ Ore no Imouto 2 | Ну не Может Моя Сестрёнка Быть Так
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +321,7 @@ Toradora! | Торадора! [2008, TV, 25 ep + OVA + 4 sp] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +347,7 @@ Kobayashi-san Chi no Maidragon | Miss Kobayashi's Dragon Maid | Кобаяси �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +373,7 @@ Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +399,7 @@ Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +426,7 @@ High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +453,7 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +558,7 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +584,7 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +611,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +638,7 @@ Freezing / Заморозка [2011, TV, 12 из 12 серий] SDTV 720p raw + 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +664,7 @@ Hugtto! Pretty Cure | Хорошенькое лекарство: Объятия 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,110 +675,6 @@ Hugtto! Pretty Cure | Хорошенькое лекарство: Объятия 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DE6ADE85D96CCF3F32EA8F721A4298DAF64213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018702   (753198) от 21.05.2016
-
-Gakkou Gurashi! / School-Live! / Школьная жизнь! [2015, TV, 12] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет повествует о трех школьницах живущих в школе и состоящих в клубе Школьной жизни. Школа эта находится в полуразрушенном состоянии и населена преимущественно агрессивными зомби. В схожем состоянии находится и прилегающий город. Однако, одна из героинь, Юки Такэя не замечает окружающей действительности. Ей мерещится что школа все еще цела и наполнена самыми обычными (   Читать дальше...   )Производство: Япония, Lerche / ラルケЖанр: приключения, комедия, повседневность, ужасыРежиссер: Андо МасаомиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23786B4E08539BA65FD6B33ADEC31B4013137AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019050   (751171) от 22.05.2016
-
-Saijaku Muhai no Bahamut / Undefeated Bahamut Chronicle / Хроники непобедимого Бахамута [2016, TV, 12] HDTV 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люкс — бывший принц Империи Аркадия. Пять лет назад его династия была свергнута, почти все члены королевской семьи истреблены. Люкс вынужден перебиваться случайными заработками, пока судьба при весьма пикантных обстоятельствах не сводит его с принцессой нынешнего королевства, возникшего после падения Аркадии. Принцесса Лизешарт Атисмата вызывает Люкса на дуэль. В (   Читать дальше...   )Производство: Япония, Lerche / ラルケЖанр: приключения, фэнтези, эттиРежиссер: Андо МасаомиПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3971161D253A0ED25046DA235742FDE228BEB4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859811   (751046) от 16.04.2015
-
-Junketsu no Maria / Maria the Virgin Witch / Непорочная Мария [2015, TV, 12 ep] HDTV 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главной героиней является молодая, но очень могущественная ведьма по имени Мария, которая живёт во Франции периода Столетней войны (1337–1453). Мария ненавидит насилие и готова на многое, лишь бы защитить обитателей своей деревни и предотвратить кровопролитие. Например, она вполне может наколдовать гигантского дракона или послать фамильяра-суккуба к генералам враждующих армий. Вот только деревенские от такой «помощи» далеко не в восторге. А заигрывания с фамильярами – суккубом Артемидой и инкубом Приапом – и (   Читать дальше...   )Жанр: комедия, приключения, фэнтезиРежиссер: Танигути ГороФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38130CDDCBEA12AB31C8CE346D19E62309D2E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281464   (751028) от 08.02.2019
-
-Тайная жизнь пингвинов | Penguin Highway [2018, Movie] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любознательный четвероклассник Аояма ведет дневник, куда записывает все свои открытия и эксперименты. Однажды в его родном городе вдали от морского побережья необъяснимым образом появляются пингвины. А на окраине города возникает некая неземная океаническая сфера. Мальчик берется разгадать этот удивительный феномен, который оказывается связан не только с его жизнью, (   Читать дальше...   )Производство: Япония, Studio Colorido Co.Жанр: Аниме, Мультфильм, Фентези, ПриключениеРежиссер: Исида ХироясуПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81A2A6DB56034A6CA03FC6C020DC78B9E249F5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

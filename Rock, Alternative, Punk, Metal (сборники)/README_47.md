@@ -1,3 +1,91 @@
+###  Публикация: 1749394   (43407) от 16.09.2024
+
+VA - Rock, the best (2024) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Guns N' Roses - So Fine [04:06]
+002. Joe Cocker - My Father's Son [04:30]
+003. Black Sabbath - Born Again [06:34]
+004. Led Zeppelin - Babe I'm Gonna Leave You [06:43](   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 21:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BD424485CF25D5A01E945C85C73E311B077FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749882   (42926) от 20.09.2024
+
+Queens of the Stone Age - Compilation (2024) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. You Think I Ain't Worth A Dollar, But I Feel Like A Millionaire (Album Version With Interlude) [03:13]
+02. No One Knows [04:39]
+03. First It Giveth (Album Version) [03:18]
+04. Song For The Dead [05:52](   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 03:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1963EF936E61095B0A471C4C36F5501338DEFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569730   (42798) от 22.09.2024
+
+Radio Tapok - Дискография (2016-2024) [MP3|320 Kbps] <Rock, Punk Rock, Metal, Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Олег Абрамов родился 15 февраля 1989 года и приобрёл известность благодаря авторскому переводу и живому исполнению всемирных хитов. Он переводит иностранный рок на русский, стараясь не отступать от смысловой нагрузки оригинала.
+Как переводчик-исполнитель, он создал творческое объединение, занимающееся адаптацией песен в стиле рок, под названием «Радио Тапок».
+⠀2016 — 2022 Альбомы
+2022 — Наследие
+2018-2023 — СинглыЖанр: Rock, Punk Rock, Metal, Pop RockПродолжительность: 11:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37589687BE8C591E5AA74395E5047EFCFFE500A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574501   (42773) от 22.09.2024
 
 Maneskin - Коллекция (2017-2024) [MP3|320 Kbps] <Rock, Pop-Rock, Glam Rock>
@@ -6,7 +94,7 @@ Maneskin - Коллекция (2017-2024) [MP3|320 Kbps] <Rock, Pop-Rock, Glam R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +123,7 @@ VA - Hard Rock Social Club (2024) [MP3|320 Kbps] <Hard Rock, Metal, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +152,7 @@ VA - Rocking The Globe (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +181,7 @@ VA - 100 Greatest Rock Songs (2024) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +210,7 @@ VA - Hard & Heavy (2024) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +239,7 @@ VA - Riffing To The Top (2024) [MP3|320 Kbps] <Rock, Hard Rock, Hardcore>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +268,7 @@ VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +297,7 @@ VA - Heavy Workout (2024) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +326,7 @@ VA - Turn To Rock (2024) [MP3|320 Kbps] <Alternative, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +355,7 @@ VA - Invisible Strings (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +384,7 @@ VA - The Echo Of The Heart Strings (2024) [MP3|320 Kbps] <Rock, Soft rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +413,7 @@ VA - Autumn In the Mirror (2024) [MP3|320 Kbps] <Indie, Alternative, Pop Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +442,7 @@ VA - In ecstasy from metal (2024) [MP3|320 Kbps] <Metal, Glam Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +471,7 @@ Tommy J (Tommy Johansson) - Metal Covers (2024) [MP3|320 Kbps] <Metal, Covers>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +529,7 @@ VA - Christmas Rock Santa's Secret (2024) [MP3|320 Kbps] <Rock, Pop>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +558,7 @@ Alanis Morissette - Compilation (1987-2020) [MP3|320 Kbps] <Alternative, Post gr
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +587,7 @@ VA - Christmas Glam Santa's Secret (2024) [MP3|320 Kbps] <Rock, Glam>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +616,7 @@ VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +645,7 @@ VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, O
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +674,7 @@ Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +703,7 @@ Nautilus Pompilius - Compilation (1983-1997) [MP3|320 Kbps] <New wave, Art rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -658,93 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91DEB7BEFD5898B8E756ED0CCD6393856776573F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766447   (33569) от 20.12.2024
-
-The Offspring - Compilation (1989-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skate punk, Hardcore punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neocon (Splinter 2003)
-02. Looking Out For #1 (Supercharged 2024)
-03. Coming For You (Let The Bad Times Roll 2021)
-04. (Can't Get My) Head Around You (Splinter 2003)(   Читать дальше...   )Жанр: Punk rock, Alternative, Skate punk, Hardcore punkПродолжительность: 04:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E4191C2E10DE9CEDC469F717B2887BC48161B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769172   (32851) от 27.12.2024
-
-Сергей Галанин & СерьГа - Compilation (1993-2024) [MP3|320 Kbps] <Rock , Blues rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дороги, Которые Мы Выбираем (Нормальный Человек 2006)
-02. Идёт Война (Батарейки Cели 2024)
-03. Белые Голуби Летят (Батарейки Cели 2024)
-04. Блюз Шапито (Приметы 2017)(   Читать дальше...   )Жанр: Rock , Blues rockПродолжительность: 06:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF2A9077803DECE418CD02DAD3DD9C0DDF7EDACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761724   (32802) от 28.12.2024
-
-VA - 500 лучших хитов русского рока (2014) [MP3|224 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32802.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Боевой стимул-Он под окном
-002.Круиз-Рок Навсегда
-003.Кино-Апрель
-004.БИ-2-Варвара(   Читать дальше...   )Жанр: RockПродолжительность: 32:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8998B541DCC6C0485239AE014376E4143D9F9A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

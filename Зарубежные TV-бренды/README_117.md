@@ -1,3 +1,55 @@
+###  Публикация: 1271766   (148541) от 24.12.2018
+
+NGW: Динорыба / Dinofish (2011) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+2001 год, Содвана Бей, Южная Африка. Команда дайверов охотится за живым динозавром. У них ровно 15 минут чтобы найти его. Эта мрачная преисподняя - место легенд. Но здесь, по-близости есть нечто реальное. В этой экспедиции один из дайверов погиб. Спустя десятилетие после трагедии в Содване элитное подразделение возвращается на южно-африканское побережье. Их задание (   Читать дальше...   )Производство: США, Earth Touch, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Грэм ДуэйнПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D81F49EFEB37A2B05C15932AD21C99300958921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271559   (148358) от 24.12.2018
+
+Мамонты - гиганты ледникового периода / Mammoths. Giants of the Ace (2014) HDTVRip
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь назад во времени с самым знаменитым экспертом по мамонтам Диком Молом. Вы побываете в эпохе, когда наши предки жили вместе с огромной популяцией мамонтов. Около двух миллионов лет назад начался Ледниковый период, и этим животным пришлось адаптироваться к новому климату. В этом документальном фильме мы узнаем удивительную историю мамонтов от их появления (   Читать дальше...   )Производство: Германия, Smithsonian Channel, ZDFЖанр: Документальный, археологияПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28EF201A18FD8CFDCF07DC0D43AB9C56AAFF857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347985   (147015) от 25.12.2019
 
 NG: Помпеи. Тайны мёртвых (Последние беженцы Помпеев) / Pompeii. Secrets of the Dead (2019) HDTV [H.264/1080i-LQ]
@@ -6,7 +58,7 @@ NG: Помпеи. Тайны мёртвых (Последние беженцы �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: Майкл Пэйлин в Северной Корее / North Korea: Michae
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC. Настоящий доктор Живаго / The Real Doctor Zhivago (201
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NGW: Братья сафари / Safari Brothers (2016) HDTV [H.264/1080i-LQ] (�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ BBC: Земля: Мощь планеты / Earth: The Power of the Planet (2007)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ BBC: Атлантида в джунглях / Jungle Atlantis (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC. Гарри Поттер: История Магии / Harry Potter: A Histor
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +397,7 @@ NGW: Выжить несмотря ни на что / Extreme Survivors (2014) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +423,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +501,7 @@ NG: Служба безопасности аэропорта: Первый кл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Animal Planet: Удивительный мир животных (часть 2) /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +553,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip [H
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +632,7 @@ PBS. Первые цивилизации / First Civilizations (2018) HDTVRip (1
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,7 +658,7 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,58 +669,6 @@ Discovery: Секс у тираннозавров / Tyrannosaurus sex (2010) HDT
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F0381B53DCDF0FB3B141D377C05773631F8975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348841   (141028) от 29.12.2019
-
-BBC. Искусство Франции / Art Of France (2017) DVB (серии 3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский искусствовед Эндрю Грэм-Диксон продолжает серию документальных фильмов, рассказывающих о культурном наследии разных стран мира. В новом проекте вы узнаете, как развивалось искусство Франции: от времён Революции XVIII века и империи Бонапарта к искусству модерн.Производство: Великобритания, BBC StudiosЖанр: Документальный, искусство, живописьРежиссер: Тим КирбиПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D9E12D066CEAADAAF97AFC1B743EBA2FB446AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348963   (141020) от 29.12.2019
-
-BBC: Итальянские сады с Монти Доном / Monty Don’s Italian Gardens (2011) DVBRip (серии 4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирно известный телеведущий и садовник Монти Дон берет нас собой в путешествие по Италии, чтобы показать самые прекрасные сады этой страны. Зритель будет путешествовать сквозь время – от раннего Ренессанса, через Барокко и эпоху Романтизма к большому итальянскому садовому возрождению двадцатого тысячелетия.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, путешествия, архитектура, ландшафтный дизайнРежиссер: Петти КраусПеревод: Двуголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC905CC2C28EA9EF5B71BEC2D6C6B34BBACB6C8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

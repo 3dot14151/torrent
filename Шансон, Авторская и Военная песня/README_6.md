@@ -1,3 +1,143 @@
+###  Публикация: 604130   (996477) от 17.01.2013
+
+Марина Александрова - Grand Collection (2011) [MP3|320 кб/с]<поп, шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Возьми меня замуж (4:00)
+02. Милый мой гаишник (3:16)
+03. Любишь, не любишь (4:00)
+04. День рождения (3:22)
+05. Непутевый (3:30)
+06. Ноль без палочки (3:49)
+07. В чем причина (3:32)
+08. Опоздала (3:44)
+09. Научи, как быть любимой (3:21)
+10. Золотая клетка (3:06)(   Читать дальше...   )Жанр: поп, шансонПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7556FBD93C591FF8CDC301F6A50F59DDCFA5C663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604598   (996062) от 18.01.2013
+
+Группа Тяни-Толкай - 2 альбома (2008, 2011) [MP3|320 кб/с]<поп, шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+2008 - Как же долго я тебя искал  (переиздание)01. Слабада (муз. Б.Мокроусов , сл. М.Матусовский ,пер.В.Мороз)
+02. Лада (муз. В.Шаинский , сл. М.Пляцковский)
+03. Да ох уе (муз. и сл. народные)
+04. Если любишь ты (муз. Ю.Антонов , сл. Л.Дербенёв)
+05. Мы маленькие дети (муз. Е.Крылатов, сл. Ю.Энтин)
+06. Клён (муз. Ю.Акулов ,сл. Л.Шишко)
+07. Это моя жизнь (муз. и сл. П.Клышевский,Jon Bon Jovi, Richie Sambora, Jay Orpin, Max Martin,Dr.Alban)
+08. Облака (муз. В.Шаинский ,сл. С.Козлов)
+09. 22 июня (с И.Афанасьевой) (муз. Е.Петербургский, сл. народные)
+10. Помнишь…(муз. S. Cutugno, V. Pallavicini сл. М.Косова)(   Читать дальше...   )Жанр: поп, шансонПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA128C16A31E6799DD62B4BC626C2E17520ABE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607529   (994385) от 23.01.2013
+
+V.A. - Французский поцелуй - Хиты Франции (2011) [FLAC|Lossless]<Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Yann Tiersen - La valse d'Amelie
+02. Virginie Ledoyen - Mon amour mon ami
+03. Zaz - Je veux
+04. Catherine Deneuve - Toi jamais"
+05. Patricia Kaas - Mademoiselle chante le blues
+06. Joe Dassin - A toi
+07. Francoise Hardy - Tous les garcons et les filles
+08. Edith Piaf - La vie en rose
+09. Charles Aznavour - La boheme
+10. Jacques Brel - Ne me quitte pas(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610804   (990208) от 29.01.2013
+
+Сергей Куприк - Лебедь белый (2013) [MP3|320 кб/с]<шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Лебедь белый
+02. Так-так-так
+03. Хризантемы белые
+04. Босяцкая жизнь
+05. Желтые подсолнухи
+06. Для тебя
+07. Рука тяжелая, прохладная
+08. Враг или друг
+09. Рулетка
+10. Колокола(   Читать дальше...   )Жанр: шансонПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6901D2F590ED15114CFEEFD58EC360E211B5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582879   (987769) от 22.01.2020
 
 Стас Михайлов - Я открою свое сердце (2012) [FLAC|Lossless]<Шансон>
@@ -6,7 +146,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +175,7 @@ VА - Эх, дороги... (2008) [FLAC|Lossless]<Ретро, Военная п
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +291,7 @@ Joe Dassin - Best of Joe Dassin 3xCD (2009) [FLAC|Lossless]<Pop / Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -177,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -415,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -444,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -473,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +729,7 @@ VA - La Legende De La Chanson (2005) [MP3|320 кб/с] <Chansons Francaises>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,7 +758,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -632,134 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94BEADEFF60EAF8C54B27CE8760215ABB6516027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166784   (974718) от 16.01.2010
-
-Аркадий Северный - Дуня чумовая (1971) [MP3|320 kbps]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дуня чумовая (2:10)
-02. Оля чумовая (3:27)
-03. В доме Румянцева (2:53)
-04. Про любовь Акульки к Сереже (3:13)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616814   (973630) от 11.02.2013
-
-Группа Рядовой Дарин - 3 альбома (2002-2012) [MP3|320 кб/с]<шансон, поп>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973630.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Юнкера01. Спас (4:03)
-02. Сотник (3:21)
-03. Пряди мои русые (3:29)
-04. Ворожея (3:32)
-05. Донская казачья (3:48)
-06. Солдат (3:25)
-07. Колоколенка (3:22)
-08. Моя Родина (3:40)
-09. Я, конечно, умру... (3:29)
-10. Поспели травы (3:41)(   Читать дальше...   )Жанр: шансон, попПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616529   (973253) от 11.02.2013
-
-Marlene Dietrich - Lili Marlene (1959) [MP3|320 кб/с]<Chanson, Oldies>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lili Marlene
-2. Mean To Me
-3. The Hobellied
-4. Annie Doesn't Live Here Anymore
-5. You Have My Heart
-6. The Surrey With The Fringe On Top
-7. Time On My Hands
-8. Taking A Chance On Love
-9. Must I Go
-10. Miss Otis Regrets(   Читать дальше...   )Жанр: Chanson, OldiesПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B02B9BDFB5C0A4D59C9D2C21DEC29B7994BA8DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744026   (971609) от 11.01.2014
-
-Аркадий Кобяков - Скрипач (2012) [FLAC|Lossless]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скрипач (3:51)
-02. А над лагерем ночь (4:22)
-03. Душа моя (6:20)
-04. По этапу (3:51)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2CF6F1C5649EF070BB35F2ECCAB5754FA774F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

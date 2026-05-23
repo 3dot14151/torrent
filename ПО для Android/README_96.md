@@ -1,3 +1,83 @@
+###  Публикация: 1492678   (159156) от 25.12.2022
+
+My TTS: Text-to-Speech v1.1.6 [En/Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Небольшое, но весьма функциональное приложение для озвучивания текста с помощью Text-to-Speech Engine. Поддерживает распознавание текста с изображений (как с уже существующих, так и с новых, полученных с камеры). Поддерживает распознавание речи. Синтез речи выполняется согласно выбранными вами параметрами. Полученным аудиофайлом можно поделиться.Тип издания: PremiumРелиз состоялся: 22.09.2022Разработчик: MixxAppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский и Русский (русификация)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8BF15D0B83A58B0FE5E9AE1F681C4204E3D012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675948   (159150) от 11.11.2023
+
+Find my kids / Где мои дети v2.6.89-google Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Find my kids – это семейный GPS-трекер для безопасности детей и родительского контроля. Установите приложение Find my kids на свой телефон, а приложение Pingo! на телефон ребёнка, либо подключите Смарт часы, которые доступны вам в нашем магазине.
+Find my kids – это приложение для родителей, которое поможет вам не волноваться, если ребёнка нет рядом и он не отвечает (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.11.2023Разработчик: GEO TRACK TECHNOLOGIES INCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1675956   (159092) от 11.11.2023
+
+Filmix v2.1.3 Mod by vadj [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Filmix Android - каталог из ~ 100 000 фильмов и сериалов с популярного онлайн кинотеатра filmix.ac.
+Вы сможете использовать приложение не только для просмотра на своих Android приставках, но и на мобильных телефонах, планшетах. Приложения Filmix UHD откроет вам доступ к большой библиотеке фильмов и сериалов с ежедневным обновлением, которые вы сможете смотреть онлайн. (   Читать дальше...   )Тип издания: ModРелиз состоялся: 08.11.2023Разработчик: SennysПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E999CC48284951171199F115F7CB7262820AF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676182   (158907) от 12.11.2023
 
 Photo Map v9.04.05 Mod by Timozhai, misuri78 [Ru/Multi]
@@ -6,7 +86,7 @@ Photo Map v9.04.05 Mod by Timozhai, misuri78 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +141,7 @@ LG Camera PRO v7.1 build 102 [Ru/Multi] - Камера для фото и вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +167,7 @@ VPN Russia - VPN сервера в России 1.183 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +219,7 @@ Ventusky: Прогноз погоды v29.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +245,7 @@ Bubble Screen Translate 2.0.9 [Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +272,7 @@ Lighting calculations / Расчеты освещения v5.3.1 Mod by vedsereg
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +298,7 @@ Reface v3.54.0 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +324,7 @@ Electrical Calculations Pro / Электрические расчеты v9.0.5-h
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +350,7 @@ NYMF: Галерея женской красоты Давида Дубницко
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +377,7 @@ STEEZY Studio - Learn To Dance v4.6.4 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +403,7 @@ Lantern: Лучше, чем VPN v6.8.10 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +430,7 @@ Do It Now: RPG список дел, ежедневник, планировщик
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +508,7 @@ OTT Navigator PREMIUM v1.6.8.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +534,7 @@ Genius Art: Image AI Generator v1.5.3 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +561,7 @@ VK Музыка: песни и подкасты v8.0 b11466 Mod by VK Equals [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +613,7 @@ SUI File Explorer PRO v1.0.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +639,7 @@ Seal 1.11.0-rc.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,7 +665,7 @@ Oxford Dictionary of English v11.7.717 Premium [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,87 +678,6 @@ Oxford Dictionary of English v11.7.717 Premium [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF036677CDA0B506BA86175146A4E634E5AC8FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518919   (150796) от 22.12.2021
-
-Помощник электрика v1.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит в себе несколько подпрограмм и помогает:
-– выбрать сечение проводника (согласно ПУЭ);
-– выбрать подходящий автоматический выключатель (согласно ПУЭ);
-– рассчитать сопротивление заземляющего устройства;(   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 15 июля 2021 г.Разработчик: Andrei AlekseevПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F31844093A31047FEA160548039E15E349A710E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825898   (150737) от 18.10.2025
-
-Конвертер Валют Плюс v3.1.6 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертер Валют Плюс, разработанный создателями Калькулятора Плюс, - это простой конвертер для перевода курсов валют, который сообщит тебе на что расчитывать при обмене денег.Тип издания: ModРелиз состоялся: 17.10.2025Разработчик: Digitalchemy, LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C4220550DCCDEE9ADE68A9780AF39EFDDD4A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825888   (150736) от 18.10.2025
-
-Яндекс.Погода v25.10.10 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150736.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 16.10.2025Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81099464AF92D521F8DC835CE72858303878EE75
 ```
 
 https://mybot314.ru/tekegram_catalog/

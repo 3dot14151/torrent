@@ -1,3 +1,82 @@
+###  Публикация: 1445351   (1033729) от 05.02.2021
+
+Steven Knipping | Applied Houdini Dynamics I (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Applied Houdini ("Houdini на практике") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в себе преимущество использования отточеных в продакшне (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C86F7EDE517F09373EB3DFA4B5EBB12895588866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445190   (1033658) от 05.02.2021
+
+Никита Рожков | Интенсив по цвету (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+О ЧЕМ ИНТЕНСИВ
+За 2 дня интенсива мы успеем изучить так необходимые художнику - цвет, тон, свет и многое другое! Не важно, рисуете вы в традиционными материалами или на планшете, принципы рисования применимы везде. Демонстрация практики будет в программе Photoshop, что даст дополнительный бонус тем, кто кто хочет рисовать на планшете. Также поговорим об основных (   Читать дальше...   )Производство: Никита РожковЖанр: РисованиеПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD805768F69E6EFA4041BB9180065DDFD0BD2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445363   (1033537) от 06.02.2021
+
+Steven Knipping | Applied Houdini Dynamics IV (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звездные войны: Пробуждение Силы, Мстители: Эра Альтрона, Земля будущего). Эта серия сочетает в (   Читать дальше...   )Производство: CGcircuitЖанр: Создание видеоПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBADDC6D8DC4EEAABAFC9BE101AB1E22281ABBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445354   (1033535) от 06.02.2021
 
 Steven Knipping | Applied Houdini Dynamics II (2016) PCRec [En, Ru]
@@ -6,7 +85,7 @@ Steven Knipping | Applied Houdini Dynamics II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Steven Knipping | Applied Houdini Dynamics III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Steven Knipping | Applied Houdini Rigids II (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +163,7 @@ Steven Knipping | Applied Houdini Dynamics V (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +189,7 @@ Steven Knipping | Applied Houdini Rigids III (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +215,7 @@ Steven Knipping | Applied Houdini Rigids I (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +241,7 @@ Steven Knipping | Applied Houdini Dynamics VI (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +267,7 @@ Steven Knipping | Applied Houdini Rigids IV (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +320,7 @@ WDI Design School | Распродажа всех видеоуроков шко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +348,7 @@ David Lesperance | Environment Sculpting (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +374,7 @@ Daniel Thiger | Substance Fundamentals Tutorial Part 1-5 (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +400,7 @@ Kurt Williams | Creating an Alpha Pack in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +426,7 @@ Vincent Dérozier | Mosaic Creation Techniques with Substance Designer (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +452,7 @@ David Lesperance | Environment Creation Techniques (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +478,7 @@ Daniel Thiger | Creating Roof Tiles in Substance Designer (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +505,7 @@ Pablo Munoz Gomez | Booleans In ZBrush 4R8 (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +559,7 @@ Daniel Danielsson | The Process of Motion (2020) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +588,7 @@ Mehdi Salehi | Houdini Snow System Simulations (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +614,7 @@ Spencer Lueders | Introduction to FX using Houdini (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +640,7 @@ Tyler Bay | Houdini For the New Artist I (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +666,7 @@ Broadcast Design School, Юрий Довганюк | Broadcast Design School + P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -598,90 +677,6 @@ Broadcast Design School, Юрий Довганюк | Broadcast Design School + P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFC1ABD8C9F7CB920918F90B941C3752C527E2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446870   (1032241) от 11.02.2021
-
-Rohan Dalvi | Floating islands of Houdini 1-3 Parts (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Цель этого урока - провести вас через процесс создания изображения "Летающих островов", от моделинга до рендера.
-Курс будет включать такие темы, как моделирование и скульптинг рельефа, а также генерацию огромного количества растений и зелени в Houdini. Растения и деревья будут созданы с помощью L-систем. Также будут затронуты такие темы, как динамика (   Читать дальше...   )Производство: Rohan DalviЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 07:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5574195FC3A759BFFEC05947C778B1F4E6387F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620377   (1032198) от 19.03.2023
-
-Хохлов Сабатовский, Влад Сабатовский | Онлайн-курс по монтажу видео с нуля (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого этот курс?Новичкам в видео: хочешь попробовать на себе работу с монтажом
-Любителям: снимаешь для себя и хочешь научиться монтировать интересные и красивые истории из своих кадров
-Блогерам: хочешь создавать более качественный контент, научиться продумывать эффектные переходы, склейки и визуально выделяться
-Начинающим киноделам: уже монтируешь видео, но хочешь (   Читать дальше...   )Производство: Хохлов СабатовскийЖанр: ВидеосъемкаЯзык озвучки: РусскийПродолжительность: 19:39:57Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2520FF964C9C241C2B2B11230D9CA6495DB13F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446951   (1032177) от 11.02.2021
-
-Максим Ачковский | Визуализация в Lumion (2021) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lumion — движок для быстрой визуализации, совместимый со разным архитектурным софтом: SketchUp, ArchiCAD, Rhinoceros, Revit, Vectorworks.
-На трёхдневном марафоне разберём работу с Lumion с самых азов и объясним, как настроить сцену, чтобы быстро получить рендер.Производство: SoftcultureЖанр: Создание видеоПродолжительность: 06:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F09341C21BD7210D3E98AE0DE8555FFB910B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

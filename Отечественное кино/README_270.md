@@ -1,3 +1,108 @@
+###  Публикация: 1809768   (9663) от 01.08.2025
+
+Мастер и Маргарита (2023) BDRip [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтези, мелодрамаРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юрий Борисов, Алексей Розин, Данил СтекловПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655542A4F06C591FB779A31267B88F234545124C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809769   (9633) от 01.08.2025
+
+Мастер и Маргарита (2023) BDRip [H.264/720p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтези, мелодрамаРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юрий Борисов, Алексей Розин, Данил СтекловПеревод: Не требуется (Русский)Субтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F8E60869F0E64009C2E361BB0C7ED95D984BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 394472   (9608) от 02.08.2025
+
+Честь имею! (4 серии из 4) (2004) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Его зовут капитан Числов. Он воюет на территории Чеченской республики. У него, как и у его товарищей, мало стимулов рисковать жизнью. У него нет денег, нет квартиры, нет семьи… Его предают и там, в бою, и здесь — в мирной, обычной жизни.
+   Об этом ему скажет очень красивая и очень богатая женщина далеко от войны, в прекрасном и безопасном Петербурге. Но у него есть (   Читать дальше...   )Жанр: Драма, ВоенныйРежиссер: Виктор БутурлинАктеры: Александр Лазарев мл., Евгения Крюкова, Андрей Фролов, Наталья Круглова, Владислав Юрчикевич, Роман Золотов, Анжелина Карелина, Сергей Астахов, Артем Алексеев, Александр СаюталинФормат: AVIКачество: DVDRipПродолжительность: 4 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EF31CE23F7B7185E77DE17EA8EFDD844BDDFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357923   (9592) от 02.08.2025
+
+Второе дыхание (2008) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой картины – молодой прожигатель жизни Павел Макаров. Проснувшись после очередной вечеринки, он обнаруживает рядом с собой незнакомую девушку, которая всерьез предлагает жениться на ней, но получает отказ. Дочь местного авторитета, она не привыкла слышать слово «нет». И теперь Макарову грозят серьезные неприятности: ему приходится срочно покинуть родной (   Читать дальше...   )Жанр: Боевик, ВоенныйРежиссер: Михаил ТуманишвилиАктеры: Екатерина Климова, Никита Емшанов, Максим Щеголев, Всеволод Шиловский, Петр Красилов, Денис НикифоровПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8981CE6BB6F9107C3CD5D425B3B062334661519C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187233   (9588) от 02.08.2025
 
 Неслужебное задание (2004) DVD5
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:649ADDAC55040039EE26BC924325121033ACB8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812833   (7501) от 16.08.2025
-
-Черный город (2010) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7501.jpg" />
-</div>
-
-
-###  Подробнее
-
-В жизни 40-летнего следователя городской прокуратуры Олега Борина наступила черная полоса. Все началось с дела, возбужденного против студента, изнасиловавшего девушку. Подозреваемый оказался сыном влиятельного чиновника. Тот воспользовался своими связями, и Борина сначала просто отстранили, а после и вовсе выгнали со службы. Жена ушла, забрав ребенка. Вскоре раздался (   Читать дальше...   )Производство: Россия | «Триикс Медиа»Жанр: КриминалРежиссер: Виктор ТатарскийАктеры: Дмитрий Марьянов, Александр Барановский, Екатерина Новикова, Алексей Федькин, Денис Синявский, Константин Дунаевский, Сергей Гамов, Лариса Луста, Марианна Коробейникова, Александр Стёпин и др.Субтитры: РусскиеПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D386D956473C17FFE763ACA68ACE21CB22F043DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 15866   (7407) от 17.08.2025
-
-Дни затмения (1988) DVDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Стругацкий. Автор повести "За миллиард лет до конца света" (из радиоинтервью):
-"…Любители фантастики Стругацких, как и в случае со "Сталкером" Тарковского, должны будут примириться, что увидят не экранизацию повести, а совершенно самостоятельное кинопроизведение, обладающее самостоятельной ценностью. Надо сказать, что основная идея (   Читать дальше...   )Производство: Ленфильм /СССР/Жанр: "Драма / Мистика / Философская Притча"Режиссер: Александр СокуровВ ролях: Алексей Ананишнов, Эскендер Умаров, Ирина СоколоваФормат: MKVКачество: DVDRipПродолжительность: "01:05:27 + 01:05:48"
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F83E2FEFB2E4DD738BE00D6324F9271AC2253D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813025   (7285) от 17.08.2025
-
-Муж по вызову (2015) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Застав своего мужа с любовницей, 40-летняя Инна выставила неверного супруга за дверь. В это же время к ее соседке Римме, живущей этажом выше, из деревни приехала сестра Алевтина. Она твердо намерена найти себе в городе мужа. Римма подает идею вызвать мужчину из службы «Муж на час» и специально ломает кран у себя на кухне. К счастью, слесарь по имени Андрей приезжает (   Читать дальше...   )Производство: Россия / Компания „Пирамида“Жанр: комедия, мелодрамаРежиссер: Сергей КрутинАктеры: Дмитрий Марьянов, Мария Шукшина, Валерий Николаев, Екатерина Волкова, Александр Наумов, Кристина Бабушкина, Юлия Галкина, Филипп Бледный, Максим ЛитовченкоСубтитры: русскиеПродолжительность: 01:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA21DBD41B54E78199B6E3D66F07FAC10ADC77AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813011   (7274) от 17.08.2025
-
-Убей меня! Ну, пожалуйста (2004) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лера - Олимпийская чемпионка по стрельбе. Когда ее неоправданно дисквалифицировали, обвинив в употреблении допинга, она в одночасье стала никому не нужна. Во время ее блистательной карьеры американские специалисты предложили сделать бесплатную операцию ее тяжело больной маме, а когда случился скандал с дисквалификацией - у Леры потребовали полного расчета. И отчаявшаяся (   Читать дальше...   )Производство: Россия, Украина / Глобал ТВЖанр: мелодрама, комедия, детективРежиссер: Оксана БайракАктеры: Дмитрий Харатьян, Ольга Погодина, Арнис Лицитис, Алексей Кравченко, Олег Масленников, Римма Зюбина, Анатолий Дьяченко, Андрей Саминин, Алла МасленниковаПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7426405227B7A99E8DEC22A8E73FFC8E0C7A6DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

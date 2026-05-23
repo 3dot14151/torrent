@@ -1,3 +1,185 @@
+###  Публикация: 1817613   (3047) от 13.09.2025
+
+Starlink обеспечит связь напрямую со смартфонами даже на парковке
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Илон Маск рассказал о партнерстве Starlink с EchoStar и развитии технологии Direct-to-Cell. Система обеспечит высокоскоростное соединение напрямую с мобильными устройствами, но для этого текущим телефонам потребуется обновление аппаратной части для поддержки новых частот. Это позволит пользователям получать доступ к сети без дополнительных устройств в большинстве (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817530   (2713) от 15.09.2025
+
+Про людей и про войну (2025) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Великая отечественная война. Миллионы советских солдат встали на защиту Родины. У молодых людей впереди были мечты, планы, любовь, счастье и созидание, но вмешалась война. Ушли на фронт парень Иван Вдовин и его отец Фёдор. В это суровое время отец с сыном и сослуживцами стояли насмерть с оружием в руках, и каждый был готов на всё ради победы.Производство: Россия / ООО "Кинокомпания Лимо"Жанр: военный, драма, историяРежиссер: Дмитрий Пасичнюк, Андрей Красавин, Александр КанановичАктеры: Егор Бероев, Антон Богданов, Фёдор Федотов, Тимофей Елецкий, Андрей Кислицин, Сергей Сафронов, Анна Попова, Евгения Глотова, Александр Бобровский, Андрей ПынзаруЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED2F80966DE1509D35229073A279370628E2C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817651   (2712) от 15.09.2025
+
+Дракула / Dracula: A Love Tale (2025) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Принц Влад II, граф Дракула, живет ради любви к жене, принцессе Елизавете. Вернувшись с победоносной войны, которую он вел во имя церкви, принц узнает о смерти Елизаветы. Убитый горем он гневается на бога, который отнял у него самое дорогое, а, узнав, что его возлюбленная может возродиться, он отрекается от всего и обрекает себя на бессмертие. Спустя 400 лет ожидания (   Читать дальше...   )Производство: Франция / Luc Besson Production, EuropaCorp, TF1 Films ProductionЖанр: ужасы, мелодрамаРежиссер: Люк БессонАктеры: Калеб Лэндри Джонс, Зои Блю, Кристоф Вальц, Матильда Де Анджелис, Гийом де Тонкедек, Эвен Абид, Дэвид Шилдс, Бертран Корби, Рафаэль Люче, Ливиу БораПеревод: Дублированный (Dragon Studio неофициальный)Язык озвучки: Русский, АнглийскийСубтитры: Литовские (hardsub)Продолжительность: 02:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BD479D881F36B728AFEB8612407CED99B2A418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700194   (2574) от 16.09.2025
+
+Cyberpunk 2077 (2020) [Ru/En] (2.31/dlc) Repack Other s [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cyberpunk 2077 - ролевой экшен, события которого разворачиваются в футуристическом городе Найт-Сити, расположенном на Западном побережье Соединенных Штатов. Играть предстоит за протагониста по имени Ви (или V). Пол, гендер и внешность героя предстоит задать самостоятельно. В зависимости от выбора класса, различается предыстория персонажа. Всего их три: Кочевник, (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure (Cyberpunk), Action, RPG, 3rd Person, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6E2E411EFF97EBD77B2A093071B2AC5E89CC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 418796   (2572) от 16.09.2025
+
+Подшивка журналов | Знание-сила (1946..2001) [PDF] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Знание-сила» — научно-популярный и научно-художественный журнал, основанный в 1926 году. Публикует материалы о достижениях в различных областях науки — физике, астрономии, космологии, биологии, истории, экономике, философии, психологии, социологии, глобализации.Жанр: Научно-популярный, общеобразовательныйИздательство: Министерство трудовых резервов, "Трудрезервиздат"Формат: PDFКачество: хороший скан, OCR с ошибками (
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECCCF79AECE97D6F297D6BFE20A6BC4652F8604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818278   (2557) от 16.09.2025
+
+NASA представило самые веские доказательства существования жизни на Красной планете
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+NASA за 30 лет исследования представили самые убедительные доказательства того, что на Марсе когда-то была любовь жизнь.Марсоход, работающий в кратере Езеро, наткнулся на необычные узоры на поверхности — учёные окрестили их «леопардовыми пятнами» и «маковыми зёрнами». На Земле такие структуры чаще всего появляются в местах, где когда-то существовали микробы. Анализ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792222   (2424) от 17.09.2025
+
+Tempest Rising (2025) [Ru/Multi] (1.4.0+50185/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Классическая стратегия с современными технологиями и производительностью. Tempest Rising вдохновлена великими стратегиями 90-х и 2000-х годов. Это классическая стратегия в реальном времени со строительством базы. Действие происходит в альтернативном современном мире. В игре представлены 3 уникальные фракции, каждая с собственным подходом к войне и экономике.Тип издания: RepackРазработчик: Slipgate IronworksЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97754EA4913B42968038543791F7834429473C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463830   (2275) от 18.09.2025
 
 Подшивка журналов | «Виктория РА» [56 номеров] (2011-2025) [PDF] [Обновлено 18.09.2025]
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +266,7 @@ Rutube объяснил: пиратский контент на хостинг �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +293,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +371,7 @@ Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +424,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gol
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +502,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +528,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Let'sР
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +554,7 @@ Internet Download Manager 6.42 Build 47 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +580,7 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +633,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) License GOG [The Mercenaries Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,165 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496080   (447) от 28.09.2025
-
-Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasablanca - Hold Me Close (Vintage Culture Remix)
-02. Jamie Lidell - Believe In Me (Super Flu Re.Dings)
-03. Biscits & MITA (BR) - Tribalism (Mason Remix)
-04. RÜFÜS DU SOL - Alive (Solomun Remix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 69:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505925   (441) от 28.09.2025
-
-MultiBoot 2k10 7.40 Unofficial [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультизагрузочный диск системного администратора, базируется на загрузчиках BOOTMGR (Windows 8.1), Isolinux/Syslinux v.4.06 и Grub4Dos v.0.4.6а. Диск состоит из большого количества продуктов, обьединённых оболочкой, с возмoжностью загрузки c CD/DVD, USB Flash Drive, USB-HDD и обычного HDD. Основное предназначение - подготовка HDD, установка ОС (с вoзможностью установки (   Читать дальше...   )Разработчик: conty9 / korsak7 / Viktor KiselЯзык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF53ACA5774DEADBEE20445B78B979398E7562F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548203   (440) от 28.09.2025
-
-Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Repack R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игрок вновь выступит в роли незабываемого Агента 47, вернувшегося к своей кровавой работе. Его коллеги по смертельному бизнесу погибают один за другим, вскоре Хитман понимает, что сам оказался под прицелом. «Hitman. Кровавые деньги» взяла все лучшее от предыдущих игр о невозмутимом убийце: игра не только обладает потрясающей динамичностью, но и требует от игрока (   Читать дальше...   )Тип издания: RepackРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322CCEBB1B86B45A344A8C148772DACFE0A0D94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694128   (195) от 29.09.2025
-
-Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack R.G. Alkad [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Palworld предлагает находить и использовать приятелей в качестве помощников в огромном и опасном мире. Многопользовательская выживалка обладает элементами крафта, а сами существа, обнаруженные пользователем в процессе, становятся его друзьями-питомцами, что помогают ему на всех этапах прохождения, включая возможность на них перемещаться, сооружать здания, заниматься (   Читать дальше...   )Тип издания: RepackРазработчик: PocketpairЖанр: RPG, 3rd Person, Action, AdventureЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161D2CC93F700A83593B223DC36701E8073302A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818949   (194) от 29.09.2025
-
-Код 3 / Code 3 (2025) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэнди, фельдшер скорой помощи из Лос-Анджелеса, устал от своей работы и хочет немедленно уволиться, но его начальница уговаривает мужчину отработать ещё один день. Последнюю смену Рэнди и его напарник Майк должны провести с проходящей обучение Джессикой, которую им предстоит подготовить к работе вместо Рэнди.Производство: США / Circle of Confusion, Realdream, Concourse MediaЖанр: боевик, комедияРежиссер: Кристофер ЛеонеАктеры: Рэйн Уилсон, Лил Рел Ховери, Эйми Карреро, Роб Риггл, Иветт Николь Браун, Пейдж Кеннеди, Шоло Маридуэнья, Тереза Линн О’Тул, Тереза МакЛафлин, Айеша ХаррисПеревод: Дублированный (Dragon Money Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Forced, SDH)Продолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8B808CC43669A682546382418BA668F77AAFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694586   (193) от 29.09.2025
-
-Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack SE7EN [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Palworld это приключенческая игра, где вы исследуете огромный мир, используя местных существ, называемых Палами, в качестве помощников. Эти существа помогают в различных аспектах игры, таких как строительство, фермерство, производство и исследование подземелий. Вы можете передвигаться на Палах, летая или плавая, и использовать их для добычи ресурсов. В игре вам предстоит (   Читать дальше...   )Тип издания: RepackРазработчик: PocketpairЖанр: Action, RPG, 3rd Person, AdventureЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 ```
 
 https://mybot314.ru/tekegram_catalog/

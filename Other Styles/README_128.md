@@ -1,3 +1,206 @@
+###  Публикация: 726280   (340295) от 24.11.2013
+
+Andre Rieu - Celebrates ABBA (2013) Scene [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquitita
+02. Mamma Mia
+03. Fernando
+04. Money, Money, Money(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BFD056767FF297D24C67BFDCF2B98757DF71B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074024   (340235) от 18.11.2016
+
+James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<So ...
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. A Man and His Beasts (08:32)
+02. Soup and Leaflets (02:20)
+03. Billywig (01:32)
+04. The Demiguise and the Lollipop (00:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A777D9DEA5E06D43073FB50133338102A10DD40D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073951   (340224) от 18.11.2016
+
+Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Shanghaied (03:54)
+02. Burning Desire (Hacker) (01:22)
+03. W4tched (Cinema) (01:07)
+04. Haum Sweet Haum (04:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9740AC1DAA03E8E5DD19FF131F961309C65F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954331   (340095) от 08.11.2015
+
+David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - The Awakening
+02 - The Pale Moonlight
+03 - Into the Darkness
+04 - Dreams Unfolding(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227549CB6DC2135B598EF90FAA033DCC1B68310F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953890   (340094) от 08.11.2015
+
+VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. 'Кармелита'-Н.Басков-03:15
+02. Заставка -02:24
+03. Колыбельная из сериала 'Кармелита' -Ляля Жемчужная-02:27
+04. Полынь-трава в исполнении Юлии Зиминой-03:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41DF59B52031D697D802F79399D2C08ACAD3925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074031   (340083) от 18.11.2016
+
+Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
+02. Marcy Harriell - More (Outtake) (03:17)
+03. Marcy Harriell - More (Reprise - Outtake) (02:39)
+04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C359D66CB3BFB4AE16D9E7FF1D9C8C1DE203E89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074032   (340075) от 18.11.2016
+
+Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
+02. Marcy Harriell - More (Outtake) (03:17)
+03. Marcy Harriell - More (Reprise - Outtake) (02:39)
+04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954328   (339972) от 08.11.2015
 
 Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
@@ -6,7 +209,7 @@ Olivia Jo - Something Real Good (2015) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Kitaro - Daylight, Moonlight (Live In Yakushiji) (2003), DOMO Records, [FLAC|ima
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Sentimental Journey (2007) 5 CD Box Set [MP3|320 кб/с]<Pop,Oldies>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Peder B. Helland - Bright Future (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Wychazel - Arcana (2016) [MP3|320 Kbps] <New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - iRelax Anywhere (2006) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Muzronic Trailer Music - Дискография (2016-2017) 3CD [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [M
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Acoustic Heart: The Passion And Romance Of Acoustic Guitar Masters (1997) [
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ The London Starlight Orchestra - Only Love: 20 Favourite Instrumentals (1988) [F
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +586,7 @@ Hans Zimmer, Jacob Shea, Jasha Klebe - Planet Earth II / Планета Земл
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Room Of Voices - Casbah (2017) [MP3|320 Kbps] <Electronic, World>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +644,7 @@ Kai Rosenkranz - Risen (Game Soundtrack) (2009) [FLAC|Lossless|tracks] <Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Latino Top 30 Latin Hits (2017) [MP3|320 Kbps] <Latin, Salsa>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +702,7 @@ Hans Zimmer - Hans Zimmer - Live In Prague (2017) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,209 +745,6 @@ Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AD9C77FADBEA37B38BF1545A1FFEADE8BD425B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074759   (335843) от 20.11.2016
-
-Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars (Theme) (01:43)
-02. Mars (04:01)
-03. Daedalus (03:01)
-04. Earth (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C617F16956B5B7B7269713668BC7466CA13A1E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419989   (335712) от 30.10.2020
-
-Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Drummer Boy
-02. Lights Of Christmas
-03. The Twelve Days Of Christmas
-04. Shades Of White(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAD3FB7DA8AB5931E43E0074C587BCD17393720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420027   (335616) от 30.10.2020
-
-Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jim Brickman - I'll Be Home For Christmas
-02. Winter Wonderland
-03. O Tannenbaum
-04. Snowflake(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F2DD76FA5FE2420CA2B1BBF439F1F07DCA5519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074258   (335562) от 20.11.2016
-
-Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing's Gonna Hurt You Baby
-02. I'm a Firefighter
-03. Dreaming of You
-04. Starry EyesЖанр: Dream Pop, Indie Pop, AmbientПродолжительность: 00:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181324   (335072) от 06.11.2017
-
-VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Byers - INTRO - Will Singing the Clash (00:27)
-02. The Police - Every Breath You Take (04:12)
-03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
-04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C026A8852CE0BFD1AE20CB03036996162C0CE864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181081   (335067) от 06.11.2017
-
-Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Spirits 03:30
-02. Dusk 04:19
-03. Wolf's Heart 03:25
-04. Indian Fire 03:28(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E319F6CAFD913AA2189951FF43B43A7B43025C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331076   (334984) от 13.10.2019
-
-Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Dawn (2:35)
-2.Pianissimo (3:26)
-3.Alpine Meadow (3:20)
-4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
 ```
 
 https://mybot314.ru/tekegram_catalog/

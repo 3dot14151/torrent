@@ -1,3 +1,189 @@
+###  Публикация: 1207228   (780683) от 17.02.2018
+
+Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/Multi] (1.2.1/dlc) Repack R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая часть серии стелс-экшенов о Братстве ассасинов, которая расскажет предысторию возникновения этой тайной организации. События игры разворачиваются в Древнем Египте. Главный герой — Байек, бывший член элитной охраны, в чьи обязанности входила защита дворцов и гробниц в период эллинистического Египта.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, RPG (Open World), 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930B29DABEA5823AD0A77119C8B5CA8B960C1237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184672   (780621) от 15.05.2010
+
+H2O: Просто добавь воды / H2O: Just Add Water (полный 3 Сезон) (2009) SATRip [EN]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эмма вынуждена уехать из города, так как ее семья переезжает.
+Клио и Рикки опечалены, но они думают,
+что секретов больше не осталось, их тайна так и останется их секретом.
+Однако девушкам на острове Мако неожиданно начинает противостоять новая сила.(   Читать дальше...   )Жанр: Фантастика, Приключения, СемейныйРежиссер: Джонатан ШиффАктеры: Кариба Хейн, Фиби Тонкин, Индиана Еванс, Люк Мишель, Энгус МакЛарен, Берджес ЭбернетиПеревод: ОригинальныйЯзык субтитров: РусскиеПродолжительность: ≈00:24:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190533   (780440) от 18.02.2018
+
+Гранд тур / The Grand Tour (2017-2018) WEBRip [H.264/1080p-LQ] (Сезон 2, Серия 1-11 из 11) AlexFilm [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Гранд Тур — это новое автомобильное шоу во главе с неизменной тройкой легендарных ведущих — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Распрощавшись с Top Gear, они создали новое детище в области автомобильных развлекательных шоу.Производство: США, W. Chump & sons, Amazon StudiosЖанр: Ток-шоу, комедия, автомобилиПеревод: Константин КривоноговОзвучка: AlexFilmСубтитры: Русские, английскиеПродолжительность: ~ 01:10:04 (одна серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEBCD41F180CBEF3F9C0154079028AA2F8E2522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206803   (780353) от 19.02.2018
+
+Майнеры мешают астрономам искать инопланетян
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ищущие инопланетян учёные пожаловались на серьезный дефицит видеокарт из-за майнеров криптовалют
+Исследовательский центр "Поиск внеземного разума" при Калифорнийском университете жалуется на майнеров. Они раскупили всё необходимое для учёных оборудование.Сейчас команде исследователей необходимы графические чипы для обработки данных с телескопов. Всего для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207615   (780335) от 19.02.2018
+
+Win 10 Tweaker 5.6 Portable by XpucT [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются на (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75E111077B7F452D5C9F152B0916EB0578C621E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207294   (780316) от 19.02.2018
+
+Adobe Photoshop CC 2018 19.1.1 (x64) RePack by JFK2005 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C554A7169A172D7FB90DC5D5CB9CDF239115120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208007   (780160) от 20.02.2018
+
+MAGIX Vegas Pro 15.0 Build 311 RePack by KpoJIuK  [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315EB7D3E47D7B3F680977ECE650DF8035D67463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207897   (780139) от 20.02.2018
 
 Скиф (2017) WEB-DLRip
@@ -6,7 +192,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +218,7 @@ Red Giant Magic Bullet Suite 13.0.6 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +244,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) Repack Other s [Deluxe Edition
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_780033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_779710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +400,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& portable) by 7sh3 (20.02.2018) [Multi/R
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +452,7 @@ Windows 8.1 (x86/x64) 10in1 +/- Office 2016 SmokieBlahBlah 23.02.18 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +532,7 @@ Win 10 Tweaker 7.0 Portable by XpucT [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -450,7 +636,7 @@ Nokia воскресила телефон из "Матрицы"
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -476,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -489,189 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98BC246B259B78307AC9728B288C5B3EE635E45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209845   (778922) от 01.03.2018
-
-МОК восстановил членство Олимпийского комитета России
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный олимпийский комитет (МОК) восстановил членство Олимпийского комитета России в организации, которое было приостановлено 5 декабря прошлого года за два месяца до старта зимней Олимпиады в Пхенчхане, сообщили РИА Новости несколько источников, не связанных друг с другом.Исполком МОК 5 декабря принял решение временно отстранить ОКР. Российские атлеты были (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210120   (778912) от 01.03.2018
-
-Ежегодное послание Президента России Владимира Путина Федеральному Собранию (01.03.2018) HDTV [H.264/1080i-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин обратился с Посланием к Федеральному Собранию. Церемония оглашения состоялась в Москве, в Центральном выставочном зале «Манеж».
-На оглашении Послания присутствовали члены Совета Федерации, депутаты Государственной Думы, члены Правительства, руководители Конституционного и Верховного судов, губернаторский корпус, председатели законодательных собраний (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: Документальный, ПолитикаПродолжительность: 01:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAA4DF9B5786D7963D0FD51F3A3C89FC221073A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210244   (778743) от 02.03.2018
-
-Проекты - VideoHive - Diamonds Gold & Silver Logo - 20741130 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diamonds Gold & Silver Logo - еще один красивый, полностью настраиваемый реалистичный проект для вашего логотипа. Прост в использовании. В проект включены 2 композиции – Gold и Silver версии. Видео урок включен.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C078ADA32D1348C9EDB4F00056C9FB774D4681BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210154   (778741) от 02.03.2018
-
-CyberGhost VPN 6.5.0.3180 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778741.jpg" />
-</div>
-
-
-###  Подробнее
-
-CyberGhost VPN позволяет просматривать веб-страницы обычным способом, но скрывая ваш реальный IP-адрес, так как весь трафик проходит через выделенные сервера онлайн-сервиса CyberGhost, расположенные в Европе и США. Интернет не является анонимным пространством. Каждый раз при создании нового соединения вы получаете уникальный IP-адрес у провайдера, который четко идентифицирует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009E7879F8AA36798ECB89AB615195BD26BD4A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207806   (778739) от 02.03.2018
-
-Кровавая барыня (2017) SATRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778739.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVIII век. Российская империя. Начало царствования Екатерины II.Рассказ о судьбе печально известной русской помещицы Дарьи Салтыковой, прозванной в народе «Салтычихой».«Салтычиха» вошла в историю как одна из самых жестоких убийц.Производство: Россия / киностудия "Маркес" / кинокомпания "Русское"Жанр: историяРежиссер: Егор АнашкинАктеры: Юлия Снигирь, Марта Тимофеева, Федор Лавров, Сергей Шеховцов, Александр Никольский, Николай Лунин, Марина Дианова, Александр Соколовский, Сергей Шаталов, Мария Дубина и др.Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED25E56D7697B180A2320B9F38C34FAE1778F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158210   (778733) от 02.03.2018
-
-DiRT 4 (2017) [Multi] (1.8/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778733.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiRT 4 игроков ожидает новый революционный режим Your Stage, в котором вы сможете создать бесконечное количество уникальных трасс, нажатием одной кнопки - достаточно выбрать локации и характеристики маршрута, и игровой движок сделает все за вас - создаст уникальный уровень по вашим параметрам.Тип издания: RepackРазработчик: CodemastersЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C76E87EFA3C96B31951499ABDCDC4D6588D5910A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210421   (778576) от 03.03.2018
-
-WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.03.02 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C2C9846397F9AEC347E896736E309F9195DB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

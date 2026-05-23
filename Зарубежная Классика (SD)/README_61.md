@@ -1,3 +1,109 @@
+###  Публикация: 1039800   (585336) от 06.08.2016
+
+Против всех врагов / Against All Flags (1952) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный британский офицер получает задание проникнуть в крепость пиратов на Мадагаскаре. Просочившись в крепость с помощью хитрости и выполнив свою миссию, он вдобавок ещё успевает отбить красавицу Морин у главаря пиратов!Производство: США / Universal International Pictures (UI or U-I)Жанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Джордж ШерманАктеры: Эррол Флинн, Морин О’Хара, Энтони Куинн, Элис Келли, Милдред Нэтвик, Роберт Уоррик, Гарри Кординг, Джон Алдерсон, Фил Талли, Лестер МэтьюзПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8306C452FA8E703DA560E3707085964FB763C80C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039920   (585190) от 06.08.2016
+
+Манон с источника / Manon des sources (1986) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть экранизации романа Марселя Паньоля "Вода с холмов". Сюжет фильма «Жан де Флоретт» продолжается спустя примерно 15 лет.
+Манон было 8 лет, когда её отец-горбун умер, так и не найдя воду на своей земле. Ферму по дешевке прибирает семья Субейранов, когда-то специально засыпавшая источник.
+Восемнадцатилетняя красавица-пастушка Манон, уединенно живущая (   Читать дальше...   )Производство: Швейцария, Италия, Франция / DD Productions, Films A2, Radiotelevisione Italiana (RAI), Renn ProductionsЖанр: ДрамаРежиссер: Клод БерриАктеры: Ив Монтан, Даниель Отой, Эммануэль Беар, Ипполит Жирардо, Маргарита Лосано, Ивонн Гами, Тикки Ольгадо, Жан Бушо, Элизабет Депардье, Габриэль БакьеПеревод: Профессиональный многоголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530F3CF67EB9D4CA1E5014AFAE5CDAB5645DECA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917340   (584832) от 17.07.2015
+
+Человек из Кентукки / The Kentuckian (1955) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+20-е года 19 века. Большой Эли Уэйкфилд и его сын Маленький Эли — закаленные искатели приключений. Для осуществления своей давней мечты — поселиться на границе Техаса, они отправляются в путешествие. Путь оказывается не прост, но сложнее всего бороться не с дикой природой, а с опасными людьми.Производство: США / Hecht-Lancaster Productions, James Productions Inc., United ArtistsЖанр: Драма, ВестернРежиссер: Берт ЛанкастерАктеры: Берт Ланкастер, Дайян Фостер, Диана Линн, Джон МакИнтайр, Уна Меркел, Джон Кэрредин, Джон Лител, Риз Уильямс, Эдвард Норрис, Уолтер МэттауПеревод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE70B36A9824FDEE5F24714FD951D65A8ACEBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552930   (584753) от 23.05.2022
+
+Дверь с семью ключами / The Door with Seven Locks (Chamber of Horrors) (1940) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эксцентричный миллионер умирает и оставляет все свое состояние юному сыну. Оно находится в его гробнице за дверью с семью ключами. Ключи находятся у адвоката умершего, лорда Хавлока. И если что-либо случится с сыном, то все унаследует очаровательная племянница миллионера Джун. Десять лет спустя Джун вызывает умирающий адвокат и отдает один из ключей от гробницы. (   Читать дальше...   )Производство: Великобритания, John Argyle ProductionsЖанр: Ужасы, драма, детективРежиссер: Норман ЛиАктеры: Лесли Бэнкс, Лилли Пальмер, Romilly Lunge, Джина Мало, Ричард Бёрд, Дэвид Хорн, Дж.Х. Робертс, Кэтлин Несбит, Гарри Хатчинсон, Филип РэйПеревод: Авторский (Андрей Дольский)Субтитры: отсутствуютПродолжительность: 01:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF8E9760381CA2312E033BDA786FCE1314CFF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358640   (583814) от 04.07.2011
 
 Жаль, что ты каналья / Peccato che sia una canaglia / Too Bad She's Bad (1954) DVDRip
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,112 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478B11A2007C19E7B643D212A5CA60931BF87B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918685   (576781) от 24.07.2015
-
-Поднять Титаник / Raise the Titanic (1980) DVDRip [AVO]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая драма, построенная на том, что могло бы быть, если бы было принято решение поднять затонувший в начале столетия "Титаник". Фильм подробным образом рассказывает о процедуре поднятия корабля из его подводной могилы. Наибольший интерес представляют съемки в открытом море.Производство: США, ВеликобританияЖанр: Боевик, триллер, драма, приключенияРежиссер: Джерри ДжеймсонАктеры: Джейсон Робардс, Ричард Джордан, Дэвид Селби, Энн Арчер, Алек Гиннесс, Бо Брундин, М. Эммет Уолш, Дж.Д. Кэннон, Норман Бартольд, Илья БаскинПеревод: Авторский (Гаврилов)Продолжительность: 01:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C5E343039EB4DF4CB771D2488503704D19E3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797569   (576681) от 24.07.2015
-
-Пан Володыевский / Pan Wolodyjowski (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Ежи Гофман / Jerzy HoffmanАктеры: Тадеуш Ломницкий, Мечислав Павликовский, Барбара Брыльска, Ханка Белицка, Ирена Карель, Магдалена Завадску, Ян Новицки, Даниэль Ольбрыхский, Мариуш Дмоховский, Владислав Ханьча, Тадеуш Шмидт, Бруно Оя, Марек ПерепечкоПеревод: ДублированныйПродолжительность: 02:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A662AD3AD0A1D75F3D87E78E017E3B1CF69DD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916541   (576678) от 24.07.2015
-
-Потоп / Potop (1974) DVDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческая эпопея Генрика Сенкевича, охватывающая события XYII века войны Речи Посполитой со шведами. Сложно складываются отношения главных героев Анджея Кмитица и Оленьки Биллевич. Волею судьбы Кмитиц связан клятвою с отступником Гетманом. Он оказывается в стане врагов и вынужден воевать против своих. Друзья считают его предателем, Оленька отказывается от него, (   Читать дальше...   )Производство: Польша, СССРЖанр: Драма, история, военный, приключенияРежиссер: Ежи ГоффманАктеры: Даниэль Ольбрыхский, Малгожата Браунек, Тадеуш Ломницкий, Казимеж Вихняж, Владислав Ханьча, Лешек Телешиньский, Рышард Филипский, Веслава Мазуркевич, Франчишек Печка, Леслав ЯницкийПеревод: ДублированныйПродолжительность: 2 х ~ 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F6B0DA702781B9E4B3CA2456C1E373A0B4DC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526621   (576201) от 26.07.2012
-
-Эммануэль / Emmanuelle (1974) ВDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый фильм о жрице любви Эммануэль. Сюжет служит канвой для описания сексуальных похождений героини в Юго-Восточной Азии.
-
-Муж Эммануэль, работающий в посольстве, поощряет в ней стремление к раскрепощенности в сексе, благо весь дипломатический корпус, особенно женщины, изнывают от скуки. За её воспитание берется уже пожилой специалист. Эммануэль делает большие успехи в искусстве любви.Жанр: Драма, ЭротикаРежиссер: Жюст ЖэкинАктеры: Ален Кюни, Сильвия Кристель, Марика Грин, Даниэль Сарки, Жанна Коллетен, Кристин Буассон, Саманта, Габриэль Бриан,ГрегориПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: ОтсутствуютПродолжительность: 01:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBCCF2C253373BD083CE3FCB406C65C0767FF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

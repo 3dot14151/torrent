@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1872122   (1070175) от 
+
+Соперники / Rivals (2026) WEBRip (сезон 2, серии 1-3 из 12) ViruseProject [AD] (Обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон «Соперников» продолжает роскошную драму 1980‑х годов, основанную на бестселлерах леди Джилли Купер. В центре сюжета — непримиримое противостояние элиты британского общества и борьба за власть в телевизионной индустрии.
+После драматичного финала первого сезона лорд Тони Бэддингем (Дэвид Теннант) остаётся жив и полон решимости отомстить врагам. Руперт (   Читать дальше...   )Производство: США, Великобритания / Happy Prince, ITV Studios, The Bottle Yard StudiosЖанр: драмаРежиссер: Эллиот Хегарти, Александра Бродский, Dee Koppang O'Leary и др.Актеры: Дэвид Теннант, Алекс Хэсселл, Эйдан Тёрнер, Виктория Смёрфит, Белла Маклин, Эмили Атак, Хьюберт Бертон, Энтони Бирн, Майло Каллахэн, Оливер Крис и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:55:00 серияРеклама: Присутствует 1 раз небольшая плашка и аудио (белая).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92C76387E7FF0647C3F79EAC2E939FE7413A9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1872121   (1070165) от 
+
+Соперники / Rivals (2026) WEBRip [H.264/1080p] (сезон 2, серии 1-3 из 12) ViruseProject [AD] (Обновляемая)
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Второй сезон «Соперников» продолжает роскошную драму 1980‑х годов, основанную на бестселлерах леди Джилли Купер. В центре сюжета — непримиримое противостояние элиты британского общества и борьба за власть в телевизионной индустрии.
+После драматичного финала первого сезона лорд Тони Бэддингем (Дэвид Теннант) остаётся жив и полон решимости отомстить врагам. Руперт (   Читать дальше...   )Производство: США, Великобритания / Happy Prince, ITV Studios, The Bottle Yard StudiosЖанр: драмаРежиссер: Эллиот Хегарти, Александра Бродский, Dee Koppang O'Leary и др.Актеры: Дэвид Теннант, Алекс Хэсселл, Эйдан Тёрнер, Виктория Смёрфит, Белла Маклин, Эмили Атак, Хьюберт Бертон, Энтони Бирн, Майло Каллахэн, Оливер Крис и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: ~00:55:00 серияРеклама: Присутствует 1 раз небольшая плашка и аудио (белая).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3472CD48E4F3ABE33FF0FE96E161EA566BECA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869163   (1067782) от 04.05.2026
 
 Падение и взлёт Реджи Динкинса / The Fall and Rise of Reggie Dinkins (2026) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2E886283E86446B746D6FA235345BE16E386BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436477   (1042457) от 03.01.2021
-
-Леденящие душу приключения Сабрины / Chilling Adventures of Sabrina (2020) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-8 из 8) LakeFilms [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьма Сабрина пытается найти истинную себя между натурами смертной и ведьмы, при этом ей придётся противостоять злым силам, которые угрожают ей, её семье и всему миру людейПроизводство: США, Warner Bros. TelevisionЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роб Шейденгланц, Алекс Пиллаи, Крэйг Уилльям МакнейллАктеры: Кирнан Шипка, Росс Линч, Люси Дэвис, Чэнс Пердомо, Мишель Гомес, Джаз Синклер, Тати Габриэль, Аделин Рудольф, Ричард Койл, Миранда ОттоПеревод: Двуголосый любительский (LakeFilms)Субтитры: отсутствуютПродолжительность: ~01:00:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABA2726AA39A4C609D15EC4098CBF3B107EDD41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436499   (1042244) от 04.01.2021
-
-Леденящие душу приключения Сабрины / Chilling Adventures of Sabrina (2020) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-8 из 8) Gears Media [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьма Сабрина пытается найти истинную себя между натурами смертной и ведьмы, при этом ей придётся противостоять злым силам, которые угрожают ей, её семье и всему миру людей.Производство: США / Archie Comics Publications, Warner Bros. TelevisionЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роб Шейденгланц, Алекс Пиллаи, Крэйг Уилльям МакнейллАктеры: Кирнан Шипка, Росс Линч, Люси Дэвис, Чэнс Пердомо, Мишель Гомес, Джаз Синклер, Тати Габриэль, Аделин Рудольф, Ричард Койл, Миранда ОттоПеревод: Двуголосый профессиональный (Gears Media)Продолжительность: ~01:00:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E326E1F691E4FB77393D5E042DD0219ED25BEAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 989252   (916439) от 22.02.2016
+
+Снежная битва / La guerre des tuques 3D (2015) BDRemux [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Чтобы развлечься во время зимних каникул,
+детвора из маленькой деревни решает устроить грандиозное снежное побоище между двумя командами.Производство: Канада / CarpeDiem Film & TVЖанр: Приключения, КомедияРежиссер: Жан-Франсуа Пуле, Франсуа БриссонПерсонажи: Анджела Галуппо, Марилуп Вульф, Люсинда Дэвис, Николас Савард-Хербер, Софи Кадьо, Энн Касабонн, Хелен Буржуа Леклерк, Росс Линч, Катрин Трюдо, Жильдор РуаПеревод: ДублированныйПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E98650B0521DB599A78C83A28CC57DD23DBBA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865087   (916386) от 31.01.2015
+
+Лига Справедливости: Трон Атлантиды / Justice League: Throne of Atlantis (2015) WEB-DL [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+О противостояние Аквамена и его брата Орма Повелителя Океана, который объявил войну жителям поверхности Земли после смерти короля Атлантиды во время инопланетного вторжения. События «Трона Антлантиды» будут разворачиваться вокруг молодого Артура Карри, который узнает о своем происхождении. Теперь он вынужден объединится с Лигой Справедливости, чтобы остановить Орма. (   Читать дальше...   )Производство: США |  Warner Bros. Animation, DC ComicsЖанр: мультфильм, боевикРежиссер: Джей Олива, Этан СполдингПеревод: Любительский, многоголосый закадровый – GREEN TEAЯзык субтитров: АнглийскийПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E315AEF2A77CD13C7FC3D74A5D2ACC9F1324614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989490   (916346) от 22.02.2016
+
+Космос: Территория смерти / Dead Space: Downfall (2008) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бороздящий космические просторы горно-исследовательский корабль «Ишимура» натыкается на загадочную чужеродную Метку, обозначающую особую зону. Команда амбициозного экипажа уверена, что они обнаружили подтверждение существования наших создателей. Но… исследование и смещение Метки высвобождает НЕЧТО, относящееся к инопланетному виду, которое долгое время было погребено (   Читать дальше...   )Производство: США / Electronic Arts (EA), Film Roman ProductionsЖанр: Ужасы, Фантастика, ТриллерПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D451D452AC68CD205BD33FD7FF89035FDB83671C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 756691   (915381) от 17.02.2014
 
 Эпик / Epic (2013) BDRip [H.264/1080p-LQ]
@@ -6,7 +85,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,84 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2028EEBDE1CD79CB952A94777FEB441420BFDBA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098368   (909676) от 29.01.2017
-
-Темная Лига справедливости / Justice League Dark (2017) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главой группы сверхъестественных героев выступает Джон Константин, в команду которого входят - Болотная тварь, Затанна, Мертвец, Демон и Черная орхидея. Все они объединяются в Темную Лигу Справедливости, чтобы взять на себя оккультные и сверхъестественные угрозы, против которых Лига Справедливости может оказаться бессильной.Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, Фентези, ПриключенияРежиссер: Джей ОливаПерсонажи: Джон Константин, Бэтмен, Болотная тварь, Затанна, Мертвец, Демон, Черная орхидея.Перевод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: РГ "Black Show"Язык субтитров: Русский, АнглийскийПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7863BBB278DF93813A006BF69B9586771DA080E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866372   (909557) от 04.02.2015
-
-Семейка монстров / The Boxtrolls (2014) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда…Производство: USA / Laika EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Бен Кингсли, Джаред Харрис, Ник Фрост, Ричард Айоади, Трэйси Морган, Ди Брэдли Бейкер, Стивен Блум, Ника Футтерман, Пэт Фрэли, Фред ТатаскьорПеревод: профессиональный (полное дублирование)Язык субтитров: русские (полные, форсированные), украинские (полные, форсированные), английские (полные)Продолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363B7DF73898AA567AD61D5C6A5D7AABDB569DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866396   (909539) от 04.02.2015
-
-Семейка монстров / The Boxtrolls (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда…Производство: USA / Laika EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Бен Кингсли, Джаред Харрис, Ник Фрост, Ричард Айоади, Трэйси Морган, Ди Брэдли Бейкер, Стивен Блум, Ника Футтерман, Пэт Фрэли, Фред ТатаскьорПеревод: профессиональный (полное дублирование)Язык субтитров: русские (полные, форсированные), украинские (полные, форсированные), английские (полные)Продолжительность: 01:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20030C48DE9F9E06F6CBC129DA99B693BC1FEE5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

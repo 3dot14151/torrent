@@ -1,4 +1,115 @@
 https://t.me/izofen
+###  Публикация: 1871654   (1070039) от 
+
+Jin Young - EverLove (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пак Джин Ён - южнокорейский актер, певец, танцор. Участник группы "GOT7". Получил степень бакалавра в области актерского мастерства в Университете Хоуона. Дебютировал в актерском мастерстве, когда он появился в небольшой роли в «Dream High 2» в январе 2012 года. Так же снимался  в: 100 дней лжи (tvN / 2026), Клетки Юми Сезон 1-3 (2021/2022/2026), Все еще (   Читать дальше...   )Производство: Южная КореяЖанр: KpopПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41914D2B6A66CC191A213581838383EAA918E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870944   (1069492) от 
+
+woo!ah! - WXW (Wish With W) (2026) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Южнокорейская группа состоящая из пяти участниц. Группа дебютировала 13 мая 2020 года. Изначально группа состояла из шести участниц, но Сонъи покинула её 14 августа 2021 года. Первый полноценный релиз группы после 2х летнего молчания.Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA7994DA309F5BCDC5C6CEB09BF903FAEA5446D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870652   (1069367) от 
+
+Daita (Daitah Itoh) - EUPHONY (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Японский рок гитарист Daita (Daitah Itoh) родился в районе Токио в 1971 году.
+DVD диск Euphony издан в 2003 году и состоит из музыкальных произведений автора. Манера игры - один из столпов японского гитарного рока чем-то напоминает Joe Satriani времен Flying In A Blue Dream, но вот окружение… В нем слышно и электронную музыку, и металл, и даже классическую музыку, (   Читать дальше...   )1. Breath of the Sea
+2. Earth Beat
+3. Suna no Shiro
+4. Zenith(   Читать дальше...   )Производство: ЯпонияЖанр: RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0A0564FD19642B857DB91C82A730AE7F9F0282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870444   (1068910) от 
+
+YouTube канал "NoMadU55555" - Музыкальные клипы (1936-2009) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Оффлайн-копия коллекции YouTube канала "NoMadU55555" / UCWO9OCjghM_d8Q5MDKNK7oQ по состоянию на сентябрь 2020 года.
+
+Канал "NoMadU55555" был открыт в 2011 году, удалён 11 октября 2021 года.
+За 10 лет было опубликовано более 380 музыкальных видеоклипов, большую часть из которых удалось сохранить для данной раздачи.Жанр: музыка, концерт, искусство, история, телепередачаПродолжительность: 21:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7C52275029D3AFB96C832A4A21C6B567C6F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869492   (1068211) от 06.05.2026
 
 Rose - On The Ground (2021) WEBRip [H.265/2160p] [60fps] [Remaster]
@@ -7,7 +118,7 @@ Rose - On The Ground (2021) WEBRip [H.265/2160p] [60fps] [Remaster]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +145,7 @@ Lisa - Dream (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +173,7 @@ MinSeo (woo!ah!) - Endlessly You (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +202,7 @@ Kanye West - Седая ночь (2026) WEBRip [H264/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +228,7 @@ Yena - Catch Catch (2026) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -145,7 +256,7 @@ Hwasa - So Cute (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -172,7 +283,7 @@ Kanye West - Белые розы (2026) WEBRip [H264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -198,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -224,7 +335,7 @@ Laibach - Musick (feat. Wiyaala) (2026) WEBRip [AV1/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +387,7 @@ Baby DONT Cry - Bittersweet (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +414,7 @@ Odd Youth - Babyface (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +441,7 @@ Narin - No Savior (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +468,7 @@ DJ Slon & Ангел-А (2007-2019) WEBRip [H.264/480p, 720p] (5 Клипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -386,7 +497,7 @@ MTV 80s Video Hits Collection (2026) SATRip [ex VH1] (parts 1-4)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -414,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -443,7 +554,7 @@ Crematory - Born (2026) WEBRip [H.265/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -469,7 +580,7 @@ Baby DONT Cry - Shapeshifter (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -495,7 +606,7 @@ Madein - Pung! (2026) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -521,7 +632,7 @@ RESCENE - BamBamBam (The First Night With The Duke OST) (2025) WEBRip [H.265/216
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -547,7 +658,7 @@ NiziU - Emotion (2025) WEBRip [H.265/2160p] [60fps]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -573,7 +684,7 @@ First Love (CSR) - Сборник клипов (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -585,113 +696,6 @@ CSR (첫사랑), Первая Любовь (First Love) — женская гр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F9246A9FFF22D9A27A9FFA8B4F7D3BD54D5B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854088   (1060458) от 11.03.2026
-
-ILLIT - Сборник клипов (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060458.jpg" />
-</div>
-
-
-###  Подробнее
-
-ILLIT — женская группа состоящая из 5 участниц. В 2023 году по средствам телевизионного шоу «RU Next?» (на ютьюбе есть выпуски) выходившее с 30 июня по 1 сентября 2023года был сформирован состав группы. 22 участницы соревновались за право дебютировать в составе женской группы под эгидой Belift Lab. В финальном эпизоде ​​был объявлен состав из 6 участниц (   Читать дальше...   )01 Aim High (2024)
-02 Magnetic (2024)
-03 ILLIT - Lucky Girl Syndrome (2024)
-04 ILLIT - Lucky Girl Syndrome [60fps] (2024)(   Читать дальше...   )Производство: Южная КореяЖанр: KpopПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0640AE49E42B41C7DE97D5A1C47F231373639231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858452   (1060441) от 11.03.2026
-
-Girls' Generation - FOREVER 1 (2022) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32405E89C36F7E11B201F7746057CD5F2D4028B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855437   (1058361) от 25.02.2026
-
-Горькие усы-БЕЗФИЛЬТРОВ (2025) WEBRip  [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058361.jpg" />
-</div>
-
-
-###  Подробнее
-
-#БЕЗФИЛЬТРОВ –  это дневник прошлого, ставшего настоящим. Это аудиоспектакль-путешествие в сегодняшнее завтра недействительной действительности, где главный герой Айзек проживает свою личную трагедию в контексте всеобщего разрушения. Каждый переломный момент его пути — это отдельная песня. Его история — это поиск правды и справедливости в бесконечных лабиринтах неравенства (   Читать дальше...   )Жанр: аудиоспектакльПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94AD3AA5582559C3C99417874B112328E5BEE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844167   (1049897) от 24.12.2025
-
-Baby DONT Cry - I DONT Care (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Южная КореяЖанр: KpopПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A34154F371D573146A3C00D396EB7183CD2B18
 ```
 
 https://mybot314.ru/tekegram_catalog/

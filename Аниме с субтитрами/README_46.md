@@ -1,3 +1,107 @@
+###  Публикация: 1397412   (740301) от 20.07.2020
+
+Kimetsu no Yaiba | Demon Slayer | Истребитель демонов [2019, TV, 26 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С незапамятных времён земля японская полнится слухами о демонах-людоедах, что скрываются в лесной чаще. В страхе перед ними обычные селяне предпочитают не покидать свои жилища после захода солнца. Быть может, именно эти чувства и породили легенду об охотниках на демонов, истребляющих нечисть по ночам. С тех пор, как погиб его отец, Тандзиро в одиночку добывает хлеб (   Читать дальше...   )Производство: студия Ufotable / ユーフォーテーブルЖанр: приключения, фэнтезиРежиссер: Сотодзаки ХаруоПеревод: SovetRomantica; YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044C8138CE82BFE4F9F8337F1E364B159618D08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198643   (739923) от 07.04.2018
+
+Violet Evergarden / Виолетта Эвергарден [2018, TV, 13] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно профессор Орланд, влиятельная фигура в книгопечатной промышленности, изобрел новую печатную машину для своей жены Молли, чтобы она могла писать романы после потери зрения. Машина получила вид небольшой прекрасной куклы. Вложив в него свое сердце и надежды, профессор назвал его «самопишущая кукла». В конце концов, его изобретение стало широко распространено, (   Читать дальше...   )Жанр: приключенияРежиссер: Исидатэ ТайтиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD40238D8417EED236515B9D767D52E4DB1E9669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784249   (739574) от 09.05.2014
+
+Mayoi Neko Overrun! / Stray Cats Overrun! / Нашествие бродячих кошек! [2010, TV, 12+1+6sp] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хрестоматийный школьник-сирота Такуми Цудзуки вместе со сводной старшей сестрой Отомэ живут одни и кое-как управляются с кондитерской «Бродячая кошка». Как и положено, кошек в доме полно, да толку с них мало, а работяге Такуми помогает подруга детства Фумино Сэридзава, очень активная и упрямая особа. Ребята вместе посещают академию Умэномори, где, кроме собственной (   Читать дальше...   )Жанр: комедия, повседневность, романтика, пародия, эттиРежиссер: Итагаки СинПродолжительность: 12+1 серий по 25 мин, и 6 спешлов по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347678C29B19BD0F43A6785672EB467E12B5814A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785106   (739548) от 09.05.2014
+
+Free! / Free! Iwatobi Swim Club / Вольный! [2013, TV, 12 + 3sp] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Харука Нанасэ с детства любил плавать. Только в воде парень чувствовал себя свободным, далеким от ненужных забот. Его страсть, пускай в меньшей степени, разделяли старые друзья Макото и Нагиса, а вот примкнувший к ним Рин Мацуока был другим. Он ценил победу и не понимал, почему Нанасэ, спортивный гений, не хочет «рвать соперников», не считает места и секунды. В начальной (   Читать дальше...   )Жанр: повседневность, спортРежиссер: Уцуми Хироко / Utsumi Hiroko / 内海紘子Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E33829CD25482046C6612109BE5E7C8832937F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397791   (739359) от 22.07.2020
 
 Bubuki Buranki | BBK/BRNK | Бубуки Буранки [2016, TV, 12 из 12] BDRip 1080p raw
@@ -6,7 +110,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки Буранки [2016, TV, 12 из 12] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Courtesy of Zettai Karen Children: The Unlimited - Hyoubu Kyousuke | The Unlimit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Shinreigari | Shinrei Kari | Ghost Hound | Охота на призраков [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +218,7 @@ Kyoukai no Rinne | Rin-ne | Риннэ: Меж двух миров [2015, TV, 75
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +244,7 @@ World Trigger 3rd Season | Импульс мира [ТВ-3] [2021, TV, 14 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Bubuki Buranki: Hoshi no Kyojin | BBK/BRNK: The Gentle Giants of the Galaxy | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Sakurada Reset | Sagrada Reset | Переустановка Сакурады [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +322,7 @@ Seisen Cerberus: Ryuukoku no Fatalite | Святой воин Цербер: Бе
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Maiko-san Chi no Makanai-san | Kiyo in Kyoto: From the Maiko House | Повар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +374,7 @@ World Trigger | Импульс мира [2014, TV, 73 из 73] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Action Heroine Cheer Fruits | Фруктовые героини [2017, TV, 12 и
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +426,7 @@ Ookiku Furikabutte: Natsu no Taikai-hen | Замахнись сильнее: Л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Pants no Ana: Mambo de Ganbo! | Дырявые трусики [1987, OVA, 1 эп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Akikan! / Empty Can / Пустая банка [2009, TV, 12] SDTV 1080p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +507,7 @@ Handa-kun | Ханда [2016, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +533,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | If My Favorite Pop Idol Made It to the Bu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +559,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | З�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted I
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +666,7 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,113 +677,6 @@ Tales of Luminaria: The Fateful Crossroad | Сказания Луминарии:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3CD99C5B06BC6A7F966A3278EC463082ED9C46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510035   (732591) от 06.02.2022
-
-Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный лотос [2021, TV, 13 эп.] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка по имени Эль оказывается в Лос-Анжелесе будущего, она помнит лишь своё имя и адрес дома, но город изменился до неузнаваемости. Единственная зацепка - странное устройство у неё в руках, но и оно не торопится раскрывать свои секреты.
-
-Перед просмотром рекомендуем сперва посмотреть спешел.Производство: Студия Sola Digital ArtsЖанр: приключенияРежиссер: Арамаки СиндзиПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5207610B95F30DD6E98DD4217B992CD66D31E3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529908   (731875) от 08.02.2022
-
-Bakuon!! | Мотоклуб [2016, TV, 12 эп.+2OVA+4SP] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакура Ханэ - самая обычная ученица женской школы. Ей надоело каждый день преодолевать на велосипеде крутые подъёмы, и вот - совершенно случайно! - она знакомится со своей одноклассницей Амано Онса, лихо гоняющей по дорогам на мотоцикле. А в школе обнаруживается старый мотоклуб, которым руководит странная Райму-сэмпай, никогда не снимающая свой шлем. Сакура с энтузиазмом (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: комедия, повседневностьРежиссер: Нисимура ДзюндзиПеревод: Elven_TankmanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 2OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD82972CF384908C5C617DC966792D93C767F6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127244   (731724) от 21.04.2017
-
-Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / Красавица-воин Сейлор Мун Эр Фильм + SP [1993, Movie] BDRip 1080p 10bit HEVC raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Мамору был маленьким, он дал розу маленькому мальчику по имени Фиоре. Фиоре пообещал, что однажды он принесет Мамору много цветов. Теперь Фиоре вернулся на землю, но его намерения состоят не только в том, чтобы выполнить обещание...
-Отреставрированная не стареющая классика аниме.Производство: Студия Toei Animation / 東映アニメーションЖанр: приключения, романтика, махо-сёдзёРежиссер: Икухара КунихикоПеревод: Dr.Bars; iншыЯзык озвучки: Японский и английскийСубтитры: Английские, РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9600F3CADC0D217B6CC1E7C6B2DFD2F16297E9A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666494   (731673) от 09.06.2013
-
-Kazemakase Tsukikage Ran / Carried by the Wind: Tsukikage Ran / Перекати-поле Цукикагэ Ран [2000, TV, 13] DVDRip 527p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два персонажа: пьяница-самурай Цукикагэ Ран и ее взбалмошная подруга Мяу "Кошачья лапка" - ходят по Японии и из серии в серию напарываются на всяческие переделки. В основном переделки заключаются в том, что герои становятся свидетелями грязных делишек разбойников, грабителей, воров, похитителей и прочих подобных деятелей. А уж став свидетелями, обе героини (   Читать дальше...   )Жанр: комедия, самурайский боевикРежиссер: Дайти АкитароСубтитры: •Продолжительность: 13 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3F8C5AF140CE2A3D93D325EB980EEB8C9D445E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,154 @@
+###  Публикация: 563356   (404024) от 22.10.2012
+
+VA - In Da Club Vol.66 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Various - Earth Hour (Club Mix)
+002. Rex Mundi - Interstate Of Lightning (Original)
+003. Susana feat. Julian Vincent - Fall In Deep (Alexander Popov Remix)
+004. Ralphie B - Delphi (Original Mix)
+005. Ridgewalker feat. El - Find (Andy Moor Remix)
+006. Ruben De Ronde - Timide (Andrew Rayel Remix)
+007. Tucandeo - Lockdown (Big Room Mix)
+008. Tritonal & Sibicky - Suzu (Ben Gold Remix)
+009. Wellenrausch - Sanctified (Original Mix)
+010. Tenishia & Ruben de Ronde - Story Of Life (Julian Wess & Mike Carey Dub Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209F9E21F0160512E48D20BF657ED52FEA067703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712430   (403247) от 19.10.2013
+
+Secret Service - 25 Best Songs (2012) [MP3|206 - 282 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Flash In The Night 1982
+02. Will You Му Near Me 1984
+03. Night City 1985
+04. Broken Hearts 1981(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8871DD08B28AD0F01AE96005BE0D4C67773A53D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712398   (403245) от 19.10.2013
+
+Pet Shop Boys - 25 Best Songs (2012) [MP3|227 - 266 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Go West 1993
+02. Love Etc. 2009
+03. Suburbia 1986
+04. It's A Sin 1987(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77374C9C30DA0F8416E37D94A2579B800D126E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712902   (403241) от 19.10.2013
+
+Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mars Meets Venus 2000
+02. All You Need Is Now 2010
+03. Is There Something I Should Know 1981
+04. The Reflex 1983(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BAAC7395CE466B61D5C46B3622A158E258E111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712388   (403231) от 19.10.2013
+
+Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (Single Version) 1985
+02. In The Heat Of The Night (Single Version) 1985
+03. Little Girl 1985
+04. Midnight Man (Single Version) 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 713015   (403204) от 19.10.2013
 
 A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
@@ -6,7 +157,7 @@ A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +186,7 @@ Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +215,7 @@ VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +244,7 @@ VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +273,7 @@ VA - Astro Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +308,7 @@ VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +337,7 @@ Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +366,7 @@ Laid Back - 25 Best Songs (2012) [MP3|204 - 257 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +395,7 @@ VA - Лучшая клубная музыка AndrS vol.29 (2012) [MP3|320 кб/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +430,7 @@ VA - Record Super Chart #505 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +459,7 @@ VA - Hypomania: Original Techno Mix (2017) [MP3|320 Kbps] <Techno, Minimal, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -337,7 +488,7 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +523,7 @@ VA - Mirror Of Illusion: 100 Psychedelic Trance (2017) [MP3|320 Kbps] <Psychedel
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +552,7 @@ VA - Deep House Collection Vol.138 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +581,7 @@ VA - Discofunk Lounge Deluxe (2012) [MP3|320 кб/с]<Disco, Funk, Jazz, Soul, L
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +616,7 @@ VA - Creative Music Box 4 (2012) [MP3|320 кб/с]<Dub Step/Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +651,7 @@ VA - 50 Chill & Nu-Lounge Experience Vol.2: Great Chillout and Deep Lounge Tunes
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +686,7 @@ VA - Tropical Coctail: Chill Area Party (2017) [MP3|320 Kbps] <Chillout, Downtem
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +715,7 @@ VA - Magic House (2017) [MP3|320 Kbps] <House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +744,7 @@ VA - Drum Force Sound (2017) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +773,7 @@ VA - Hits Cocktail Vol.13 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -636,163 +787,6 @@ VA - Hits Cocktail Vol.13 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485681419DC9383502EFAF4D29EF0D40A1E1920F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171746   (394731) от 06.10.2017
-
-DJ Krush - Best of (2017) [Compiled by Firstlast] [MP3|192-320 Kbps] <Trip-Hop; Hip-Hop; Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jugoya [4:31]
-02. Dig This Vibe [4:54]
-03. Roll & Tumble [5:08]
-04. Most Wanted Man [4:01](   Читать дальше...   )Жанр: Electronic; Trip-Hop; Hip-HopПродолжительность: 06:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7FB9EB8878886C4AAF6303D547262116C6CFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171915   (394722) от 06.10.2017
-
-VA - Disco Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Ambient, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skye Dream - Tranquil Living
-02. Dake - With All (Original Mix)
-03. Triangle Sun - Spaceship
-04. Drew feat. Angel Stoxx - Let Go (Deepjack & Mr.Nu Remix)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, HouseПродолжительность: 05:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC02F0D676E078FA3C477F43A41CEDE22BBF1DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568865   (394127) от 01.11.2012
-
-VA - Trance Hits Great 100% (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dart Rayne - Four Steps To Eternity (Alex Larichev Remix) 07:06
- 02. Store N' Forward - Sugar (Original Mix) 06:59
- 03. Emrah Barut - Anatolian Sirens (Original Mix) 06:58
- 04. Andrew Rayel - Coriolis (Original Mix) 07:38
- 05. Skytech - What's Wrong (Skytech Stadium Mix) 06:54
- 06. Bardalimov - Points Of Departure (Original Mix) 06:26
- 07. 2 Players - Signet (Wellenrausch Remix) 08:50
- 08. Armin Van Buuren Feat. Ana Criado - Suddenly Summer (Heatbeat Remix) 07:08
- 09. Will Holland Feat Jeza - Every Heartbeat (Beat Service Remix) 07:00
- 10. Allure Feat. Emma Hewitt - Stay Forever (Park Dassenger Remix) 08:53Жанр: TranceПродолжительность: 02:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E643DD1646002052369F800EFDF9B2F7EDD492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172331   (393921) от 07.10.2017
-
-VA - Record Super Chart #506 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ramin Djawadi - Game Of Thrones (KSHMR & The Golden Army Remix)  4:19
-02.  Martin Garrix - Pizza  4:15
-03.  Twoloud vs. DJ Kuba & Ne!tan - Mirror On The Wall  2:30
-04.  Don Diablo - Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD1045C94F904E0F889078CBA0C225AC5B5C1C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568959   (393238) от 02.11.2012
-
-VA - Believe Motion Love (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Van Dyk Feat Plumb - I Don't Deserve You (Radio Edit) 03:33
- 02. Protoculture - Perpetual Motion (Original Mix) 07:08
- 03. Ralphie B - Face Off (Original Mix) 09:36
- 04. Ronny K Vs Vasaio Ft Jakub Hubner - Im Missing You (Radio Mix) 03:44
- 05. Simon O'shine - Your Distant World (Original Mix) 09:43
- 06. Tenishia - Where Do We Begin (Club Mix) 06:29
- 07. Yigit & Jirihin - Rotundjere (Original Mix) 09:01
- 08. Matt Davey - Believe In Me (Original Mix) 07:34
- 09. Arjan Nilsen - Burana (Original Mix) 06:10
- 10. Susana & Shogun - Only You (Original Mix) 08:10(   Читать дальше...   )Жанр: TranceПродолжительность: 02:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEBC5EB421E534923727C378A1BE7277B2436DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

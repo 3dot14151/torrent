@@ -1,3 +1,186 @@
+###  Публикация: 701972   (472069) от 20.09.2013
+
+Журнал | Women's Health [Россия] №9 (сентябрь 2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Women’s Health – качественное издание о здоровом образе жизни в формате модного глянца. Это живой, веселый и практичный журнал для современных, активных женщин, он не только о здоровом образе жизни и фитнесе, но и о красоте, стиле, сексе и отношениях.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F843569FDACE5A25C522DE3A07D346CE4FFAFB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549460   (462881) от 20.09.2012
+
+Журнал | Стильные прически №№8, 9 [август, сентябрь 2012] [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Стильные прически» — ежемесячный практичный журнал для молодых женщин, следящих за красотой. Самый большой выбор причесок, советы по уходу за волосами, лицом, телом, рекомендации стилистов и косметологов. В каждом номере журнала «Стильные прически» вы найдете лунный календарь и гороскоп красоты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7C5B7315181CCCDE4260D2F69E814215FD52BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703343   (462837) от 24.09.2013
+
+Журнал | Vogue [Россия] №10 (октябрь 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Журнал Vogue поистине легенда в мире моды, ведь он издаётся уже более 120 лет. Журнал печатается в 19 странах мира, его аудитория огромна и он по праву занимает первое место. Меняются эпохи, а Vogue по-прежнему является для женщин путеводителем в мире моды. Лучшие модели, коллекции и тренды всё это можно найти на страницах Vogue.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C56953E5DA4846588A9AFE14EE543283793AEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703853   (460949) от 25.09.2013
+
+Журнал | Allure [Россия] №10 (октябрь 2013) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0826FEB050F3992399D7A260030E7A67EAA08D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415567   (459414) от 21.09.2012
+
+Подшивка журналов | Cosmopolitan Психология (2010-2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Cosmopolitan Психология» – глянцевое издание для молодых женщин о популярной психологии и науке жить счастливо. Это позитивный, энергичный, современный журнал, который заряжает хорошим настроением и показывает на практике, как жить легко и с удовольствием. Это журнал для тех, кто любит задавать вопросы и не боится услышать ответы.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246678   (459251) от 21.09.2012
+
+Подшивка журналов | Стильные прически [2008-2012] [PDF, DJVU]. Обновлено 21.09.2012
+
+>>След.
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Стильные прически» — ежемесячный практичный журнал для молодых женщин, следящих за красотой. Самый большой выбор причесок, советы по уходу за волосами, лицом, телом, рекомендации стилистов и косметологов.
+В каждом номере журнала «Стильные прически» вы найдете лунный календарь и гороскоп красоты.Формат: PDF, DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550453   (457961) от 22.09.2012
+
+Журнал | Allure [Россия] №2 (октябрь 2012) [PDF]
+
+>>Журналы
+>>Женские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основные темы журнала: мода, красота, украшения, здоровье, диеты, интервью с известными женщинами, гороскоп.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E006E4459F37930AA5FCBECBA6232D1355B1A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 704438   (456212) от 27.09.2013
 
 Подшивка журналов | Здоровье [Украина] №9,10 (сентябрь, октябрь 2013) [PDF]
@@ -6,7 +189,7 @@
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Женские журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,188 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D0FB8436FC177681044D78E8DF1BAB06031A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711746   (409506) от 17.10.2013
-
-Журнал | Cosmopolitan [Россия] №11 (224) (ноябрь 2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmopolitan – женский глянцевый журнал №1 в мире. Сегодня невозможно встретить девушку, которая бы ни разу не читала или хотя бы не держала в руках номер Cosmo, поэтому в рекламе издание не нуждается. Сегодня Cosmo - больше чем просто журнал, он стал стилем жизни. "Девушка в стиле Cosmo" молода, независима и энергична, сама выбирает свой путь и добивается (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE32C1AEE5894ABD6F8024620C626E846C4616C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560404   (407249) от 14.10.2012
-
-Журнал | Cosmopolitan Shopping №11 [ноябрь 2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407249.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Cosmopolitan Shopping" — незаменимый гид по стильным покупкам. Это модный, интересный и полезный журнал, который всегда готов ответить на три главных вопроса в жизни женщины: что купить? Где купить? С чем носить?Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E30A181A2E6D7A339486DB8275B0C813E81F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561807   (405926) от 18.10.2012
-
-Журнал | Секреты Легко худеем №5 [2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема номера - "Худеем всей семьей". Как вписать активность в домашний режим, уроки семейного массажа, как уменьшить свою вторую половину, секреты похудения для наших детей и многое другое...Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861118A6E01B4615D3E09B9EE23126F4B0292FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562585   (405592) от 19.10.2012
-
-Журнал | Диетика №11 [ноябрь 2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405592.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии. «Диетика» - ключик к твоей стройности.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFD0D2A15D32BB24606E7FFC361943E793F7259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562597   (405588) от 19.10.2012
-
-Журнал | Крестьянка №11 [ноябрь 2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание предлагает своим читательницам простые и откровенные беседы со знаменитостями на актуальные жизненные темы, статьи о зарубежных звездах, оригинальные описания путешествий по разным странам и их особенностей, рассказы о жизни русской провинции, моде, здоровье, кулинарии, отношениях в семье, психологические консультации и многое другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D443C10845002EC659D192BA89FE9D043EF9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562213   (405544) от 19.10.2012
-
-Журнал | Стильные прически №11 [ноябрь 2012] [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405544.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Стильные прически» — ежемесячный практичный журнал для молодых женщин, следящих за красотой. Самый большой выбор причесок, советы по уходу за волосами, лицом, телом, рекомендации стилистов и косметологов. В каждом номере журнала «Стильные прически» вы найдете лунный календарь и гороскоп красоты.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB964D507C25362AAFE09A6E48D24126ED5E7939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712591   (403455) от 19.10.2013
-
-Журнал | Добрые советы [Украина]. Здоровье. Спецвыпуск №2 (2013) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный журнал для женщин «Добрые советы» представляет специальный выпуск - «Здоровье». В номере: beauty-хиты; как не заболеть?; борьба с депрессией: советы "звезд"; как сохранить зрение; лечение аденоидов у детей; женское здоровье; йога солнца: мастер-класс; секреты счастливого брака. Тема номера - "Как пережить холода".Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DEF0D04FA929E7017606913A3A46849AE2A4C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

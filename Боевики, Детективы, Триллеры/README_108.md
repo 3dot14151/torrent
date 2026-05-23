@@ -1,3 +1,108 @@
+###  Публикация: 1432483   (164220) от 17.12.2020
+
+Леонид Сухоруков | Белая дорожка, черная судьба (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+У Стаса и Олеси все начиналось очень хорошо. Любовь. Молодость. Здоровье. Перспективы. Все двери были открыты перед ними. Все дороги стелились перед ними. Но они выбрали дорожку. Рождение ребенка их не остановило. Семья начала стремительно деградировать. Так как с каждым днем денег на наркотики требовалось больше, Стас пошел на грабежи и убийства. Молодые люди все (   Читать дальше...   )Жанр: Современные детективы, ТриллерыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80218473E6FD4B27603A8E5DE7B7B325D77D0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346255   (164190) от 18.12.2019
+
+Андрей Константинов | Цикл «Юность Барона» [3 книги] (2016-2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Всем, кто смотрел легендарный телесериал «Бандитский Петербург», небезынтересно будет узнать, что один из ключевых персонажей фильма – старый вор в законе по прозвищу Юрка Барон, блестяще сыгранный Кириллом Лавровым, в молодости прошел через невероятнейшие жизненные испытания, которые, в итоге, и предопределили его трагический конец. А начиналось все еще в довоенном (   Читать дальше...   )Жанр: Современный отечественный детективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D03CE82EDE82E86A45E6B39CAB5AF1564371EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673643   (164154) от 02.11.2023
+
+Эндрю Тейлор | Лондон в огне (2023) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+ГОРОД В ОГНЕ. Лондон, 1666 год. Великий пожар превращает улицы в опасный лабиринт. В развалинах сгоревшего собора Святого Павла находят тело человека со смертельным ранением в затылок и большими пальцами рук, связанными за спиной, — это знак цареубийцы: одного из тех, кто некоторое время назад подписал смертный приговор Карлу I. Выследить мстителя поручено Джеймсу (   Читать дальше...   )Жанр: Исторические детективыПеревод: Анна ОсиповаИздательство: АзбукаФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937AFFF6940A91CCC006CA2B3F6D1D72A705E5F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430965   (164115) от 17.12.2020
+
+Монс Каллентофт | Смотри, я падаю (2021) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Смотри, я падаю» – это триллер нового уровня, шедевр, который парализует всех поклонников жанра и открывает новые стороны художественной литературы. Монс Каллентофт мастерски выворачивает наизнанку души главных героев, а вместе с ними и души читателей, создавая историю, которой невозможно найти аналог.
+Пропавшая дочь, отец, который поклялся не прекращать поисков, (   Читать дальше...   )Жанр: Детективы, ТриллерПеревод: А. НордштремФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D599B32B7B75D90C8E4E2763D2740C6FAD20A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431236   (164047) от 17.12.2020
 
 Наталья Андреева | МоLох (2020) [FB2]
@@ -6,7 +111,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,113 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A3F0BBC6003DE18EDDA5055C1D87AA716EF5B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675789   (159788) от 10.11.2023
-
-Симона Сент-Джеймс | Книга нераскрытых дел (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159788.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 год. Маленький городок потрясен серией убийств, совершенных загадочной «Леди Киллер». Бет Грир – молодая, богатая, эксцентричная – становится идеальной подозреваемой: ее видели убегающей с места одного из преступлений. Однако суд оправдывает ее, и с тех пор она почти не покидает свой особняк.
-2017 год. Все свободное время Шей Коллинз посвящает сайту с интригующим (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПеревод: Юрий ГольдбергИздательство: СиндбадФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065B1B1F330D812C5A47BDC749C14A6E188898AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599542   (159580) от 24.12.2022
-
-Людмила Мартова | След на весеннем снегу (2022) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159580.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одно утро размеренная жизнь тихого городка переворачивается с ног на голову. Учительница английского языка Мила на прогулке с собакой находит клад старинных монет. Перед этим ее чуть не сбил известный архитектор – оказывается, совсем рядом он строит необычный дом для одного из отцов города. И вскоре там же, в Кузнецкой слободе, находят тело местного предпринимателя. (   Читать дальше...   )Жанр: Современные детективыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC87965F1D0978C48703A3884A816EDC871C416B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675986   (159225) от 11.11.2023
-
-Нора Робертс | Прыжок пумы (2023) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктор Лилиан Чанс с детских лет хотела изучать диких зверей и смогла воплотить в жизнь свою мечту – теперь у нее есть заповедник и в нем зоопарк. А вот друг ее детства и первая любовь Купер Салливан-третий вопреки воле отца не продолжил семейный бизнес, а стал частным детективом.
-Вернувшись на земли своих предков, расположенные неподалеку от заповедника, Купер обнаружил, (   Читать дальше...   )Жанр: Зарубежные детективы, Остросюжетные любовные романыПеревод: Ксения ПриходькоИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:359A7AAE86305D4BBACBE766478B912FD6F03586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675865   (159223) от 11.11.2023
-
-Алекс Белл | Мировое правительство (2018) [PDF]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающие приключения героя нашего времени — программиста, сражающегося за главное сокровище цифровой эпохи — защиту информации. Уникальная разработка по шифрованию данных попадает под пристальное внимание мирового правительства.
-Ее создатели оказываются под угрозой уничтожения. Всевидящее братство не остановится, пока не добьется своей цели, — на кону власть. (   Читать дальше...   )Жанр: Политические детективы, ТриллерыИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB52138E526500CECC1343CAAF17F13A27FD067
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1773633   (30218) от 21.01.2025
+
+VA - The Best Of Made Up Records Vol. 2 (1999) [AAC|320 Kbps] <Electronic, Euro-Disco, Eurodance, Eurobeat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+01. Debby Jason - Day By Day
+02. Gina - Baby Baby Baby
+03. Sheila Steward - No 1 Emotion
+04. Rygar - Hexameron(   Читать дальше...   )Жанр: Electronic, Euro-Disco, Eurodance, EurobeatПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F620DE25A4F056153532537830E6B684BB186C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774783   (30001) от 23.01.2025
 
 VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
@@ -6,7 +35,7 @@ VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Italo Dance Classics Volume 1 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Italo Dance Classics Volume 4 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Dance Classics Gold (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Italo Dance Classics Volume 3 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Dance Classics Vol. 5 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Dance Classics Vol. 6 (1988) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Dis
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Secret Service - Aux Deux Magots (1987) [AAC|320 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -238,7 +267,7 @@ Secret Service - The Lost Box (2012) [AAC|320 Kbps] <Electronic, Pop Rock, Hi NR
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -267,7 +296,7 @@ Secret Service - When The Night Closes In (1985) [AAC|320 Kbps] <Electronic, Pop
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - The Best Of Italo-Disco Vol. 7 (1986) [AAC|320 Kbps] <Electronic, Pop, Ital
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Modern 80's - The Best Of Discopop (1998) [AAC|320 Kbps] <Electronic, Pop, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Modern 80's - The Best Of Discopop Vol.3 (1999) [AAC|320 Kbps] <Electronic,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - 100 Hits Power Ballads (2016) [AAC|320 Kbps] <Classic Rock, Pop Rock, Vocal
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -441,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

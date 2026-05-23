@@ -1,31 +1,3 @@
-###  Публикация: 721850   (369338) от 12.11.2013
-
-Cabela's African Adventures [Wii] [NTSC] [ENG] (2013)
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симулятор охоты в полностью открытом мире, где игроку выпадает возможность отправиться в Африку и встретиться с самыми кровожадными представителями фауны.
-
-В этой части виртуальный мир более чем в пять раз превосходит то, что было реализовано в предыдущих играх Cabela's для консолей. При этом есть возможность в любой момент использовать транспорт для быстрого перемещения. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: CauldronЖанр: Simulation, HuntingЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4247250A4B31C12715167E0BF555BE63774225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175609   (369096) от 22.10.2017
 
 Borderlands 2 (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 1.07 / 6 DLC] [En]
@@ -34,7 +6,7 @@ Borderlands 2 (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 1.07 / 6 DLC] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +33,7 @@ Magic Orbz (2009) [PS3] [EUR] 4.21 [Repack / 1.03 / 3 DLC] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +59,7 @@ Bayonetta (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +85,7 @@ The Chronicles of Narnia: Prince Caspian (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +111,7 @@ PAC-MAN and the Ghostly Adventures (2013) [PS3] [USA] 4.46 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +137,7 @@ Ori and the Blind Forest: Definitive Edition (2019) [Switch] [EUR] 8.1.0 [Licens
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +165,7 @@ Disney Epic Mickey 2: The Power of Two [Wii] [NTSC] [Eng] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +192,7 @@ Marvel Avengers: Battle for Earth [ENG] (RegionFree) (LT+3.0/15574) (2012) [KINE
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +218,7 @@ WWE 2K16 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +244,7 @@ Burnout Paradise: The Ultimate Box (2009) [XBOX360] JTAG [License] [Multi]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +270,7 @@ Sly Cooper: Thieves in Time / Sly Cooper: Прыжок во времени (2013
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +296,7 @@ NBA 2K18 (2017) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +322,7 @@ Just Dance Disney Party 2 (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [M
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +375,7 @@ The Walking Dead - Survival Instinct (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] [
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +402,7 @@ Fight Night Champion [PS3] [USA] [En] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2011)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +428,7 @@ Super Smash Bros. for Wii U (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +456,7 @@ Assetto Corsa Competizione (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/En
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +482,7 @@ Mario + Rabbids Kingdom Battle (2017) [Switch] [EUR] 5.1.0 [License / DLC] [Ru/E
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +509,7 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +535,7 @@ Tower of Guns: Special Edition (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +561,7 @@ Phineas and Ferb: Across the 2nd Dimension / Финес и Ферб: Покор�
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +587,7 @@ Space Hulk (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [Ru
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -641,7 +613,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -667,7 +639,7 @@ Injustice: Gods Among Us (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -680,6 +652,33 @@ Injustice: Gods Among Us (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:591BE40156D5F5B1E791914438A074E3D96393DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070904   (363426) от 08.11.2016
+
+Donkey Kong Country: Tropical Freeze (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Donkey Kong Country: Tropical Freeze — это новейший и первый за последние три года приключенческий платформер серии Donkey Kong. В этой игре Конги вынуждены противостоять захватившим их любимый остров подлым Снежникам с северных морей. Для этого они отправляются в путешествие по пяти различным островам, а также на обледеневший остров Донки Конга.
+Помимо Дидди Конга, (   Читать дальше...   )Тип издания: LicenseРазработчик: Retro Studios, Monster GamesЖанр: Action, PlatformerЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868D1032151C60D9F1CBFB88B49B3299E0D0F61A
 ```
 
 https://mybot314.ru/tekegram_catalog/

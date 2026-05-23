@@ -1,3 +1,55 @@
+###  Публикация: 1104073   (882788) от 13.02.2017
+
+Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Восточная Европа, 2008 год. На границах с Россией бушует война, от ее исхода зависит судьба всего мира. Пора вызывать на подмогу элитное спецподразделение армии США – отряд «Призраков», до зубов вооруженных новейшими технологиям и в совершенстве владеющих искусством убивать. Задача этих бойцов – расчистить путь для миротворцев НАТО и предотвратить глобальный конфликт, (   Читать дальше...   )Тип издания: LicenseРазработчик: Red StormЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301486   (881329) от 05.04.2020
+
+SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Если директор SinTEK Industries распространяет таблетки, изменяющие ДНК, – значит, пора пересмотреть законы морали. Если все та же коварная женщина-биохимик собирается захватить мир при помощи армии мутантов, – значит, пора переписать золотое правило нравственности. Вы – полковник Джон Блэйд, начальник самого известного частного охранного агентства Фрипорта. Элексис (   Читать дальше...   )Тип издания: LicenseРазработчик: Ritual EntertainmentЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996616   (878533) от 14.03.2016
 
 Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition]
@@ -6,7 +58,7 @@ Farming Simulator 15 (2014) [Ru/Multi] (1.4.2/dlc) License SKIDROW [Gold Edition
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +86,7 @@ The Dagger of Amon Ra (1992) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +112,7 @@ The Colonel's Bequest (1989) [En] (1.000.046) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Shadowgrounds (2005) [Ru/En] (1.05) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Psychonauts (2005) [Multi] (1.1.603.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Rally Championship 2000 [Ru] (L) 2000
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Star Trek: Hidden Evil (1999) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ METAL GEAR SOLID 2 SUBSTANCE (2003) [Multi] (1.0cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Crime Cities (2000) [En] (1.0) Licence
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ X-COM: Enforcer (2001) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +670,6 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99DE5FBFDF7DE1540A22C647258056701C5908F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109486   (858531) от 27.02.2017
-
-Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы готовы к воистину эпическому событию? Настоящая веха в истории ролевых игр, Ultima™ IV в 16 раз больше, чем Ultima™ III. В этой игре лорд Бритиш потребует от вас не только концентрации ума и силы, но и твердости характера. Мондейн, Минакс и их дьявольское порождение Эксодус повержены в прах. В Британии воцарился мир. Однако зло все еще живо в темных чащобах...Тип издания: LicenseРазработчик: Origin SystemsЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370487   (856182) от 19.04.2020
-
-Biped (2020) [Ru/Multi] (1.4) Repack Other s
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Biped — это динамичная приключенческая 3D-игра с реалистичной физикой для совместного и одиночного прохождения. В ее основе — взаимодействие двух игроков, которые должны помогать друг другу в точно выбранные моменты. Два маленьких двуногих робота Аку и Сайла вместе отправляются в захватывающее приключение, чтобы выполнить свое задание на планете Земля.Тип издания: RepackРазработчик: NEXT StudiosЖанр: Adventure, Action, Puzzle, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104E83CBC569D251953A47CF7DD549E21ABA5A76
 ```
 
 https://mybot314.ru/tekegram_catalog/

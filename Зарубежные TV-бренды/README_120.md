@@ -1,3 +1,55 @@
+###  Публикация: 1360268   (116305) от 22.02.2024
+
+Если бы мы строили сегодня / If We Built It Today (2019) IPTVRip [H.264] (серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>Мега-Проекты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В программе мы обсудим с архитекторами, историками, инженерами и строителями можно ли использовать современные инновации для воссоздания шедевров. Узнаем, утеряны ли навсегда методы, с помощью которых они были возведены и сколько времени займет постройка, если мы захотим воссоздать объект культурного наследия, сколько понадобится для этого рабочих. Сможем ли мы вообще (   Читать дальше...   )Производство: США, Канада / Arcadia Content, Sky Vision, Discovery Science Channel, Arcadia EntertainmentЖанр: ДокументальныйРежиссер: Jeff Parker, David WaughУчастники: Michael Heiser, Dan DebenhamПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 10 x ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C56D15DEEAFA869AA64E45F06BD4A6D64A90C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180623   (116283) от 22.02.2024
+
+Машины, которые создали Америку / The Cars That Made America (2017) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Революция в автомобилестроении в начале 20-го века преобразила США. История гениев, добившихся успеха и славы, и неудачников, выбывших из гонки. Один автомобиль может построить империю, разрушить жизнь, объединить или поссорить людей. Но в одном все согласны безоговорочно: современная жизнь просто немыслима без автомобиля. Такие люди, как Генри Форд, братья Додж, (   Читать дальше...   )Производство: США, Magilla EntertainmentЖанр: Документальный, биография, историяУчастники: Ричард Бак, Майкл Бальцано III,  H.W. BrandsПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:23:44+01:20:55+01:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E917190BAE2FA435031B490011A903183100C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278596   (114757) от 02.03.2024
 
 History Channel. Как создавались империи / Engineering an Empire (2005-2006) HDTVRip, DVDRip (14 серий из 14)
@@ -6,7 +58,7 @@ History Channel. Как создавались империи / Engineering an E
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC: Горизонт. Каковы размеры Вселенной? / Horizon
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG. В мире дельфинов с Берти Грегори / Dolphins Up Cl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +268,7 @@ BBC: Планета Земля / Planet Earth (2006) BDRip [720p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +320,7 @@ History Channel: Секреты языка тела / Secrets of Body Language (
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +432,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +458,7 @@ BBC: Век эгоизма. Часть 4 – Вся власть Хомячка�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +485,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -486,7 +538,7 @@ BBC. Horizon: Тайная жизнь собак / The secret life of the dog (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +616,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,7 +669,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -628,62 +680,6 @@ BBC: Загадки истории. Век полетов: Легенды мир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943E395A335EA2F211E75FA22CF1F4C6E09532CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465704   (81688) от 12.03.2012
-
-Animal Planet: Нашествие саранчи: Насекомые, сожравшие Африку / Locust Invasion: The Insect that Ate Africa (2007) HDTV [1080i]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский энтомолог Антуан Фукар отправляется в Африку, чтобы узнать причины нашествий саранчи. Ему удается получить новые интересные данные об этих насекомых.Жанр: Научно-популярный, документальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:009C902FEB3EB46DD2EA2708A8EC66330BC4B5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465548   (81679) от 12.03.2012
-
-BBC: Век эгоизма. Часть 3 – В твоей голове сидит полицейский, которого нужно уничтожить / The Century of the Self. Part 3 - There is a Policeman Inside All Our Heads: He Must Be Destroyed (2002) TVRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это сериал о том, как идеи Зигмунда Фрейда о бессознательном были использованы власть имущими для управления поведением масс в эпоху демократии.
-
-Идеи Фрейда распространились по всей Америке в 50-х годах двадцатого века. Они распространялись благодаря усилиям дочери Фрейда Анны и его племянника Эдварда Бернейса. Он сделал теории Фрейда центральным стержнем рекламы и маркетинга. Оба они верили, что в основе каждого человеческого существа находится скрытое иррациональное начало, которое необходимо контролировать –  как для блага самого человека, так и ради стабильности общества.
-Но оппоненты, которые говорили, что фрейдисты неправы в своих представлениях о человеческой природе, были уже готовы отстранить наследников Фрейда от власти. Внутреннюю сущность человека не надо подавлять и контролировать, ее надо поощрять к самовыражению. Благодаря этому появится новый тип сильной личности и лучшее общество.
-Но результаты этой революции оказались совершенно противоположными. Они привели к появлению замкнутых на себя, уязвимых (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B60C287C8CB69D518AB8667FE375F778E70EF9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

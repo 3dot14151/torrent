@@ -1,3 +1,186 @@
+###  Публикация: 1373296   (1026167) от 15.03.2021
+
+Universal TV Remote Pro v1.0.23 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Универсальный пульт дистанционного управления №1 - приложение Smart и IR Remotes в более чем 100 странах. Для Smart TV / Устройств, единственная необходимая настройка - это подключить телефон, а также Smart TV / Device к той же сети Wifi. Для ИК-телевизоров ваш телефон должен иметь встроенную инфракрасную функцию, чтобы приложение работало в качестве пульта дистанционного (   Читать дальше...   )Тип издания: Пиратка (Mod: Pro, удалена реклама, лишние пункты об оценке и прочий мусор)Релиз состоялся: 23.01.2021Разработчик: CodeMatics Media SolutionsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B589100890AB306064F644F1C5D1AEF5EDD452C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338433   (1026030) от 16.03.2021
+
+Александр Башибузук | Собрание произведений [28 книг] (2013 - 2021) [FB2] [Обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Александр Башибузук — современный писатель-фантаст. Информацию о себе автор предпочитает не афишировать, даже наверняка неизвестно является ли «Башибузук» псевдонимом. По информации, заполненной самим автором в профиле на сайте «Миры Андрея Круза», он из Новой Каховки (Херсонская область, Украина).
+Был участником сайта «В вихре времени», затем, с ноября 2014 года, (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная история, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C2648EB62732B43CD43F13078BC64DEFD9C641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418326   (1025683) от 18.03.2021
+
+The Outer Worlds (2019) [Ru/Multi] (1.5.1.712/dlc) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+The Outer Worlds – это отмеченная наградами научно-фантастическая ролевая игра для одного игрока с видом от первого лица, выпущенная Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики.Тип издания: LicenseРазработчик: Obsidian EntertainmentЖанр: Экшн, Ролевая игра, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A659B7656F66E3A7E45B6632F49C8FA1E0C42BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455517   (1025516) от 19.03.2021
+
+The KMPlayer 4.2.2.50 repack by cuta (build 1) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, и другие.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC15644A88AE8874A0E354D6B62FC6482E8CDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455531   (1025503) от 19.03.2021
+
+Kaspersky Total Security 2021 21.3.10.391 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky Total Security — это максимальная защита для компьютера. Новая версия Kaspersky Total Security обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, эффективность которых подтверждена многочисленными тестированиями, проводимыми независимыми лабораториями AV-Comparatives, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22B46D7DDA53D60E145254B8EB49E2292198763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455869   (1025329) от 20.03.2021
+
+Adobe Photoshop 2021 v22.3+ Neural Filters [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2021Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1384D688C3AD415B817B4DB8F01224A4D26D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455861   (1025325) от 20.03.2021
+
+Adobe Lightroom Classic v10.2 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Lightroom Classic - незаменимая программа при работе с цифровыми фотографии. Благодаря Lightroom вы сможете быстро импортировать, обрабатывать, управлять и демонстрировать изображения. Улучшенные инструменты исправления, возможность гибкой настройки параметров печати и мощные функции систематизации значительно ускоряют процесс работы.Тип издания: macOS SoftwareРелиз состоялся: март 2021Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0143DF98AFECE2ACA08D63FFE1E66A428342A034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454975   (1025324) от 20.03.2021
 
 Кошмары / Come True (2020) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +189,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +268,7 @@ Surviving Mars (2018) [Ru/Multi] (1001551/dlc) Repack Other s [Digital Deluxe Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +294,7 @@ Apple оштрафована в Бразилии на 2 млн долларов 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +320,7 @@ Windows 10 20H2 (19042.870) x64 Home + Pro + Enterprise (3in1) by Brux v.03.2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +372,7 @@ BELOFF 2021.03 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +398,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +424,7 @@ Mushoku Tensei: Перерождение безработного | Реинка
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +450,7 @@ Little Nightmares II (2021) [Ru/Multi] (5.68/dlc) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +528,7 @@ Microsoft готова купить геймерский чат за 10 млрд
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +554,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +580,7 @@ Windows 7/10 Pro х86-x64 by g0dl1ke 21.03.20 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +606,7 @@ Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,191 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29A4A19C7586A226480BACE42E415ECFF04230AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457987   (1023753) от 29.03.2021
-
-Москва вошла в список 30 лучших столиц мира по качеству воздуха в рейтинге за 2020 год
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва вошла в список 30 лучших столиц мира по качеству воздуха в рейтинге по данным отчета IQAir за 2020 год. Об этом сообщается на официальном сайте мэра Москвы.«Москва вошла в список 30 лучших столиц по качеству воздуха в мировом рейтинге за 2020 год. В его основе лежат данные о содержании в атмосфере мелких твердых частиц (PM2.5), эти показатели поступают с наземных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422472   (1023706) от 29.03.2021
-
-Метод (2020) HDTV [H.264/1080i-LQ] (сезон 2, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023706.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти Меглина прошел год, но Есеня не может забыть о том, что произошло. Не может и не хочет. Призраки прошлого снова и снова возвращают её в тот день, когда она потеряла Меглина. Есеня пытается начать жить заново — рядом с ней муж, подрастает дочь, но всё, о чем она мечтает — это поскорее вернуться к работе. Такой шанс представляется, когда в городе происходит (   Читать дальше...   )Производство: Россия | Продюсерская компания «Среда»Жанр: Триллер, детективРежиссер: Александр ВойтинскийАктеры: Паулина Андреева, Константин Хабенский, Александр Петров, Макар Запорожский, Егор Корешков,     Виталий Кищенко, Сергей Сосновский, Евгения Симонова, Полина Лунегова, Анастасия ПоповаПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E65AA12A58898E5AF6B982950FAD3F4BB41C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439191   (1023563) от 30.03.2021
-
-Azur Lane: Slow Ahead! | Azur Lane: Bisoku Zenshin! | Лазурный путь: Малый вперёд! [2021, TV, 12 эп.] WebRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом несколько специфичном мире живут девушки-корабли. История начнётся в военно-морском порту Азур Лэйн. Девушки из разных лагерей живут радостной и насыщенной школьной жизнью. Они проживают каждый день на полную и медленно, но верно сталкиваются с разнообразными интригами. © CrunchyRollЖанр: комедия, повседневность, эччиРежиссер: Дзимбо МасатоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 8 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53585C5D9FD4A4864A24A35C44DA92BAB8D8BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458842   (1023537) от 30.03.2021
-
-Comodo Internet Security Premium 12.2.2.8012 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC2491198080461BA79150D676F751110384D94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369675   (1023351) от 31.03.2021
-
-Ярослав Брин | Мастер группа 2019 (2019) WEBRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023351.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце каждого года даже самый унылый зануда наступает на горло печальке, пересчитывает заначки и внимательно изучает скидки, входящие и социальные сети. Ибо, нет такого взрослого, который бы не верил в сказки, политикам и телевизору.
-Так уж мы устроены - пивное брюхо, лысина, кредит на погашение кредита и пять неудачных браков не убивают оптимизм и надежду на то, (   Читать дальше...   )Производство: РоссияЖанр: Похудение, трансформация телаПродолжительность: 80h+
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1F1D43A759A05BCDE166DEE6D6856AA9E81B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 54444   (1023349) от 31.03.2021
-
-Обучающее видео по бильярду: Подсматриваем за Евгением Сталевым. Часть 1
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первая часть из серии учебных материалов по бильярду с участием одного из лучших бильярдистов России, получившего признание не только в России и Европе, но и во всем мире. Часть 1 называется Знакомство с Русским Бильярдом.
-
-С ее помощью вы вкратце ознакомитесь с современными видами игр на бильярде; увидите основы удара для русского бильярда (стойка Евгения, детали (   Читать дальше...   )Жанр: Обучающее видеоАктеры: Евгений СталевПеревод: ПрофессиональныйПродолжительность: 53 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9283BE5B347AB4DA7A25B3610B9B21F62613335B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459189   (1023347) от 31.03.2021
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.13901.20312 (2021.03) (W10) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46432C8E3C720B4E924834BCA647413487457F34
 ```
 
 https://mybot314.ru/tekegram_catalog/

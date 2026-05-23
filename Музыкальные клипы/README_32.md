@@ -1,3 +1,113 @@
+###  Публикация: 497561   (253449) от 16.05.2012
+
+Inna. Caliente (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОРПродолжительность: 03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC07405FD22FD69062A98FA3DA9847CEA3825FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497539   (253405) от 16.05.2012
+
+Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОРПродолжительность: 04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16909E6F2AC5C125F649AB4C663A31B02429729D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 334360   (252049) от 25.05.2023
+
+Тина Тернер - лучшее / Tina Turner - ALL THE BEST - The Live Collection (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Лучшее от Королевы рока за 15-летний период с 1985 по 2000 год.01. Steamy Windows
+02. Show Some Respect
+03. I Can't Stand the Rain
+04. River Deep Mountain High(   Читать дальше...   )Жанр: RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 02:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E4710E8089F3FE572E07E4B28332EFC83F1542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495450   (251584) от 12.05.2012
+
+Sandra - The Complete History (2003) DVDRip [H.264]
+
+>>След.
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов Sandra1 Maria Magdalena
+2 In The Heat Of The Night
+3 Little Girl
+4 Innocent Love(   Читать дальше...   )Жанр: Synth-pop, Pop, Euro House, Euro Dance, DiskoПродолжительность: ???
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495133   (251223) от 11.05.2012
 
 Сборник видеоклипов Millenium Slow (2012) HDTVRip [H.264]
@@ -6,7 +116,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +168,7 @@ VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | K
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +194,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +224,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -140,7 +250,7 @@ VA - Зимний марафон № 212: Дискотека в стиле Count
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -169,7 +279,7 @@ OKSI - Новогодняя 2013 (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -195,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -224,7 +334,7 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -253,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -282,7 +392,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -311,7 +421,7 @@ JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -337,7 +447,7 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -363,7 +473,7 @@ SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -389,7 +499,7 @@ Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -415,7 +525,7 @@ Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +551,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -467,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -496,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -525,7 +635,7 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +662,7 @@ Bollywood: новогодний киноконцерт / Bollywood Mix Video (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -589,116 +699,6 @@ Cборник видеоклипов голландской музыкально
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB8748073F862F9A412DF6D2B1DA8C57CA98745E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580312   (206830) от 01.10.2022
-
-Сборник клипов - Rock & Pop Ballads Часть 2 (2022) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сборника клипов, с которого всё началось. Мой осенний подарок всем, кому в это время года приходят в душу эмоции. Кому то грусть, кому то ностальгия, кто то стихи пишет, ну а кому то просто некогда и он в дороге. В сборник вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Ремастеринг (   Читать дальше...   )00. Rock & Pop Ballads 2 - Intro
-01. Rod Stewart - Rhythm Of My Heart
-02. Richard Marx - Right Here Waiting
-03. Рондо- Ну и пусть(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F8F312D0A6BBC7B994D9843A6ADFCAA02DF16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582143   (206409) от 08.10.2022
-
-Сборник клипов - Rock & Pop Ballads Часть 2 (2022) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сборника клипов, с которого всё началось. Мой осенний подарок всем, кому в это время года приходят в душу эмоции. Кому то грусть, кому то ностальгия, кто то стихи пишет, ну а кому то просто некогда и он в дороге. В сборник вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Ремастеринг (   Читать дальше...   )00. Rock & Pop Ballads 2 - Intro
-01. Rod Stewart - Rhythm Of My Heart
-02. Richard Marx - Right Here Waiting
-03. Рондо- Ну и пусть(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28735A8C0BE73057B5DB4866CCF11D021852ED53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654770   (204977) от 22.08.2023
-
-Green Day - 21 Guns (2009) BDRip [H.264/1080p-LQ] [handmade Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Green Day — американская рок-группа, образованная в городе Ист-Бэй  (англ.)рус. (Калифорния) в 1987 году вокалистом и гитаристом Билли Джо Армстронгом вместе с басистом и бэк-вокалистом Майком Дёрнтом. На протяжении большей части карьеры группа была представлена как пауэр-трио[1] с барабанщиком Тре Кулом, который заменил Джона Киффмейера в 1990 году перед записью (   Читать дальше...   )Green Day - 21 Guns (2009)Жанр: Pop, Punk RockПродолжительность: 00:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EF6F1B81442310681D3AD149C06165C6B7C68F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617809   (201640) от 08.03.2023
-
-Клава Кока - Замуж (2023) WEBRip [H.264/1080p; 1440p; 2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Премьера клипа. Клава Кока - "Замуж"Производство: Black StarЖанр: PopПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:233DA4BF03D1008F34B0846407CE391DBBB23343
 ```
 
 https://mybot314.ru/tekegram_catalog/

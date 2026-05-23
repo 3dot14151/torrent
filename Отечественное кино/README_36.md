@@ -1,3 +1,107 @@
+###  Публикация: 1090765   (945677) от 07.01.2017
+
+Атомный Иван (2012) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается в городе-спутнике одной из крупнейших АЭС. Молодой учёный Ваня, как и его родители, занимается атомной энергетикой, но, как он сам считает, — не по призванию, а только из-за давней любви к бывшей однокурснице Тане. Она, напротив, увлечена своим делом, амбициозна и требовательна в личных отношениях. Однажды Таня решает разорвать эти отношения, (   Читать дальше...   )Производство: Россия | ТелестоЖанр: Мелодрама, КомедияРежиссер: Василий БархатовАктеры: Григорий Добрыгин, Юлия Снигирь, Екатерина Васильева, Марина Голуб, Алексей Горбунов, Евгения Дмитриева, Алексей Колубков, Денис СухановПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0CE12AB1946CE27F8102051E06C80852BF39E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090712   (945676) от 07.01.2017
+
+Новогодняя жена (2012) WEB-DL [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В самый разгар вечеринки в клубе Даша и Максим встречают друг друга... и просыпаются в одной постели... Решив, что их свела сама судьба, герои принимаются строить идеальные, «правильные» отношения и...подают заявление в ЗАГС, предварительно заключив пари: если в течение месяца им удастся не просто прожить вместе, но и сохранить чувство влюбленности, дело закончится (   Читать дальше...   )Производство: Россия | Про100 ФильмЖанр: Комедия, МелодрамаРежиссер: Светлана МузыченкоАктеры: Сергей Перегудов, Карина Андоленко, Алёна Яковлева, Анна Донченко, Александр Арсентьев, Антон Васильев, Алексей Гришин ...Продолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C963CF58F9F53080AE0F1EB552A8113E33C18468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090826   (945665) от 07.01.2017
+
+Чудо в Крыму (2015) HDTV [H.264/1080i]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Перед Новым годом в Симферополе встречаются простой водитель и звезда кино. Мария и Дмитрий проводят вместе два дня, и их жизнь меняется.Производство: РоссияЖанр: КомедияРежиссер: Виталий ПавловАктеры: Михаил Пореченков, Ирина Гринёва, Михаил ДитковскийПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7FB9348CCBC765956F0838A32BF39749B8FCBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090802   (945624) от 07.01.2017
+
+Убежать, догнать, влюбиться (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Борис сбегает от своей австрийской невесты на Северный Кавказ, где по воле случая становится учителем музыки для местной девушки Нины. Нина не хочет выходить замуж за жениха, найденного отцом, и всеми силами пытается оттянуть свадьбу. В этом ей помогает Борис: он решает украсть Нину по местному обычаю, и теперь они вынуждены скрываться не только от ее жениха, но (   Читать дальше...   )Производство: Россия | Art Pictures StudioЖанр: КомедияРежиссер: Михаил ШевчукАктеры: Любовь Аксенова, Константин Крюков, Владимир Этуш, Владимир Зельдин, Юсуп Омаров, Юлика Вагнер, Александр Резалин, Марина ГубинаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394120ECE2E19F3DFA18DC01AC42981C3909E529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090437   (945613) от 07.01.2017
 
 Отогрей мое сердце (2016) SATRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813A267D86F5E466BD782C50C93837888CEE1999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 283761   (940397) от 17.01.2011
-
-Цветы для снежной королевы (2006) DVDRip [2 серии из 2]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Ермакова – успешная бизнес-леди и, по большому счету, очень одинокий человек. Мужчины в ее жизни – деловые партнеры или конкуренты. И тем, и другим приходится постоянно доказывать свою силу и превосходство. Так продолжается до того момента, пока в ее банке не появляется съемочная группа во главе с популярным кинорежиссером Сергеем Палеховым, который собирается снимать здесь сцену ограбления. В результате нелепого стечения обстоятельств госпожа председатель правления банка, которую по ошибке принимают за актрису, становится непосредственной участницей этого «ограбления» – ее берут в заложники вооруженные до зубов «бандиты». Не подозревая о том, что все это — съемки художественного фильма, Дина переживает сильнейший стресс. Но оказывается, что на этом злоключения не заканчиваются.Жанр: МелодрамаРежиссер: Лев КарповАктеры: Игорь Верник, Олеся Судзиловская, Алексей Булдаков, Александр Данильченко, Ада Роговцева, Александр Семчев, Александр Феклистов, Николай Чидяйкин, Владимир Терещук, Ксения РадченкоПродолжительность: 2 x ~00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D315984DE6EF28B89D31FBA0EFABCD37707947DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175606   (940328) от 14.02.2010
-
-Самая счастливая (2010) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940328.jpg" />
-</div>
-
-
-###  Подробнее
-
-С детства Марина привыкла жить в любви и достатке: родители не чаяли души в дочери, а она отвечала им взаимностью. Папа – талантливый ученый, мама – главврач ветеринарной клиники. Девочка мечтала закончить школу и начать самостоятельную жизнь - такую же счастливую, как и в родительском доме.
-Однако судьба распорядилась иначе: в одночасье не стало родителей, и у девушки тут же отобрали квартиру. Любимый человек ушел, бросив несчастную одну-одинешеньку с маленьким ребенком. В довершении всех бед друзья отвернулись от Марины. Помощи ждать неоткуда, рассчитывать можно только на себя. И это так тяжело – снова стать счастливой… Но Марина решает идти наперекор судьбе..…Жанр: МелодрамаРежиссер: Константин ФроловВ ролях: Юлия Кадушкевич, Анатолий Просалов, Юрий Горбач, Анатолий Котенёв, Александра Назарова, Илья Шакунов, Светлана Кожемякина, Георгий Тесля....Формат: AVI
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092262   (939937) от 11.01.2017
-
-День полнолуния (1998) HDTV [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма — «новые русские» и старый узбек, удачливый киллер и популярный ди-джей, прекрасная княжна и загадочный монах, иностранный дипломат и великий поэт…Производство: Россия, Мосфильм, КурьерЖанр: ДрамаРежиссер: Карен ШахназаровАктеры: Анна Герм, Андрей Панин, Елена Коренева, Владимир Ильин, Валерий Приемыхов, Валерий Сторожик, Валерий АфанасьевПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959DC46834FF180989F2108FA309B02E6CB7A2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752402   (939317) от 03.02.2014
-
-Золото (2012) HDTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судебный пристав предъявляет семье Брагиных иск по карточным долгам пропавшего брата. Для расчётов — два месяца. Или Гордея, как брата должника ждёт арест и тюрьма. Выход один — бросить всё и бежать. Всех спасает золотая жила. Прииск быстро приносит богатство: теперь Гордей — золотопромышленник! Но новая беда — ещё хуже: деньги! Их слишком много! Все хотят получить (   Читать дальше...   )Жанр: ДрамаРежиссер: Андрей МармонтовАктеры: Сергей Безруков, Ирина Скобцева, Андрей Мерзликин, Михаил Пореченков, Анна Герман, Максим Шибаев, Любовь Куликова, Владимир Кабалин, Алексей Шемес, Дарья МихайловаПродолжительность: 01:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33AE6CDDD502B9390DD460D7C6061933A2CEC9B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1223220   (677135) от 03.05.2018
+
+NGW: Дикая природа Аргентины. Убийственное побережье / Wild Argentina. The Killer Coast (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Немногие страны в Южной Америке могут похвастаться таким контрастом и разнообразием сред обитания своей дикой природы. Здесь можно встретить пингвинов, китов, морских котиков, а также кондоров, броненосцев и лам гуанако.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1527D5BACFDB617AFF7CEB67BDC16693D3EACB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223224   (677132) от 03.05.2018
+
+NGW: Глубоководные киты / Whales of the deep (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм, снятый с помощью прикрепленных к животным меток, камер, установленных в глубоких океанских впадинах и 3D-сканеров изображений, иллюстрирует революционные достижения современной науки и техники.Производство: Франция, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Бертран ЛойерПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6F78BD3116A608E72E6088356D176CD5235890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223315   (677012) от 03.05.2018
 
 Тайная жизнь материалов (Тайный мир веществ) / Secret Life Of Materials (2015) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ History Channel. Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ History Channel. Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Discovery: Золотой путь Паркера Шнабеля / Gold rush Par
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC: Замерзшая планета / Frozen planet (7 серий из 7, в�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ NG: Пустынное море / The Desert Sea (2016) HDTVRip [H.264/720p-LQ] 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -293,7 +345,7 @@ NG: Известная Вселенная. От атома до космоса /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -319,7 +371,7 @@ PBS: Мозг с Дэвидом Иглменом / The Brain with David Eagleman
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -345,7 +397,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ NG: Секретные материалы древности:  Вампиры с
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ BBC. Мир природы. Обитатели пробкового леса (28
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ NG: Землетрясение на Эвересте / Earthquake on Everest (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Discovery: Смертельный улов / Deadliest Catch (2010) TVRip (Се�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Animal Planet. Кошек не любить нельзя [2 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ Animal Planet. Кошек не любить нельзя [1 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACD56FA62F716B0719ADA0CC75654DA235A064A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224388   (665946) от 10.05.2018
-
-BBC. Восхождение животных: Триумф позвоночных / Rise of Animals: Triumph of the Vertebrates (2013) BDRip [H.264/1080p] (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Аттенборо отправляется в эпическое путешествие длиной 500 миллионов лет и исследует невероятный скачок в развитии позвоночных, породивший самых крупных, быстрых и умных существ, когда-либо живших на планете. Сначала он отправляется в Китай, страну, в которой он давно мечтал побывать, чтобы больше узнать о животных древности. Именно они считаются ключевыми недостающими (   Читать дальше...   )Производство: Великобритания, BBC, Atlantic ProductionsЖанр: Документальный, научно-познавательный, палеонтологияРежиссер: Дэвид ЛиПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 2 x ~00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6917ED7BC907A4164406326C062D99A055303A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511882   (665929) от 17.06.2012
-
-Animal Planet. Кошек не любить нельзя [3 серия] / Must love cats (2010) [H.264/1080p-LQ] HDTV
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к невиданным кошачьим приключениям в сериале «Кошек не любить нельзя»! Ее ведущий, музыкант Джон Фултон, большой любитель кошек, приглашает совершить путешествие по удивительному миру пушистых хвостатых созданий. Из этого сериала вы узнаете о кошках много удивительного — например, слышит ли кошка с четырьмя ушами лучше, чем ее обыкновенные сородичи. Мы также посетим удивительный город во Флориде, выстроенный исключительно для кошек!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF2EE688036161E4DFC9B82FEED694F56739EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

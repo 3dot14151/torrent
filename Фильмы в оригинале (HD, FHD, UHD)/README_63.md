@@ -1,3 +1,81 @@
+###  Публикация: 1773209   (31029) от 14.01.2025
+
+Квир / Queer (2024) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit] [En / Ru, En Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+1950-е годы. Жизнь Уильяма Ли, мужчины средних лет, влачащего жалкое существование в Южной Америке, меняется после знакомства со студентом Юджином Аллертоном.Производство: Италия, США / The Apartment, Frenesy Film Company, Fremantle, Media North AmericaЖанр: биография, драма, мелодрамаРежиссер: Лука ГуаданьиноАктеры: Дэниэл Крэйг, Даан Де Уит, Джейсон Шварцман, Энрике Сага, Колин Бейтс, Дрю Старки, Симон Риццони, Дрю Дродж, Эриель ШульманПеревод: СубтитрамиЯзык озвучки: АнглийскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 02:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38764F3E4007A1EB908A7D55BC0447939603D958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777040   (28691) от 04.02.2025
+
+Богота / Bogota: Majimak gihoeui ttang / Bogota: City of the Lost (2024) WEB-DL [H.264/1080p] [Kor / Ru, Ukr, En, Kor Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек переезжает в Колумбию вместе со своей семьей в поисках лучшей жизни, но в итоге живет, перебиваясь с ноги на ногу. Впоследствии он вопреки всему становится доминирующим на черном рынке Боготы.Производство: Корея Южная / Idioplan, Megabox Plus M, Watermelon Pictures Co., Ltd.Жанр: криминал, драмаРежиссер: Ким Сон-джэАктеры: Сон Джун-ги, Ли Хи-джун, Чо Хён-чхоль, Квон Хэ-хё, Пак Чи-хван, Лим Сон-джэ, Ким Хо-джон, Ким Тхэ-бэкПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: Русские, Украинские, Английские, Корейские (Forced, Full, SDH)Продолжительность: 01:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15796B50E40064A67E672022C9EDA67BBC5EBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783033   (25382) от 08.03.2025
+
+Два к одному / Zwei zu eins / Two to One (2024) BDRip [H.264/720p] [DE / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальных событиях... Хальберштадт. Лето 1990 года. Марен, Роберт и Фолькер случайно натыкаются на миллионы старых банкнот ГДР, подлежащих уничтожению. Рискуя, они вывозят деньги и вместе с друзьями и соседями создают систему превращения бесполезных денег в товары. Их план поначалу кажется весёлой игрой, но быстро превращается в поворотный момент (   Читать дальше...   )Производство: Германия, arte, Lichtblick Filmproduktion, Magic Media Production...Жанр: комедия, криминалРежиссер: Натя БрункхорстАктеры: Сандра Хюллер, Макс Римельт, Рональд Церфельд, Урсула Вернер, Петер Курт, Мартин Брамбах, Катрин Уэлиш, Ансельм Хадерер, Лотте Ширин Кейлинг, Роберт ХоллерПеревод: субтитрамиЯзык озвучки: немецкийСубтитры: русские (ndiuf3 - содержат нецензурную брань), немецкиеПродолжительность: 01:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B0BCAE5910A603576616B0DC8CE7C6488A9EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788733   (22883) от 31.03.2025
 
 Братья по нотам / En fanfare (2024) BDRip [H.264/720p] [FR / RU Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EAFC68E025976A2530A052A5AE221BF72ECC6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818880   (1999) от 19.09.2025
-
-Она сказала «Может быть» / She Said Maybe (2025) WEB-DL [H.264/1080p] [EN, DE / RU, EN, DE Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выросшая в Германии Мави узнает, что она принадлежит к сверхбогатой турецкой династии. Новые ожидания семьи быстро переворачивают весь ее мир и личную жизнь.Производство: Германия / Netflix, Komplizen FilmЖанр: комедия, драма, мелодрамаРежиссер: Букет Алакус, Тхе Тяу НгоАктеры: Катя Риман, Серкан Чайоглу, Джансу Тосун, Beritan Balci, Мераль Перин, Аня Кармински, Илькнур Бойраз, Берк Четин, Мехмет Атеши, Алперен СахинПеревод: СубтитрыЯзык озвучки: Английский, НемецкийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH), Немецкие (Forced, Full, SDH)Продолжительность: 01:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191346E8C502140A3130E97882D9110015015F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819718   (1209) от 24.09.2025
-
-Нескромные / Splitsville (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1209.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Конора и Эшли кризис, и они решают вслед за друзьями Полом и Джули попробовать открытые отношения. Но сексуальный эксперимент быстро выходит из-под контроля. Конор начинает тайком встречаться с Джули, Эшли пускается во все тяжкие, а Пол мечтает лишь об одном — вернуть все как было. Оказывается, закрыть отношения куда сложнее, чем их открыть.Производство: США / Neon, First Look Media, FirstGen Content, Watch This ReadyЖанр: комедияРежиссер: Майкл Анджело КовиноАктеры: Дакота Джонсон, Адриа Архона, Кайл Марвин, Майкл Анджело Ковино, Саймон Уэбстер, Чарльз Гиллеспи, Дэвид Кастанеда, О. Т. Фагбенли, Нахема Риччи, Тайрон БенскинПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB45C949FD76264C628F4227810B3F195B729C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

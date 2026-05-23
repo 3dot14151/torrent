@@ -1,3 +1,108 @@
+###  Публикация: 432980   (7157) от 18.08.2025
+
+Ночь живых мертвецов / Night of the Living Dead (1968) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Барбра и её брат Джонни приезжают на кладбище, расположенное в уединённом загородном месте. Неожиданно на них совершают нападение существа, напоминающие мертвецов, восставших из могил. Барбра укрывается в расположенном неподалёку доме, где также находят убежище темнокожий парень по имени Бен, супруги Гарри и Хелен Куперы с дочерью Карен, а также возлюбленные Том (   Читать дальше...   )Жанр: Ужасы, ТриллерРежиссер: Джордж А. РомероАктеры: Дуэйн Джонс, Джудит О’Ди, Карл Хардмен, Мэрилин Истман, Кит Уэйн, Джудит Ридли, Кира Шон, Чарльз Крэйг, С. Уильям Хинцмен, Джордж КосанаПеревод: Профессиональный (двухголосый, закадровый)Субтитры: Русские, Английские (отдельно)Продолжительность: 01:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C650557E97C3342191F98CF1A6E3D25A9BEFD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 251224   (6716) от 21.08.2025
+
+Галактика ТНХ-1138 / THX 1138 (1971) BDRip [Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр социальной фантастики довольно часто затрагивает подобные темы. Мрачно и безысходно рисуется мир будущего, в котором всем заправляет какая-нибудь бездушная машина, ставящая перед собой неясные, но явно негуманные цели, а люди совершенно потеряли дух свободы и способность к самостоятельному существованию. Большинству даже нравится, ведь проблем-то никаких. Но (   Читать дальше...   )Жанр: Фантастика, ДрамаРежиссер: Джордж Лукас /George Lucas/Актеры: Роберт Дювалл /Robert Duvall/, Доналд Плезенс /Donald Pleasence/, Мэгги МакОми /Maggie McOmie/, Дон Педро Колли /Don Pedro Colley/, Сид Хэйг /Sid Haig/, Иан Вулф /Ian Wolfe/Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623FEB9DD800F37CAC2907E577FAE535D0DCE5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813018   (6662) от 21.08.2025
+
+Счастливчик Александр / Alexandre le bienheureux (1968) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Александр, молодой и честный фермер, находящийся под гнетом авторитарной жены, работает круглые сутки на полях. Его единственное развлечение - считать птиц и играть на трубе в местном клубе, но и этого жена его лишает, заставляя работать и в выходные. Когда она погибает в автомобильной катастрофе, для Александра наступает праздник!
+Он забрасывает работу и нежится (   Читать дальше...   )Производство: Франция / Films de la Guéville, Gaumont, Les Films de la Colombe, Madeleine FilmsЖанр: драма, комедияРежиссер: Ив РоберАктеры: Филипп Нуаре, Франсуаз Брион, Марлен Жобер, Поль Ле Персон, Цилла Шелтон, Леонс Корн, Пьер Ришар, Жан Содрэ, Жан Карме, Пьер БарнлеПеревод: Одноголосый любительский, Денис МетелевЯзык озвучки: Русский, французскийСубтитры: Русские, английскиеПродолжительность: 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C98622AD4DC18480915C24B324258042C9FC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814558   (5898) от 26.08.2025
+
+Бархатные ручки / Mani di velluto (1979) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Инженер Гвидо Квиллер разбогател на продаже бронированных стёкол для ювелирных магазинов, но тем самым разозлил страховые компании и грабителей. Во время погони за возлюбленной, которой он хотел вернуть забытую сумочку, у мопеда отказывают тормоза и он падает в фонтан. В это время едущая за ним на машине семья воров принимает Квиллера с сумкой в руках за дилетанта, (   Читать дальше...   )Производство: Италия / Capital FilmsЖанр: мелодрама, комедия, криминалРежиссер: Франко Кастеллано, Джузеппе МоччаАктеры: Адриано Челентано, Элеонора Джорджи, Джон Шарп, Ольга Карлатос, Джино Сантерколе, Мемо Диттонго, Ания Пьерони, Джанкарло Тондинелли, Пиппо Сантонастасо, Джанни ДзуллоПеревод: Многоголосый профессиональный, двуголосый профессиональный, одноголосый любительскийЯзык озвучки: Русский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25E57E64FEE200ABD79DE358EC42B71F059224A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815738   (4798) от 01.09.2025
 
 Лучшие годы нашей жизни / The Best Years of Our Lives (1946) BDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

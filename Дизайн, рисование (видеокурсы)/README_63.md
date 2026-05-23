@@ -1,3 +1,81 @@
+###  Публикация: 1569211   (210674) от 12.08.2022
+
+Gumroad, Zak Boxall | REALISTIC Creature Texturing Painting Tutorial Using Mari – By Zak Boxall (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В индустрии практически невозможно сделать ассет без фото-референсов, и этот курс сфокусируется как раз на фотореалистичных текстурах. Мы не будем создавать их из головы, вместо этого мы воспользуемся фотографиями в качестве направления работы и вдохновения. Разберем фотографии и на основе исследования сделаем наши текстуры, попутно составив план по работе над ассетом. (   Читать дальше...   )Производство: GumroadЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A4DE3206D703C9B50FB2626B26CEB7948394A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569212   (210637) от 12.08.2022
+
+Mackley Studios, Chris Tedin | Autodesk Maya Mythical Creature Animation (2017) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы поговорим об анимации дракона и рассмотрим ее с точки зрения комбинации четвероногих и крылатых персонажей. Сначала мы рассмотрим основную структуру крыла и то, как оно функционирует, сделав это на реальном примере: мы создадим простой геометрический объект и разберем строение крыла, анимируем, настроим ключевые кадры и основные позы. Мы будем опираться (   Читать дальше...   )Производство: Mackley StudiosЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8684932457BAA495A80D99A66C4E6D12F07A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566898   (210628) от 12.08.2022
+
+Skillshare, Darrin Lile | Create a Victorian Room with Blender and Substance Painter (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете, как создать детализированную сцену интерьера комнаты в викторианском стиле, используя инструменты и методы, которые в равной степени применимы как к анимации, так и к видеоиграм. Мы будем использовать Blender для создания 3D-моделей мебели, аксессуаров и структуры комнаты. А затем мы будем работать над UV-развётркой всех 3D-объектов, подготавливая (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 18:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A53288D8145537A9746308B15FDAD4AD8678ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569435   (210562) от 13.08.2022
 
 CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [EN, RU]
@@ -6,7 +84,7 @@ CGMA, Sean Mcewan | Procedural Modeling for Production in Houdini (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Art of Aaron Blaise, Aaron Blaise | How to Draw: Drawing Human Anatomy (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Yiihuu, wingfox, Zaoeyo | Masterclass Motion Graphic Animation in Cinema 4D (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Vertex Workshop, Ackeem Durrant | Character Creation For Games by Ackeem Durrant
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +244,7 @@ Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +271,7 @@ Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -220,7 +298,7 @@ Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +325,7 @@ SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +351,7 @@ Gumroad, Frank Tzeng | Zbrush BPR RENDERING package (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -302,7 +380,7 @@ Schoolism, Nathan Fowkes | Environment Design Workout with Nathan Fowkes (2022) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -329,7 +407,7 @@ Granich.Design, Вадим Гранич | Графсистема Swiss (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -357,7 +435,7 @@ Granich.Design, Вадим Гранич | Графсистемы Брутали�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +461,7 @@ Antipin-STUDIO, Виталий Антипин | Искусство портре�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +490,7 @@ Udemy, David Bittorf | Substance Painter for Beginners - creating normal maps (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +516,7 @@ Pluralsight, Nathan Glemboski | Creating Hand Painted Textures in Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -464,7 +542,7 @@ Artilike, Любовь Титова | Акварельный Новогодни�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -493,7 +571,7 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,7 +597,7 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -545,7 +623,7 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +650,7 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,7 +677,7 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -610,86 +688,6 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0BA79F9FF1E6832A53CD1B2F402B601A0915BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607082   (209058) от 25.01.2023
-
-FlippedNormals, Tyler Smith | Creating a Realistic Ocean in UE4 (2022) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давайте откроем шлюзы и позволим информации об игровых художественных эффектах затопить нас! В этом курсе вы познакомитесь с основами использования динамических материалов и частиц для создания окружающей среды - в данном случае с эффектами воды и океана. Первая половина этого курса представляет собой полное пошаговое руководство по созданию элементов шейдера океана (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 07:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C23312814D544455540262BBAD1E325CF5E867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574008   (209046) от 03.09.2022
-
-Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание убедительных материалов ткани — всегда, своего рода, вызов/испытание, поэтому специалист Alex Beddows посвятил определенное время, чтобы разобраться в нюансах разработки этих материалов.
-В данном курсе Alex продемонстрирует как разработать базовые формы в Blender, а затем будет рассмотрена схема формирования материала в Substance Designer с объяснением всех (   Читать дальше...   )Производство: Exp-PointsЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1F9ADBD40A34691CB74301B02D1F694411D5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574005   (209045) от 03.09.2022
-
-Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо известный своими безумными экспериментами в Substance Designer и своим поразительным вниманием к мелочам, Эрик в партнерстве с Levelup.Digital сделал для вас разбор своего процесса работы. В этом полностью озвученном пошаговом уроке Эрик создаст щупальца осьминога от начала и до конца.
-Узнайте о том, как Эрик анализирует справочные материалы, как подходит (   Читать дальше...   )Производство: Levelup.DigitalЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB48E5ADF8D8348001488613CC0A85F950E9A6FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

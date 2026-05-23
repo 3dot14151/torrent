@@ -1,3 +1,193 @@
+###  Публикация: 1267702   (228310) от 09.12.2018
+
+Веном / Venom (2018) BDRip [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Что если в один прекрасный день в тебя вселяется существо-симбиот, которое наделяет тебя сверхчеловеческими способностями? Вот только Веном — симбиот совсем недобрый, и договориться с ним невозможно. Хотя нужно ли договариваться?.. Ведь в какой-то момент ты понимаешь, что быть плохим вовсе не так уж и плохо. Так даже веселее. В мире и так слишком много супергероев! (   Читать дальше...   )Производство: США, Columbia Pictures Corporation, 	Marvel Entertainment, Sony Pictures EntertainmentЖанр: Боевик, Фантастика, Триллер, УжасыРежиссер: Рубен ФляйшерАктеры: Том Харди, Мишель Уильямс, Марчелла Браджио, Вуди Харрельсон, Дженни Слейт, Риз Ахмед, Мак Брандт, Рон Сепас Джонс, Мишель Ли, Мелора УолтерсПеревод: Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские, АнглийскиеПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D325EE6DA71448FF4034A91F961882255576A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512413   (228252) от 26.11.2021
+
+Xiaomi вслед за Apple позволит ремонтировать смартфоны дома
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Xiaomi объявила о запуске программы Xiaomi Cares, посвященной самостоятельному ремонту смартфонов. Об этом сообщает издание GSM Arena.В анонсе индийского подразделения корпорации в Twitter говорится, что пользовательский опыт всегда был на первом месте для компании. «Теперь мы поднимаемся на ступеньку выше, только для вас», — уточняется в сообщении. Xiaomi India (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 851182   (228107) от 18.12.2014
+
+Александр Заморин | Зеркалка Nikon. Живая инструкция по съеме красивых фотографий (2014) CamRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На любительскую зеркалку можно делать снимки профессионального уровня или на профессиональную любительские - всё зависит от вашей технической подготовки.
+
+Точная фокусировка, выдержка, диафрагма, ISO, вспышка, RAW и все отальные технические тонкости впервые будут разбираться на примере вашего фотоаппарата - вам лишь останется повторить всё увиденное, чтобы получить (   Читать дальше...   )Жанр: Фотоаппарат инструкцияПродолжительность: 02:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95E825D76A2BA7C28BBE8E071EDD5E7469608E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625756   (228084) от 29.07.2023
+
+Ноутбук 1, Ассоциация Сервисных Центров, Алексей Виолин, Феликс Борьков | Станьте мастером по ремонту ноутбуков с доходом от 80 000 до 250 000 ₽ в месяц (2022) WEB-DL [AD] [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Курс от ведущего сервисного центра по ремонту ноутбуков в России
+Знания, с которыми можно ремонтировать до 80% ноутбуков
+Материал включает отдельный курс по пайке.Производство: Ноутбук 1, Ассоциация Сервисных ЦентровЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 18:58:29Реклама: В части видео присутствуют наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A855D9753D682578DB632ADB3F989BE1C45D2D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512531   (228013) от 26.11.2021
+
+Microsoft Operating Systems on One Flash Drive Release by StartSoft 09-2021 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютерные машины операционных систем Windowx XP SP3, Windows 7 sp1, Windows 8.1 Update, Windows 10 и Windows 11 с разной архитектурой разрядности. Их установка может быть с русскоязычным, либо с англоязычным интерфейсами. В состав сборки входит загрузочный образ ISO который предназначен для распаковки его содержимого на выносной (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DDCBBC337579DC49594029544AD03CAF8BCA8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246802   (227962) от 18.12.2013
+
+Гарри Поттер: Гексалогия / Harry Potter: Hexalogy (2001,2002,2004,2005,2007,2009) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Документальный
+
+Джоан Роулинг желает вам приятного просмотра и рекомендует так же посмотреть Документальный фильмРежиссер: Дэвид ЙэтсПеревод: Профессиональный (полное дублирование)Субтитры: Russian, English
+
+IMDB Rating: 7.3/10 (69,936 votes)Формат: MKVПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341667   (227830) от 29.11.2019
+
+uTorrent 3.5.5 Build 45449 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от трекера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2CB318A76E2FD05301753BA83503D5428B2ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341691   (227754) от 29.11.2019
 
 Ирландец / The Irishman (2019) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
@@ -6,7 +196,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +222,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0/dlc) Repack DjDI
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -87,7 +277,7 @@ Windows 10 Enterprise LTSB 2016 v1607 x64  by Zosma 10.12.2018 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -116,7 +306,7 @@ Bishoujo Senshi Sera Mun Kurisutaru / Pretty Guardian Sailor Moon Crystal / Пр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -142,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -168,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -194,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -220,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -246,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +540,7 @@ Frostpunk (2018) [Ru/Multi] (1.6.1_51852_59618/dlc) License GOG [Game of the Yea
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +619,7 @@ Windows 11 22H2 (22621.674) x64 (6in1) by Brux [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -492,192 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B02478AC643B91F7DFDBF3EBAC92AF8CA0EE71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199359   (225291) от 11.12.2018
-
-Сергей Медведев. Загадки века (2018) SATRip (сезон 3, серий 36 из 36)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот документальный цикл рассказывает о событиях, которые оставили важный след в мировой истории и имеют непосредственное отношение к нашей стране. Сериал основан на подлинных фактах, полученных из недавно открытых архивов ФСБ, СВР и РГВИА. Кроме этого в каждом фильме будут выдвинуты версии, во многом меняющие ранее существующее представление о том или ином событии. (   Читать дальше...   )Телекомпания: Россия, ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, история, расследованиеПродолжительность: 36 х ~ 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6141AA96B5EC919EE470674A1FE5B54471E3DE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587161   (225232) от 09.12.2012
-
-The Bat! Professional 5.3.4 Final RePack (& Portable) by KpoJIuK [MULTi / Русский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225232.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bat! - популярный клиент электронной почты; программу используют более шести миллионов пользователей сети Интернет; программа позволяет работать с неограниченным количеством почтовых ящиков, использовать мощные средства фильтрации писем, шаблоны сообщений, диспетчер писем и многое другое. The Bat! Professional Edition оснащен всеми свойствами версии Home. Кроме того, в этой версии присутствуют дополнительные опции, которые понадобятся продвинутым пользователям.
-
-(   Читать дальше...   )Название программы: The Bat! ProfessionalЯзык интерфейса: MULTi / Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586490   (224958) от 09.12.2012
-
-Соловей-Разбойник (2012) [1080p] BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224958.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о дерзком романтике Соловьёве Севастьяне Григорьевиче, cтупившем по зову крови на лихую стезю русского разбоя. И пока спецслужбы во главе с секретным агентом Н7 пытаются ликвидировать банду Соловья-Разбойника, он, со свойственным ему драйвом и озорством, восстанавливает в родном краю справедливость. Но рано или поздно любой «сказке» приходит конец….Жанр: Боевик, Комедия, КриминалРежиссер: Егор БарановПродюсер: Любовь Калинская, Виктор Алисов, Геннадий МеркуловАктеры: Иван Охлобыстин, Евгений Стычкин, Оксана Фандера, Игорь Жижикин, Сергей Бадюк, Александр Стриженов Павел Прилучный, Мария Голубкина, Александр Сухинин, Михаил Горевой, Вадим Демчог, Петр Винс, Даниил Меркулов, Любовь Макеева, Дмитрий ШевченкоПеревод: Не требуется (русский)Продолжительность: 01:31:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965345   (224928) от 14.12.2015
-
-SteamOS 2015.10.28 [x86, x86-64] (1xDVD, 1xUSB)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224928.jpg" />
-</div>
-
-
-###  Подробнее
-
-SteamOS — операционная система, основанная на Linux. Разрабатывается корпорацией Valve специально для Steam. Ориентирована на запуск игр на экране телевизора.
-
-Разработчики утверждают, что в SteamOS значительно улучшена производительность обработки графики. Ведутся работы над обработкой звука, а также уменьшением задержки при использовании средств ввода на уровне (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800B010DC262ECA3B1B06AFC31CCEAA9D2A2BA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587124   (224882) от 09.12.2012
-
-FarCry 3 Deluxe [WineSkin] 18+
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, Джейсон Броди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Васа. Начиная с этого момента, ваша задача – выжить любой ценой. Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой кровь, свинец и наркотики льются рекой. Одни психопаты сражаются с другими, и вскоре главный герой уже не в силах отличить наркотический сон от бредовой реальности. (   Читать дальше...   )Тип издания: MacOS X portРелиз состоялся: 2012 г.Разработчик: Ubisoft Montreal, Ubisoft MassiveЖанр: Action (shooter), 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587E20AF2A7A9A3DF6ED0A3DBA95B42F3DB8B87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965495   (224818) от 14.12.2015
-
-RusTV Player 3.1 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224818.jpg" />
-</div>
-
-
-###  Подробнее
-
-RusTV Player - программа для просмотра телевизионных каналов онлайн интернет телевидения на русском языке. Программа полностью бесплатная очень простой и удобный интерфейс, полностью на русском языке, все готово для просмотра российских ТВ-каналов. Все что нужно для просмотра - это подключенное соединение с Интернет. Просмотр телеканалов возможен как в полноэкранном (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB3FF5C621A0D38640A074D1F3D065B968D557D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965381   (224784) от 14.12.2015
-
-Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7163.5000 SP2 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0517642B157F12CA5DDA3BA9E1DCAB6B3048FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

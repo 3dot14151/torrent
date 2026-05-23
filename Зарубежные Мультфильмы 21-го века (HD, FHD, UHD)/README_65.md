@@ -1,3 +1,81 @@
+###  Публикация: 822853   (475119) от 20.09.2014
+
+Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of Awesome! (2014) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В самом мееееедленном городке мира четверо счастливчиков обнаруживают, что жизнь становится намного интересней, если слегка... поддать газку! Познакомьтесь с Гейджем, Уайеттом, Брэндоном и Рэттом. Эти ребята рождены для гонок. Поодиночке они отлично подготовленные рэйсеры, но вместе становятся настоящей КОМАНДОЙ ХОТ ВИЛС! Однажды по городу с ревом проносится загадочная (   Читать дальше...   )Производство: СШАЖанр: ДетскийРежиссер: Метт ДеннерПерсонажи: Грант Джордж, Дэвид Лодж, Николас Ройе, Бен Дискин, Фарук ТаухидПеревод: Дублированный (Лицензия)Продолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAC9A1D32FBFBF9F2E6186806AB172635B57868
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 822889   (475113) от 20.09.2014
+
+Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of Awesome! (2014) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В самом мееееедленном городке мира четверо счастливчиков обнаруживают, что жизнь становится намного интересней, если слегка... поддать газку! Познакомьтесь с Гейджем, Уайеттом, Брэндоном и Рэттом. Эти ребята рождены для гонок. Поодиночке они отлично подготовленные рэйсеры, но вместе становятся настоящей КОМАНДОЙ ХОТ ВИЛС! Однажды по городу с ревом проносится загадочная (   Читать дальше...   )Производство: СШАЖанр: ДетскийРежиссер: Метт ДеннерПерсонажи: Грант Джордж, Дэвид Лодж, Николас Ройе, Бен Дискин, Фарук ТаухидПеревод: Дублированный (Лицензия)Продолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2E47369BDD18BC2A2F14DC389DAA0FF0C76F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160534   (473511) от 25.08.2017
+
+Капитан Подштанник: Первый эпический фильм / Captain Underpants: The First Epic Movie (2017) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Двое учеников начальной школы загипнотизировали директора школы так, что он стал супергероем, помогающим их одноклассникам.Производство: США, DreamWorks Animation, Scholastic ProductionsЖанр: Мультфильм, Боевик, КомедияРежиссер: Дэвид СоренПерсонажи: Эд Хелмс, Кевин Харт, Ник Кролл, Томас Миддлдитч, Джордан Пил, Кристен Шаал, Ди Ди Решер, Брайан Посен, Дэвид Сорен, Мэл Родригез ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFF07B6A07677D5464F1DC74590F401840F1C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 823780   (473010) от 21.09.2014
 
 Планета 51 / Planet 51 (2009) BDRip [720p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ Angry Birds в кино / The Angry Birds Movie (2016) UHD BDRip [H.265/2160p]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BF18239BAD2B1F04F2D9BF9D4C557CC087DC064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940629   (463899) от 26.09.2015
-
-Легенды ночных стражей / Legend of the Guardians: The Owls of Ga’Hoole (2010) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миром, в котором уже не осталось людей, правят совы… добрые… злые… как и всегда! В волшебном лесу - королевстве сов Тито - на Великом Дереве Га`Хуул, где разумные совы живут в гармонии, наступают мрачные времена. Королевство подвергается страшной опасности со стороны соседних жестоких правителей, и эта опасность грозит уничтожить привычное мироздание...Производство: США / Австралия (Warner Bros. Pictures / Animal Logic)Жанр: Фэнтези, приключения, мультфильмРежиссер: Зак СнайдерАктеры: Джим Стерджесс, Джоэл Эдгертон, Хьюго Уивинг, Эдриэнн ДеФариа, Ричард Роксбург, Дэвид Уэнэм, Хелен Миррен, Мириам Марголис, Сэм Нил, Джеффри РашПеревод: Дублированный, Одноголосый закадровыйЯзык субтитров: русский, английский, французкий, португальский, испанский, вьетнамскийПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E5A84605B27D127AE3D27D38A6033228BB0239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568387   (463670) от 07.08.2022
-
-Удача / Luck (2022) UHD WEB-DLRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм Гринфилд — самая невезучая девочка в мире. Внезапно оказавшись в волшебной Стране Удачи, она объединяется с населяющими её существами, чтобы вернуть себе удачу.Производство: США, Испания / Skydance Animation, Paramount Pictures, Apple Original FilmsЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Пегги ХолмсАктеры: Мэйсон Темз, Мадлен Макгроу, Итан Хоук, Джереми Дэвис, Э. Роджер Митчелл, Трой Радсил, Джеймс Рэнсон, Мигель Казарез Мора, Ребекка Кларк, Дж. Гэйвен УайлдПеревод: Дублированный (Невафильм)Субтитры: русские (forced, full, SDH), английские (full, SDH)Продолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C850FBB652A86F9EF60F16AF980795F377A5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058912   (463600) от 03.10.2016
-
-Кингсглейв: Последняя фантазия XV / Kingsglaive: Final Fantasy XV (2016) BDRip [H.264/720p] [hand made 48fps]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное королевство Люцис является домом для священного Кристалла, но враждебная империя Нифльхейм не остановится ни перед чем, чтобы захватить реликвию. Король Люциса Регис возглавляет элитный отряд солдат, именуемых «Кингсглейв». Вооружившись магией короля, Никс Ульрик и его верные товарищи из Кингсглейв становятся на защиту столицы Инсомния, чтобы остановить (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Мультфильм, фантастика, фэнтези, боевик, драма, приключенияРежиссер: Такэси НодзуэАктеры: Аарон Пол, Лина Хиди, Шон Бин, Нейл Ньюбон, Аманда Пиери, Джон Кэмплинг, Адриан Буше, Андреа Тивадар и др.Перевод: Профессиональный (многоголосый закадровый)Язык субтитров: Русский (Full), Английский (Full)Продолжительность: 01:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E83434CAB0B45CC35C53A2A1FDBCA542918C60
 ```
 
 https://mybot314.ru/tekegram_catalog/

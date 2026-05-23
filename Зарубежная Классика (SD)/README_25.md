@@ -1,3 +1,107 @@
+###  Публикация: 1106695   (868117) от 22.02.2017
+
+Мистер Питкин: Ранняя пташка / The Early Bird (1965) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Норман работает на старой,забытой Богом,маслобойне,все оборудование которой медленно,но верно приходит в полную негодность. А вокруг,между тем,кипит жизнь-технический прогресс уверенно наступает со всех сторон. И тогда Норман решает во что бы это не стало отстоять свою древнюю маслобойню.Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Эдвард Чэпман, Джерри Десмонд, Пэдди О’Нил, Брайан Прингл, Ричард ВернонПеревод: Одноголосый закадровыйСубтитры: НетПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D128DD4D1A90D39DEB3FDCB4B30E8024D3E9F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107402   (867998) от 22.02.2017
+
+Мистер Питкин: Порода бульдог / The Bulldog Breed (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любой человек достоин любви. Даже самый никчемный и невезучий. Помощник бакалейщика Норман очень хотел любить и быть любимым, но… со вторым пунктом ему явно не повезло. От отчаяния и безысходности он вербуется на службу в Военно-Морской Флот Ее Величества. Тут-то и начинается самое интересное…Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Иэн Хантер, Дэвид Лодж, Роберт Эркарт, Эдвард Чэпман, Эдди Бирн, Питер Джонс, Джон Ле Мезюрье, Теренс Александр, Сидни ТэфлерПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBED417552E56A0EB7A9E35C312AC982DAB7447E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107531   (867996) от 22.02.2017
+
+Мистер Питкин: Неприятности в лавке / Trouble in Store (1953) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Норман работает мелким клерком в огромном лондонском универмаге. Работа скучная, неинтересная, малооплачиваемая. Но есть один плюс - вокруг много красивых девушек, в одну из которых наш герой и влюбляется. А потом начинаются настоящие приключения. Оказывается, шайка преступников готовится ограбить универмаг...Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Джон Пэдди КастэйрсАктеры: Мойра Листер, Мегс Дженкинс, Маргарет Разерфорд, Майкл Уорд, Майкл Бреннан, Лана Моррис, Джон Уоррен, Джон Уорвик, Джоан Симс, Джоан Ингрэм, Джерри Десмонд, Дерек Бонд, Эсма Кэннон, Сирил Чемберлен, Норман УисдомПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63202C4F06AE73481419B1F9D1E57BF9BF1DCF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992730   (867786) от 20.03.2016
+
+Нож в воде / Noz w wodzie (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Семейная пара отправляется на собственной яхте на прогулку по Мазурским озёрам. Случайно их путь пересекается с молодым человеком без гроша в кармане, которого супруги берут на яхту в качестве попутчика. Между двумя мужчинами возникает соперничество, и не в последнюю очередь за внимание женщины. Муж старается произвести на паренька впечатление своим гламурным образом (   Читать дальше...   )Производство: Польша, Творческое объединение «Камера»Жанр: ДрамаРежиссер: Роман ПоланскиАктеры: Немчик, Йоланта Умечка, Зигмунт Малянович, Анна Чепелевская, Роман ПоланскиПеревод: Многоголосый закадровый, одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD2028DF0F2728FA29724572E29D94109F39AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105919   (867698) от 22.02.2017
 
 Мистер Питкин: Вверх тормашками / Up in the World (1956) DVDRip
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5798A221EE2DD1186A403AC724B92A920B5FFDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304321   (859881) от 05.03.2011
-
-Займемся любовью / Let's Make Love (1960) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллиардер Жан-Марк Клеман — потомственный бизнесмен и привлекательный мужчина. Он умеет делать деньги и очень любит женщин. Жан-Марк привык блистать в обществе и считает, что для него нет ничего невозможного.
-Получив шокирующее известие о том, что он — «гений бизнеса» — станет объектом насмешек в юмористическом спектакле, Клеман решает самостоятельно разобраться (   Читать дальше...   )Производство: США / Jerry Wald ProductionsЖанр: Мюзикл, Мелодрама, КомедияРежиссер: Джордж КьюкорАктеры: Мэрилин Монро, Ив Монтан, Тони Рэндалл, Фрэнки Вон, Уилфрид Хайд-Уайт, Дэвид Барнс, Майкл Дэвид, Мара Линн, Дэннис Кинг мл., Джо БессерПеревод: Многоголосый закадровыйПродолжительность: 01:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59444F4C320875797691DE57C1CCFD90C00432FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108678   (859082) от 27.02.2017
-
-Мистер Питкин на эстраде / Следуй за звездой / Follow a Star (1959) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный певец теряет голос перед важным мероприятием. Услышав пение мистера Питкина, тенор решает записать его голос на диктофон и выдать его музыкальное произведение за свое. Но не так просто заставить мистера Питкина спеть...Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом / Norman Wisdom, Джун Лэверик / June Laverick, Джерри Десмонд / Jerry Desmonde, Хэтти Жак / Hattie Jacques, Ричард Уоттис / Richard Wattis, Эдди Лесли / Eddie Leslie, Джон Ле Мезюрье / John Le Mesurier, Сидни Тэфлер / Sydney Tafler, Фенелла Филдинг / Fenella Fielding, Чарльз Хеслоп / Charles HeslopПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C55DAC418EC3710CAD2B88E42474836FF5D36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108670   (859080) от 27.02.2017
-
-Мистер питкин. В ногу (Питкин на дежурстве) / On the Beat (1962) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман хочет пойти по стопам отца и тоже стать полицейским, но проваливает вступительные тесты. Тем не менее, однажды он достает старую униформу отца и, надев ее, изображает бывалого полицейского. В результате - хаос, который мог вызвать только Питкин.Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Дженнифер Джейн, Рэймонд Хантли, Дэвид Лодж, Эсма Кэннон, Эрик Баркер, Элинор Саммерфилд, Ронни Стивенс, Теренс Александр, Морис КауфманПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C188D6706663DB703D475FF6F33C1DB79345F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108559   (859018) от 27.02.2017
-
-Мистер Питкин на эстраде / Следуй за звездой / Follow a Star (1959) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный певец теряет голос перед важным мероприятием. Услышав пение Нормана Траскотта, тенор решает записать его голос на диктофон и выдать его музыкальное произведение за свое. Но не так просто заставить Нормана спеть...Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом / Norman Wisdom, Джун Лэверик / June Laverick, Джерри Десмонд / Jerry Desmonde, Хэтти Жак / Hattie Jacques, Ричард Уоттис / Richard Wattis, Эдди Лесли / Eddie Leslie, Джон Ле Мезюрье / John Le Mesurier, Сидни Тэфлер / Sydney Tafler, Фенелла Филдинг / Fenella Fielding, Чарльз Хеслоп / Charles HeslopПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043CF1F3C0100248A60813E513E16E3011A8977E
 ```
 
 https://mybot314.ru/tekegram_catalog/

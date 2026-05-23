@@ -1,3 +1,109 @@
+###  Публикация: 1502512   (826231) от 15.10.2021
+
+Akatsuki no Yona | Yona of the Dawn | Рассвет Ёны | Красноволосая Ёна | Йона на заре [2015, OVA, 3 + 1] BDRip 720p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Бонусы к эксклюзивным ограниченным изданиям 19-го, 21-го и 22-го томов манги.
+В основу первого эпизода положены две доп. главы 12-го тома: «На его спине», рассказывающая об инциденте в отеле на горячих источниках; и «Киджя», повествующая о прошлом Белого Дракона.
+В основе второго и третьего эпизодов - предыстория Зэно, Жёлтого Дракона.Производство: Studio Pierrot / studioぴえろЖанр: приключения, фэнтези, романтикаРежиссер: Ёнэда КадзухироПеревод: sys3x, Xellos SlayerЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 3 эп. по 25 мин. + 1 спешиал на 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B2A4D7A84649C5EBEAD8B6CEC6123D9B4EBF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379769   (825620) от 07.05.2020
+
+OreGairu | Yahari Ore no Seishun Lovecome wa Machigatte Iru | Жизнь - Любовное Кино, но какое-то не то... [TV-1] [2013, TV, 13 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Эта история об одном необщительном юноше, Хачимане Хикигае. У него свой искажённый взгляд на жизнь, поэтому не завёл себе парень ни друзей, ни подружки. Всё это, цинично считает он, лживая клоунада, а потому его не касается, ему не нужно. Хикигая учится в старшей школе и, когда видит одноклассников, возбуждённо обсуждающих свою бурную подростковую жизнь, по обыкновению (   Читать дальше...   )Производство: Brains Base, ЯпонияЖанр: Комедия, Романтика, ПовседневностьРежиссер: Ёсимура АйОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724C986ACA3ACE3867D35EBFBBB7AD18CAA72C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379770   (825619) от 07.05.2020
+
+OreGairu 2 | Yahari Ore no Seishun Lovecome wa Machigatte Iru. Zoku | Жизнь - Любовное Кино, но какое-то не то... [TV-2] [2015, TV, 13 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Хачиман Хикигая — ученик старшей школы без друзей и каких-либо интересов — был вынужден присоединиться к клубу помощи и постепенно оказался втянут в череду школьных событий, неоднозначно раскрывающих его личностные качества. «Серый кардинал», непризнанный гений или обыкновенный подросток, нуждающийся в друзьях... Да ещё эта неудачная первая влюблённость, которая (   Читать дальше...   )Производство: Feel, ЯпонияЖанр: Комедия, Романтика, ПовседневностьРежиссер: Ойкава КэйОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691B08EA5408E8E7FE761A4375AFC55F6467FA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373532   (825618) от 07.05.2020
+
+Redline | Красная Черта [2009, Movie] BDRip 1048p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«Красная черта» — самый масштабный и смертельный гоночный турнир во Вселенной. И, так как проводится он раз в пять лет, каждый хочет попытаться снискать славы и принять участие в нём. Среди таких желающих и Джей Пи, безрассудный смельчак-гонщик, который не обращает внимание на скоростные ограничения, мчась на своём тюнингованном авто. В то же время все криминальные (   Читать дальше...   )Производство: Madhouse Studios, ЯпонияЖанр: Приключения, Фантастика, РомантикаРежиссер: Койкэ ТакэсиОзвучка: Двухголосая, Многоголосая закадровая, ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 01:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355BD76D6EE380024848A7B288E7A8BBCA58E7BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381487   (825617) от 07.05.2020
 
 Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +112,7 @@ Berserk | Берсерк [TV-2+TV-3] [2016-2017, TV, 24 ep] BDRip 1080p HEVC 10-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Violet Evergarden | Виолетта Эвергарден [2018, TV, 13 ep + 1 s
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -138,7 +244,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +298,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -219,7 +325,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -245,7 +351,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +377,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +429,7 @@ Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный ми
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -350,7 +456,7 @@ Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -376,7 +482,7 @@ Altered Carbon: Resleeved | Видоизменённый углерод: Вос�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +508,7 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +534,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +560,7 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +586,7 @@ Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +638,7 @@ Strike the Blood | Удар Крови [TV-1] [2013, TV, 24 ep] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +664,7 @@ Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,113 +675,6 @@ Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89B937D204E9C6ED423C75ED8D5D36B40BCC2C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656912   (816273) от 29.03.2015
-
-Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! / Одна из них – моя сестра! [2012, TV, 12 ep + SP] BDRip Hi10p 720p Raw+Rus x5(ext)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816273.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти отца 17-летний Сёго Микадоно стал наследником огромной корпорации. Впрочем, чтобы окончательно вступить в права, он должен выполнить два условия завещания покойного родителя – окончить престижную академию и… еще до выпуска найти подругу на всю жизнь, чтобы вступить в мир большого бизнеса женатым и солидным человеком. Будучи нормальным молодым мужчиной, Сёго не против ни того, ни другого, тем более что заботливая мать уже сняла сыну апартаменты для «укрепления отношений». В новой школе девушки из (   Читать дальше...   )Жанр: комедия, эттиРежиссер: Нава МунэнориФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7B84AE232200BF0A06C59D9176D53818F43C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503910   (815394) от 21.10.2021
-
-Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Eternal the Movie | Красавица-воин Сейлор Мун: Вечность [2021, Movie, 2 из 2] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Темная сила окутывает землю после полного солнечного затмения, и воины в матросках должны объединиться снова, чтобы вернуть миру свет.
-
-Фильм 1: После полного солнечного затмения в городе появляется мрачная цирковая труппа. Мамору мучает таинственный недуг, и повсюду начинают происходить странные события.
-(   Читать дальше...   )Производство: Toei Animation / 東映アニメーション, Studio Deen / スタジオディーンЖанр: приключения, фэнтези, махо-сёдзёРежиссер: Кон ТиакиПеревод: Джулия ШипинаЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 2 фильма по 80 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE4F1D6DEAE6C4CBE61A5E726F347A21952B282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382936   (814668) от 13.05.2020
-
-Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майка Сакураномия — обычная школьница, которая пытается найти подработку, чтобы поехать обучаться за границу. Только вот девушке постоянно отказывают из-за её «особенного» взгляда... После очередного проваленного собеседования Майка, возвращаясь домой, натыкается на Дино, озабоченного темноволосыми девушками менеджера, который предлагает ей работу в кафе «Stile». (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Комедия, ПовседневностьРежиссер: Масуяма РёдзиОзвучка: Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA0E82E1C8D198941D15471C8EBED45E2F1E7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360462   (814667) от 13.05.2020
-
-Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Порядковый Ранг [2017, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814667.jpg" />
-</div>
-
-
-###  Подробнее
-
-2026 год, на смену «Амусферы» приходит «Augma» — устройство расширенной реальности, которая вместо функции «полного погружения», использует дополненную реальность, что делает процесс использования устройства безопаснее и удобнее. Благодаря этому новое устройство расширенной реальности получило большую популярность, а вместе с ней и «Ordinal Scale» — ARMMORPG, разработанная (   Читать дальше...   )Производство: A-1 Pictures, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Ито ТомохикоОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 02:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A36E1D4AEBD695EAD7F2DCF5E549EBC2EBBF248
 ```
 
 https://mybot314.ru/tekegram_catalog/

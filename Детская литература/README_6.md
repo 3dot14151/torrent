@@ -1,111 +1,3 @@
-###  Публикация: 1462727   (1021035) от 15.04.2021
-
-Наталья Немцова | Читаем сами без мамы. Сказки для почемучки (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир сказок занимателен и разнообразен! Его яркие образы позволяют раскрыть перед ребёнком самые сложные темы, сделать скучное — захватывающим, непонятное — предельно ясным. Сказочное слово быстрее достигает сознания малыша и навсегда сохраняется в памяти. В этой книге собраны небольшие познавательные сказки, которые малыш легко и с удовольствием прочитает сам. Крупные (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726059B39AEAA43331C874FC7E484ADC4F1DA625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450748   (1021028) от 15.04.2021
-
-Цербер Джонс | Гостиница «Портал» [3 книги] (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цербер Джонс – авторский коллектив, в который входят: Крис Морфью, Рован Маколи и Дэвид Хардинг.
-
-Крис Морфью главный архитектор гостиницы «Портал». Его задача состоит в том, чтобы объединять идеи команды воедино, создавая удивительные, непредсказуемым образом закрученные сюжеты для будущих историй. Его опыт работы над серией приключений «Сила Зака» и созданные им (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E999E85E685C35E015DB2318AD541144DD2E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 746572   (1020986) от 15.04.2021
-
-А. Донченко | Школа над морем (1940) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой рыбацкий поселок на берегу Черного моря. Тут живут герои повести «Школа над морем» — ученики шестого класса. Один из них, Олег Башмачный, случайно узнает, что старый школьный сторож Кажан помогает шпионам переходить границу...
-Об увлекательных, захватывающих событиях вы узнаете, прочитав эту книгу, рассказывающую о мужестве и чести пионеров.Жанр: Детская остросюжетнаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F13023DEC22C9D64F14947321CE42CDAB6ECC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462987   (1020875) от 16.04.2021
-
-Сергей Михалков | Я читаю сам! Три поросёнка и другие сказки (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Три поросёнка и другие сказки» С. Михалкова — это отличный способ привить ребёнку любовь к чтению. Впервые знаменитые герои помогут детям научиться бегло читать, ведь в этой книжке большие буквы и слова с ударениями для удобства восприятия текста. А ещё очень много больших цветных иллюстраций.
-Книги из серии «Я читаю сам!» — отличный подарок детям, которые (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804507E603F409755A9DC60C7D1A36FC7F879EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462917   (1020865) от 16.04.2021
 
 Шибел Паундер | Ведьмочки Гламбурга [6 книг] (2018-2020) [FB2, EPUB, MOBI]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -223,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -251,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -305,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -331,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -358,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -438,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -545,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -625,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -652,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -680,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -691,6 +583,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:804D6348AAFE5B13C2614BB8EC8508B4EE431ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465006   (1019504) от 24.04.2021
+
+Ирина Котовская (сост.) | Люблю читать! Рукавичка. Русские сказки (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли сказки "Рукавичка", "Марья Моревна", "Глиняный горшок", "Сивка-Бурка". "Люблю читать!" - это серия сказок для старшего дошкольного и младшего школьного возраста. В каждую книжку серии входят 4 сказки: в первых - наиболее простые и короткие слова, а в последней, самой длинной сказке книги, употребляются (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890E7A35CCCB54B209DF7CFAFC36DCB175B1C32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465066   (1019489) от 24.04.2021
+
+Н. Гусарова (ред.) | Читаем сами без мамы. По щучьему веленью и другие сказки (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Русские народные сказки, собранные в этой книжке, расскажут ребятам истории о ленивом, но добром Емеле и волшебной щуке, об Иванушке-дурачке, который натворил много смешных дел, и о хитроумной лисичке-сестричке и глупом сером волке. Мальчики и девочки прочитают эту книжку самостоятельно, ведь в ней крупный шрифт и все слова с ударениями.
+
+Для дошкольного возраста.Жанр: Детская литература/СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84143B8D2C70E9BD56DA909D2EABA440B38D9F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744930   (1019484) от 24.04.2021
+
+Муза Розенфельд | Три пары деревянных башмаков (1930) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для маленьких.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A0FB736E28DA743201B6C50CF14E706875A98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465001   (1019476) от 24.04.2021
+
+В.Г. Дмитриева (сост.) | Сказочная школа. Маша и медведь. Три медведя (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Приглашаем маленьких читателей в волшебный мир сказок.
+Слушая и читая любимые сказки, дети сопереживают героям, учатся понимать, что такое добро и зло, знакомятся с окружающим миром.
+А интересные задания, собранные в книге, развивают мышление, внимание и речь, помогают научиться рисовать и подготовить руку к письму.
+С героями любимых сказок ребенок будет учиться (   Читать дальше...   )Жанр: Детская литература/Сказка/ГоловоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B50A0C3894785F7CF4647DEF6062A24821F2C1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

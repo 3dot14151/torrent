@@ -1,3 +1,107 @@
+###  Публикация: 1723146   (56569) от 14.05.2024
+
+The Bridge Curse 2: The Extrication / Проклятый мост 2: Эвакуация (2024) [Ru/Multi] (1.6.4) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Bridge Curse 2: The Extrication - продолжение одноименной серии психологических хорроров от первого лица, созданных по мотивам тайваньских городских легенд. События разворачиваются на территории университета Вэнь Хуа, где студенты не раз замечали сверхъестественную активность и убеждены в существовании призраков в стенах своего учебного заведения. В попытках (   Читать дальше...   )Тип издания: RepackРазработчик: SOFTSTAR ENTERTAINMENTЖанр: Приключенческие игрыЯзык озвучки: Английский, Китайский (традиционный)Язык субтитров: Русский, Английский, Тайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Тайский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DA5E27C7E54993DB77116C1AFDF9F1724EEC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723182   (56523) от 15.05.2024
+
+INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+INDIKA - игра от третьего лица с историей о странном мире, в котором религия вступает в противоборство с жестокой реальностью. Игра повествует о молодой монахине, которая отправляется на поиски самой себя бок о бок с рогатым другом. Внешне Индика - обычная, ничем не выдающаяся монахиня. Она всеми силами пытается нести бремя монастырской жизни. Однако скромность и (   Читать дальше...   )Тип издания: RepackРазработчик: Odd MeterЖанр: Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBD419F8957BBCF71D5F479AFBBC04E082DB499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723483   (56359) от 16.05.2024
+
+Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Poltergeist Watcher вдохновленная классическими фильмами о паранормальных явлениях, игра забрасывает вас в старинный особняк, в котором бушует полтергейст. Атмосфера тяжелая, зловещая. Чтобы пережить эту ночь, вам понадобится смекалка. Обязательно нужна наблюдательность. Хорошая память также имеет решающее значение. И, пожалуй, самое главное - непоколебимая сила (   Читать дальше...   )Тип издания: RepackРазработчик: DuckGodЖанр: Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F924F9782A773682F6C7274B341A740182B5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683076   (56331) от 17.05.2024
+
+Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Hollow Cocoon - это приключенческая хоррор игра от первого лица, действие которой разворачивается в Японии 1980-х годов. Попробуйте себя в роли Минато Дзимба (Minato Jinba), студента колледжа, который возвращается в родной город своей матери после того, как получил известие о том, что его бабушка находится в критическом состоянии. Спрячьтесь от монстра и соберите (   Читать дальше...   )Тип издания: SceneРазработчик: NAYUTA STUDIOЖанр: Приключенческие игры, ИндиЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский, Китайский, Японский и другиеЯзык интерфейса: Русский, Английский, Китайский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EBC84893EDE60D1FA48480E0F29FF12F4EC1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723873   (56311) от 17.05.2024
 
 Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
@@ -6,7 +110,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ A Highland Song (2023) [En] (1.2.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Vanishing of Ethan Carter (2014) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jac
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Back Fire – окунитесь с головой в полноценное п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15F336B72C449AD6434B10B8D6397F2599F3DA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727582   (54463) от 03.06.2024
-
-Echoes (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуальная новелла и приключенческая игра в жанре point-and-click, которая отправит вас в увлекательное путешествие по сельскому американскому городку. Разгадайте тайну убийства в Гринхарте, кажущемся сонным городке, хранящем мрачные эльдритские секреты. Великолепные черно-белые иллюстрации, раскрашенные вручную, меняются в зависимости от сюжета: от мягких серых (   Читать дальше...   )Тип издания: SceneРазработчик: Nova-boxЖанр: Приключение, Визуальные новеллыЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727585   (54462) от 03.06.2024
-
-Lesson Learned (2024) [Ru/Multi] (1.023) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lesson Learned – вы, будучи школьником, переноситесь в причудливый мир, попав во временную петлю. Также вместе с вами перемещаются и другие ваши друзья, но они разбросаны по эпохам, а на вас нападают необычные животные. Вам предстоит принять бой и победить врагов, либо они убьют вас.Тип издания: LicenseРазработчик: MadGamesmithЖанр: Приключенческие игры, Казуальные игры, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE9096D050D633B4DD34DD0B7FDB26F554F84C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727649   (54448) от 03.06.2024
-
-Venatrix (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы выбираем играть либо за Мэтью Колта, одержимого оккультизмом исследователя паранормальных явлений, который участвует в кошмарных сценах, чтобы сразиться с несколькими разными ужасающими монстрами из ужасных миров, вдохновленных Лавкрафтом, либо за Деллу Хартфорт, которая тайно скользит, чтобы избежать тех же монстров, которых Мэтью опустошает. его пули. Присоединяйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Playstige InteractiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ЯпонскийЯзык интерфейса: Английский, Немецкий, Французский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727846   (54412) от 04.06.2024
-
-Violet (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violet погружает вас в замок с привидениями, атмосферное приключение, наполненное тайнами и леденящими душу ужасами. Вдохновленная классическим хоррором на выживание, игра обещает незабываемое путешествие сквозь тени и тайны. Разгадайте наследие Марквеллов, вернувшись на 20 лет назад, до событий TRAUMA Broken Paradise.Тип издания: RepackРазработчик: OneManOnly StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED4027227063548234CAE5DE3EAF72A781A5F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 939414   (470974) от 23.09.2015
+
+Дэйв Ульрих, Уэйн Брокбэнк | HR в борьбе за конкурентное преимущество (2015) [EPUB, FB2, MOBI, PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Какой должна быть служба управления человеческими ресурсами в современной компании и что она может ей дать? По мнению авторов настоящей книги, посвятивших изучению этой проблемы многие годы, самое главное в работе HR-службы – это результат, обеспечивающий создание дополнительной рыночной ценности для компании. Они выделили ключевые роли этой службы – защитника интересов (   Читать дальше...   )Жанр: Управление, Подбор персонала, Зарубежная деловая литератураФормат: EPUB, FB2, MOBI, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E7DB1BA44383F9DBF97F7A446FAAEF1872D8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939251   (470800) от 23.09.2015
+
+Лиза Хершман, Майкл Хаммер | Быстрее, лучше, дешевле. Девять методов реинжиниринга бизнес-процессов (2014) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Почему одни компании процветают, а другие – нет? Майкл Хаммер, всемирно известный бизнес-гуру и автор концепции реинжиниринга, и его коллега Лиза Хершман уверены в том, что секрет достижения успеха – в способе организации процессов. В своей книге они показывают, как можно использовать огромный потенциал процессного подхода для увеличения прибыльности компании и повышения (   Читать дальше...   )Жанр: Управление, Подбор персонала, Деловая литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE9828F1465C164C75E3AC89F5FD7A7D07FA07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406798   (470567) от 05.09.2020
+
+В. В. Летуновский | Менеджмент по-Суворовски. Наука побеждать (2014) [PDF, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Автор предлагает уникальную методику обучения руководителей, основанную на принципах прославленного русского полководца А. В. Суворова. По его мнению, на базе суворовской «Науки побеждать» можно создать в компании новую управленческую и деловую культуру, тесно связанную с национальными корнями, а значит, более стабильную и устойчивую к внешним воздействиям. Глазомер (   Читать дальше...   )Жанр: Менеджмент и кадры, Управление персоналомФормат: PDF, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4EFDE6B4FCB6F1EC4CB2B94B4E342C77366016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939371   (470554) от 23.09.2015
 
 Нир Эяль, Райан Хувер | Покупатель на крючке. Руководство по созданию продуктов, формирующих привычки (2014) [FB2, RTF]
@@ -6,7 +84,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -309,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -337,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -365,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -447,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,86 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7AA70DE460579AF6CCBCD13CC1ABED2D2D450D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060904   (446141) от 11.10.2016
-
-Нил Смит, Патриция О'Коннелл | Как компании-лидеры избегают бестолковых решений (2014) [FB2, PDF, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генеральный директор компании по совершенствованию организации производства Нил Смит в своей книге рассказывает о препятствиях, восьми скрытых барьерах, с которыми сталкиваются организации самого разного масштаба – от биржей труда до международных инвестиционных компаний, – и о способах их преодоления. «Помогать и направлять» – вот девиз компании автора настоящего (   Читать дальше...   )Жанр: Бизнес, Общий менеджментПеревод: Г. МаксимюкФормат: FB2, PDF, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFF03B943444B77C5061F162E4EFC03A0FF770A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248040   (446082) от 18.09.2018
-
-В. Чан Ким, Рене Моборн | Переход к голубому океану. За пределами конкуренции (2018) [FB2]
-
->>След.
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как начать процесс перехода к голубому океану? Какие инструменты использовать, чтобы обнаружить новые возможности на рынке? Как определить, какие из стратегий выведут компанию в голубой океан, а какие нет? И, главное, как собрать команду, способную реализовать все запланированное на практике?
-В. Чан Ким и Рене Моборн детально разбирают процесс перехода к голубому (   Читать дальше...   )Жанр: Менеджмент; Деловая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F817B17738FEEF1D77937A7414D2A79A467A1C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 69901   (445904) от 30.08.2019
-
-Кристофер Лавлок | Маркетинг услуг (2005)
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Кристофера Лавлока «Маркетинг услуг: персонал, технология, стратегия» (4 издание) - лучшее и наиболее полное издание по маркетингу услуг из числа переведенных на русский язык. Это пособие призвано стать своеобразной «энциклопедией знаний» для всех маркетологов и топ-менеджеров, работающих в сервисном бизнесе. Книгу характеризуют:
-Четкая ориентация на управление (   Читать дальше...   )Жанр: Маркетинг, МенеджментФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADD41C4E299C117A144C651A7A8F6E09E88CA19
 ```
 
 https://mybot314.ru/tekegram_catalog/

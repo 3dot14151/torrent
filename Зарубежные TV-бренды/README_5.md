@@ -1,3 +1,55 @@
+###  Публикация: 1487009   (1004277) от 02.08.2021
+
+Быстрее света. Мечта о межзвёздных полётах / Faster Than Light: the Dream of Interstellar Flight (2017) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Окунуться в неизвестность, увидеть, что за горизонтом, найти новые звезды, новые миры... Человечество с давних времен мечтает об этом. Сегодня ученые считают, что в нашей галактике находится как минимум 9 миллиардов звездных систем, похожих на Солнечную, с планетами, подобными Земле. Но в процессе поиска других обитаемых миров остается один вопрос. Как мы туда попадем? (   Читать дальше...   )Производство: США, Нидерланды, Spitz Creative Media, Thomas Lucas Production, Mirage3DЖанр: Документальный, наука, космосРежиссер: Томас ЛукасПеревод: Дублированный (Видеофильм ТВ)Субтитры: АнглийскиеПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EFBF3D0B7220385CDD95C50C1FF45CD5E9B24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487197   (1004006) от 03.08.2021
+
+Discovery. Последние дни динозавров / Last Day Of The Dinosaurs (2010) BDRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Почувствуйте себя в гуще событий во время одного из самых драматических событий в истории Земли: гигантские цунами, ужасные метеоритные дожди, невероятной силы землетрясения, извержения вулканов, огненные бури, кислотные дожди и, как результат, - настоящая ядерная зима. Что произошло на нашей планете много тысяч лет назад, когда ее населяли одни динозавры? Почему (   Читать дальше...   )Производство: Великобритания, Канада, Dangerous Films, Handel Productions, Discovery ChannelЖанр: Документальный, история, палеонтологияРежиссер: Ричард ДэйлПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F32AC2113436F4DC943FBD26A6565B35FEE745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348690   (1003935) от 03.01.2020
 
 BBC: Винсент Ван Гог. Живопись в словах / Vincent Van Gogh: Painted with Words (2010) DVBRip
@@ -6,7 +58,7 @@ BBC: Винсент Ван Гог. Живопись в словах / Vincent Va
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC: Глобальное потепление: факты / Climate Change: The
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Последние дни динозавров / Last Day Of The Dino
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery. Битва самогонщиков / Master Distiller (2020) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. На Марс: история марсохода Персеверанс / Bu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ BBC: Серенгети / Serengeti (2019) WEB-DL [H.264/1080p] (сезон 1, �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ BBC: Серенгети / Serengeti (2019) BDRemux [H.264/1080i] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC: Жизнь / Life (2009) BDRip [H.264/1080p] (серии 10 из 10)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC: История Шотландии с Нейлом Оливером. Пос�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +319,7 @@ BBC: История Шотландии с Нейлом Оливером. Мол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ BBC: История хирургии. Обретение лица [4 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Discovery: Красота змей / The Beauty Of Snakes (2003/2008) BDRip [720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +451,7 @@ NG: Мегазаводы. Суперавтомобили: Мустанг / Megaf
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Discovery. Пятёрка лучших / Discovery. World's TOP 5 (1-6 выпу�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +529,7 @@ NG: Удивительный мир с NAT GEO / NAT GEO Amazing (2010) SATRip [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +581,7 @@ Discovery: Как это сделано? Сезон 13 / How it's made? Season 1
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,60 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F3F818FBB291F67398D662318EA2068F06CBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347319   (987707) от 22.01.2020
-
-Расшифрованные сокровища / Treasures Decoded (2018) IPTVRip [H.264] (сезон 5, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища прошлого хранят секреты, написанные золотом, камнем и кровью. Мы можем их разгадать. Это секреты величайших сокровищниц истории.
-Научно-документальный проект начинает новый сезон своего любопытного повествования и расскажет нам еще больше о тех древних сокровищах, которые были не только открыты учеными и тщательно ими изучены, но и о таких, которые до сих (   Читать дальше...   )Производство: Канада / Blink FilmsЖанр: Документальный, ИсторияРежиссер: Christopher PuttockАктеры: Pedro Lloyd GardinerПеревод: Двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3052912BE57C014A9DC1648812B30BF86A767A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971073   (987402) от 02.01.2016
-
-NG: Культ Марии / The Cult of Mary (2015) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день миллионы людей обращаются с молитвами к Богородице. Многие из них утверждают, что видели её собственными глазами. Среди них так называемые шесть провидцев из Меджугорья в Боснии и Герцеговине, где - как они утверждают, - с 1981 года регулярно появляется Богородица. Хотя откровения не были подтверждены, он привлекают толпы паломников в эти места. В этом (   Читать дальше...   )Телекомпания: National Geographic StudiosЖанр: Документальный, религияРежиссер: Brooke RunnetteПеревод: Одноголосый закадровый, профессиональный
-Озвучено на студии Велес, текст читал Борис ХасановПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C471AC64A885D95CF912153AFDD3DFB83A51568
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1525862   (738990) от 22.01.2022
+
+Space - Space Symphony (2022) 2CD Compilation [MP3|320 Kbps] <Electronic, Space Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Prison (06:19)
+02. Velvet Rape (04:23)
+03. Voices of Jupiter (04:20)
+04. Mixed Up (05:44)(   Читать дальше...   )Жанр: Electronic, Space PopПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F85608E3DA69B798D5AC650818A010DFFC4A1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 786014   (738756) от 12.05.2014
+
+VA - Lounge At The Seashore 12 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Slow Motion City - Behind The Daylight
+002. Auditive Escape - Collective Monad
+003. SmokeFishe - Come With Me to Heaven
+004. Index - Como El Aguila(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D825498F41C71C3176A4F120E2B52D0B65B29698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526251   (738146) от 25.01.2022
+
+VA - Basstronix (2022) [MP3|320 Kbps] <Drum & Bass, Bassline, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Basstronix" предлагает Вашему вниманию подборку музыки характеризующуюся чередующимися ритмами, элегантными мелодиями и ярко выраженными басовыми партиями. Такая музыка - это почти бесконечный горизонт чистого Drum & Bass добра, который сможет стимулировать ваш творческий потенциал за мгновения и подвигнуть к новым успехам.001. Cabeabel - Introspection
+002. Rv & Raz - Target Practise
+003. Kumarion - Haunting
+004. S.P.Y - Nebula(   Читать дальше...   )Жанр: Drum & Bass, Bassline, Electro BassПродолжительность: 12:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68A5B7E41E0680A1F13C981EA801531233A5592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526246   (738145) от 25.01.2022
+
+VA - Beatport Trance: Sound Pack #398 (2022) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ищете свежее Progressive House вдохновение? Считайте, что вы его нашли. Beatport представляет новый 398-й релиз , наполненный свежими Progressive House мелодиями, которые сейчас вновь популярны.001. Ferry Corsten - Brute
+002. Ferry Tayle & Dan Stone - Resilience
+003. GRUENHEIDE - HUFFLEPUFF
+004. Stoneface & Terminal - Azimuth(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6A1C07631B3EB202E3338188F73DE3A0BFB322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526515   (738127) от 25.01.2022
+
+Evgene Ikonnikov - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dog & Cat
+02. Antonina (Eurodance 90's)
+03. What Happened To You ( Piano - Pan Flute Disco Version )
+04. In 100 Years (New Version)(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 07:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517CD0875D78E48EC4BCA8D072F57966E678DCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397693   (737601) от 22.07.2020
 
 VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
@@ -6,7 +151,7 @@ VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - DUB Tropical House: World Electro Sound (2020) [MP3|320 Kbps] <Dub House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +267,7 @@ VA - Beatport Progressive House: Sound Pack #130 (2020) [MP3|320 Kbps] <Progress
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Beatport Tech House: Electro Sound Pack #135 (2020) [MP3|320 Kbps] <Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - Beatport Tech House: Electro Sound Pack #131 (2020) [MP3|320 Kbps] <Tech Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +354,7 @@ Yuri Sosnin - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Beatport Chill Electronic: Sound Pack #400 (2022) [MP3|320 Kbps] <Chillout,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - Beatport Tech House: Sound Pack #399 (2022) [MP3|320 Kbps] <Tech House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Symphonic: Psychedelic Trance Mix (2020) [MP3|320 Kbps] <Psychedelic, Goa T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - EDM And House: Night Club Party (2020) [MP3|320 Kbps] <Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Beatport Techno Electronic: Sound Pack #134 (2020) [MP3|320 Kbps] <Techno, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Inverted World: Progressive Trance Set (2022) [MP3|320 Kbps] Trance, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Prismenraum: Synthpop Music Compilation (2022) [MP3|320 Kbps] <Synthpop, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - New Electronic World: Neon Megamix (2022) [MP3|320 Kbps] <Synthwave, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Крутые пушки Зима 2022 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - Another Paradigm: EDM Techno Liveset (2020) [MP3|320 Kbps] <Techno, Minimal
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - The Club Fusion: EDM Listen & Party (2020) [MP3|320 Kbps] <Dance, Electro, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +702,7 @@ VA - Endless Summer: Sunset Lounge Party (2020) [MP3|320 Kbps] <Lounge, Relax, A
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - Record Super Chart 29.01.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,151 +745,6 @@ VA - Record Super Chart 29.01.2022 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F169FD988A9D9C7083FF370EEC8F955EA7F97181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398714   (735247) от 27.07.2020
-
-VA - Beatport Trance: Electro Sound Pack #137 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Relais - Over Vanity
-002. California Sunshine - Sababa Time
-003. Structural Mind Engine - Eternalix
-004. Tromo - The Dreamer(   Читать дальше...   )Жанр: TranceПродолжительность: 10:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9431EB46FF21F3F7E65792D9C38507E8498AFDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398710   (735226) от 27.07.2020
-
-VA - Beatport Techno: Electro Sound Pack #136 (2020) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Vega - Inflexiones
-002. Nocow - New Terminal
-003. Sergio Castilla - Womans
-004. Anthony Ray - Dark Hole(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484B7152F0D5620FDFF9DC31197912F048EBB8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398731   (735225) от 27.07.2020
-
-VA - Deep House NME New Collection (2020) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Marshall - Phased Reasoning
-02. Don Wolf - Particular Enviromnent
-03. Cristian Viviano - Astral Connection
-04. Angela Mont Clair - The Right Time(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 05:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF29CFDCCECD6FC6AF578972EC6D7E9F9E728C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398702   (735220) от 27.07.2020
-
-VA - Beatport Chillout: Electro Sound Pack #133 (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735220.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Man Drake - Trinity Soft
-002. Sealovers - Wild Huntress
-003. Mirko Firzlaff - Nostalgia (Original Mix)
-004. Albedo 067 - Sigh(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302B430447DCDCC2D8403DAE8713908EB6F1725D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398737   (735209) от 27.07.2020
-
-VA - Pastel Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735209.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wilderness Crew - Street
-002. Potlatch - Knock, Knock
-003. Temex E - Make You Want
-004. Suspended - Suspended(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7748B313AA858238469129BF985A6683A55554D
 ```
 
 https://mybot314.ru/tekegram_catalog/

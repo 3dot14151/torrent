@@ -1,3 +1,107 @@
+###  Публикация: 763388   (883472) от 07.03.2014
+
+Убийство герцога де Гиза / L'Assassinat du duc de Guise (1908) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Убийство герцога де Гиза», поставленный Андре Кальметом и Шарлем Ле Баржи в 1908 году, занимает важное место в истории кинематографа. Именно этот фильм принято считать первым художественным фильмом. История убийства по приказу короля Генриха III его политического соперника герцога Генриха де Гиза разыграна на экране знаменитыми актерами театра Комеди Франсе (   Читать дальше...   )Производство: Франция, Le Film d'ArtЖанр: Короткометражный, драма, история, немое киноРежиссер: Андре Кальметт, Шарль Ле БаржиАктеры: Шарль Ле Баржи, Альбер Ламбер, Габриэль Робин, Берт Бови, Жан Анджело, Альберт Дьедонне, Югетт Дюфло, Рафаэль Дюфло, Чарльз Лоррен, Ролла НорманПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB64D9004233EF134404C00F5DCC5F8FA28D0FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762314   (882907) от 07.03.2014
+
+Сон скульптора / Der Traum des Bildhauers (1907) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Скульптор, раздобрев от выпитого вина по случаю завершения работ над изваянием трех граций, ложится на и засыпает. Во сне грации оживают, навевая художнику новые творческие идеи.Производство: Австро-Венгрия, Saturn-FilmЖанр: комедия, короткометражный, эротика, немое киноРежиссер: Йохан ШварцерАктеры: Нет сведенийПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2D7A7966EFAC436892709B7EC1392EFC3CB0BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097975   (882874) от 13.02.2017
+
+Каждую среду / Any Wednesday (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий бизнесмен Джон покупает для своей любовницы Элен квартиру за счет компании. Но вскоре выясняется, что кроме нее там будут жить его жена и представитель фирмы…Производство: США / Warner Bros. PicturesЖанр: КомедияРежиссер: Роберт Эллис МиллерАктеры: Джейн Фонда, Джейсон Робардс, Дин Джонс, Розмари Мерфи, Энн Прентисс, Джек Флетчер, Кинг Муди, Келли Джин Питерс, Монти Маргеттс, Фрэнк БэйкерПеревод: Многоголосый закадровый (ТНТ - СПб 11-й канал)Субтитры: ОтсутствуютПродолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729C961448911A20A10C3A026E32DC6F14FE294A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098040   (882871) от 13.02.2017
+
+Война миров / The War of the Worlds (1953) HDTVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На окраине маленького городка упал метеорит. Это событие будоражит воображение местных жителей: как-никак первый контакт. Но марсиане пришли отнюдь не с миром. Долгое время они пристально изучали Землю, прежде чем начать вторжение. И вот всего за пару дней города разрушены, армии всего мира потерпели поражение. Кажется, что гибель человечества неизбежна...Производство: СШАЖанр: Фантастика, боевик, триллер, экранизацияРежиссер: Байрон ХэскинАктеры: Джин Бэрри, Энн Робинсон, Лес Тремейн, Роберт Корнтуэйт, Сандро Джильо, Льюис Мартин, Хаусли Стивенсон мл., Пол Фрис, Уильям Фиппс, Вернон Рич ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617AB317414CD5809C4FB694DC59DAAE11EB343D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 639113   (882748) от 09.04.2013
 
 Птицы / The Birds (1963) BDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_882602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_882520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5441D2262FCA9E434243D3377CF0C1A93A3053F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764022   (877712) от 10.03.2014
-
-И слоны бывают неверны / Un elephant ca trompe enormement (1976) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои фильма — четверо уже немолодых (за сорок), но ещё весьма сексуально активных мужчин. Пускаясь в любовные приключения, они попадают во множество забавных ситуаций…Производство: Франция / Films de la Guеville, GaumontЖанр: КомедияРежиссер: Ив РоберАктеры: Жан Рошфор, Клод Брассёр, Ги Бедос, Виктор Лану, Даниэль Делорм, Анни Дюпре, Мартин Сарси, Марта Виллалонга, Луиз Конте, Кристоф БурсейеПеревод: Многоголосый закадровый (СВ-Дубль по заказу ЗАО "6-й канал")Субтитры: ОтсутствуютПродолжительность: 01:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555BC64149457AF1F89BF32067643C3EA7CE0AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494400   (877231) от 14.09.2021
-
-Возьми меня с собой на бейсбол / Take Me Out to the Ball Game (1949) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдди и Деннис - профессиональные игроки в бейсбол, но в глубине души они - конферансье водевиля. Неприятности в их размеренной жизни и карьере начинаются когда, в очередной раз, выходя на бейсбольное поле, друзья узнают, что у их команды новый владелец по имени - К. С. Хиггинс.
-Удивлению и возмущению парней нет предела, но главный сюрприз ждет команду впереди: оказывается (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Мелодрама, Комедия, СпортРежиссер: Басби БерклиАктеры: Фрэнк Синатра, Эстер Уильямс, Джин Келли, Бетти Гаррет, Эдвард Арнольд, Джулс Маншин, Ричард Лэйн, Томас Дж. Дуган, Дороти Эбботт, Гарри АлленПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CE4DD671543F7D8D27F2B21EC7E9D36BE455EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997046   (877202) от 15.03.2016
-
-Женщина есть женщина / Une femme est une femme (1961) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анжела во что бы то ни стало хочет ребенка, но ее муж Эмиль отказывается. В конце концов она делает вид, что попросила их друга Альфреда оказать ей честь, которая принимается. Эмиль, пойманный в ловушку, наконец удовлетворяет желание своей жены.Производство: Франция, Италия / Euro International Film (EIA), Rome Paris FilmsЖанр: Драма, Мелодрама, КомедияРежиссер: Жан-Люк ГодарАктеры: Жан-Клод Бриали, Анна Карина, Жан-Поль Бельмондо, Анри Атталь, Керин Балм, Доротея Бланк, Мари Дюбуа, Эрнест Мензе, Жанна Моро, Николь ПакуинПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский (Forced, Full), английскийПродолжительность: 01:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E8D70D9107EAF94700DFB4BBE9C78E2F5807EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641690   (877150) от 12.04.2013
-
-Полицейский / Un flic (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877150.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городке Сен-Жан-де-Мон происходит ограбление банка. Один из грабителей ранен. Выясняется, что деньги, похищенные налетчиками, предназначались для закупки крупной партии наркотиков. Таким образом, одни воры помешали другим провернуть выгодное дело.
-Расследование поручено комиссару Кольману. Он уверен в себе. Он знает преступный мир Франции, как свои пять (   Читать дальше...   )Производство: Euro International Film (EIA),Oceania Produzioni Internazionali CinematograficheЖанр: Боевик, Драма, КриминалРежиссер: Жан-Пьер МельвильАктеры: Ален Делон, Катрин Денёв, Ричард Кренна, Риккардо Куччолла,  Майкл Конрад, Поль Кроше, Симона Валер, Андре Пусс, Жан Десайи, Валери ВильсонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A1707B7776861137BDDC41C1CBB1F3512BAE7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1864070   (1063018) от 07.04.2026
+
+Tadaima, Ojama Saremasu! | Pardon the Intrusion, I'm Home! | Я вернулась! Не помешаю? [2026, TV, 1 из 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Так вот каково это теперь — жить с соседями?!
+
+24-летняя офисная служащая Ринко живет одна и втайне является отаку. В один прекрасный день её квартира оказывается соединенной с двумя соседними комнатами через «дыру» в стене.
+(   Читать дальше...   )Производство: студия Tatsunoko Production / タツノコプロЖанр: комедия, романтикаРежиссер: Имадзаки ИцукиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6891DE398EDA08C0A5E1A6838D33C0DBE88F4F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1864081   (1063016) от 07.04.2026
+
+Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de / Богиня: «В каком виде ты хочешь переродиться в другом мире?» Я: «В ребро героя». [2026, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой рассказа, которого называют просто «Я», переживает бесконечный цикл реинкарнаций. Действие происходит в иной вселенной, где люди могут свободно выбирать свою следующую форму. Однако очередь на популярные роли, такие как «Король демонов» или «Герой с чит-способностями и гаремом», достигла 50 000 лет из-за недавнего всплеска заявок.
+Главный герой решает (   Читать дальше...   )Жанр: приключения, фэнтези, комедия, трава.Режиссер: Соэдзима ЯсуфумиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA983278FF5406985E39BE51C9AD18D470D4D536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864082   (1063013) от 08.04.2026
 
 Isekai Nonbiri Nouka 2 | Farming Life in Another World 2 | Фермерская жизнь в ином мире [ТВ-2] [2026, TV, 1 из 12 эп.] WEBRip 1080p raw
@@ -6,7 +62,7 @@ Isekai Nonbiri Nouka 2 | Farming Life in Another World 2 | Фермерская 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +114,7 @@ Nippon Sangoku | Троецарствие Японии [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +141,7 @@ Hidarikiki no Eren | Eren the Southpaw | Левша Эрен [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +167,7 @@ Kanojo, Okarishimasu 5 | Девушка на час [ТВ-5] [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +193,7 @@ Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +219,7 @@ Steel Ball Run JoJo's Bizarre Adventure | Steel Ball Run: JoJo no Kimyou na Bouk
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +271,7 @@ Onee-chan Gokko | Playing Sister | Играя роль старшей сестр
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +298,7 @@ Medalist (2026) | Медалистка [ТВ-2] [2026, TV, 1 из 9] WEBRip 720�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +326,7 @@ Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +352,7 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +380,7 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +408,7 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -379,7 +435,7 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -405,7 +461,7 @@ Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation |
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +487,7 @@ Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -460,7 +516,7 @@ Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +542,7 @@ Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adore
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -513,7 +569,7 @@ Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная ве
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -539,7 +595,7 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +622,7 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -595,7 +651,7 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -622,7 +678,7 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -635,58 +691,6 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB908A36A7AB2C8E1572FBA32FDC5A0C192F97C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847152   (1051961) от 17.01.2026
-
-Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Demi-Humans / Учитель-мизантроп в классе нелюдей [2026, TV, 1 из 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я Рей Хитома, самопровозглашенный мизантроп из-за перенесенной в прошлом травмы. Как раз когда я подумал, что моя новая работа учителя в горах станет для меня спокойной и восстанавливающей силы средой, оказалось, что эта школа на самом деле предназначена для полулюдей, которые хотят стать полноценными людьми! Здесь есть русалка, оборотень, кролик и птица... и все (   Читать дальше...   )Жанр: приключения, повседневность.Режиссер: Иванага АкираЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 минут.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B307198E93E4D79B29363B01971A30E7E480BA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847168   (1051942) от 17.01.2026
-
-Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 из 24] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051942.jpg" />
-</div>
-
-
-###  Подробнее
-
-К середине XXI века преступный мир Токио находится под властью Демонов-Лордов — криминальных боссов, прошедших операцию по усилению эфира, которая наделила их ужасающими сверхспособностями. Единственные, кто может их победить, — это Герои, охотники за головами, которые усиливают свои эфирные способности с помощью препарата E3 (E-Three). Поскольку убийство в рамках (   Читать дальше...   )Жанр: экшн, фантастика.Режиссер: Усиро СиндзиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 24 серий по 25 минут.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D447009564ECCEF18DE5280AF6AB63460A1A6E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

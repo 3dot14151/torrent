@@ -1,3 +1,81 @@
+###  Публикация: 1537665   (666639) от 17.03.2022
+
+Роберт Райт | Эволюция Бога. Бог глазами Библии, Корана и науки (2021) [MP3, Сергей Уделов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – грандиозный рассказ о том, как родился, взрослел и становился нравственно совершеннее Бог иудаизма, христианства и ислама. Опираясь на самые авторитетные исследования по археологии, теологии, библеистике, истории религий и эволюционной психологии, автор показывает, как многочисленные кровожадные племенные боги войны становятся одним богом, ревнивым, высокомерным (   Читать дальше...   )Жанр: Религиоведение, История религийПродолжительность: 23:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F13FAD82D32D137E77AA0A1A7A5BA387B6FAA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537650   (666638) от 17.03.2022
+
+Рой Варгезе, Энтони Флю | Бог есть. Как самый знаменитый в мире атеист изменил свои взгляды (2021) [MP3, Максим Гамаюнов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга отправляет читателя прямиком на поле битвы самых ярких интеллектуальных идей, гипотез и научных открытий, будоражащих умы всех, кто сегодня задается вопросами о существовании Бога. Самый известный в мире атеист после полувековой активной деятельности по популяризации атеизма публично признал, что пришел к вере в Бога, и его взгляды поменялись именно благодаря (   Читать дальше...   )Жанр: Научно-популярная литература, РелигиоведениеПродолжительность: 06:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AD8964FAD113D723DB357AFA56E485F9635A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138184   (664209) от 29.05.2017
+
+Фридрих Август фон Хайек | Индивидуализм и экономический порядок (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книгу "Индивидуализм и экономический порядок" (Individualism and Economic Order [1948]) составили экономические и политико-философские работы одного из крупнейших мыслителей XX века, выдающегося экономиста, лауреата Нобелевской премии Ф.А.Хайека. Написанные в 30-40-е годы, они стали классическими и во многом определили развитие современной экономической (   Читать дальше...   )Жанр: история, политология, экономикаПродолжительность: 12:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89633A7236F598F373442D030B9CB53D431B3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138198   (664208) от 29.05.2017
 
 Лариса Секлитова, Людмила Стрельникова | Рок, судьба или роль программ в развитии. часть-1 (2017) [MP3]
@@ -6,7 +84,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_652880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +453,7 @@ Natalia F | Подкасты (2017-2019) [MP3]
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6778B66BABC55A52D09701974B6EA2213FDB3E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293348   (628262) от 08.04.2019
-
-Томас Кун | Структура научных революций (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628262.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Структура научных революций» Томаса Самуэля Куна, американского физика и философа, впервые опубликованная в 1962 году, вызвала широкий резонанс в научных кругах. В этой работе Томас Кун впервые сформулировал новую концепцию развития науки и научного знания, которая произвела настоящий переворот во всей философии науки. Сейчас, сорок лет спустя, эта концепция, некогда (   Читать дальше...   )Жанр: ФилософияПродолжительность: 10:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC0E6BA6B9F679C21859EAE93B1519C22E4A62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293350   (628257) от 08.04.2019
-
-Владимир Малов | Тайны знаменитых кораблей (2014) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628257.jpg" />
-</div>
-
-
-###  Подробнее
-
-К кораблям у людей отношение особое. Корабли помогали открывать новые земли, прокладывать морские пути между континентами, защищать родные берега от неприятеля. Многие из них навсегда вошли в историю.
-Мореплавание всегда считалось самым рискованным занятием, Тысячи судов погибли, унося в морскую пучину какую-либо тайну. На борту фрегата "Ваза", помимо материальных (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 04:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21951C1140CA09684D76B09CB97F4782085540D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293810   (628139) от 08.04.2019
-
-Марков Александр | Рождение сложности (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как зародилась и по каким законам развивалась жизнь на нашей планете? Что привело к формированию многоклеточных организмов? Как возникают и чем обусловлены мутации, приводящие к изменениям форм жизни? Социологические исследования показывают, что в поисках ответов на эти краеугольные вопросы люди сегодня все реже обращаются к данным науки, предпочитая довольствоваться (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 10:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B13B20E2A7D9C16407AA932FD0B4BCA29B07B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

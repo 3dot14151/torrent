@@ -1,3 +1,82 @@
+###  Публикация: 1440886   (1038151) от 19.01.2021
+
+Иоанн Диков и др. | SketchUp. Связки. Пoдaчa c Illustrаtоr + Photoshop (2020)
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+SketchUp умеет многое, но не всё. Этот онлайн-курс — о связке трёх программ: SketchUp, Photoshop и Illustrator, и о том, как сделать подачу эффектной, а рабочий процесс — максимально бесшовным.Производство: Софт КультураЖанр: ГрафикаПродолжительность: 06:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7490F605B9FDDB84027A9FABA1B340A683477C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441148   (1037882) от 20.01.2021
+
+Юлия Романова | Основы рисования (2017)
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс - настоящая находка для тех, кто давно хотел научиться рисовать, но не знает с чего начать! Также подойдет тем, кто хочет углубить свои знания и улучшить качество работ.
+Курс ведет Юлия Романова. С детства занимается рисованием в различных стилях. В 2016 году закончила обучение в Новосибирской Архитектурно-художественной академии с красным дипломом. С 2012 (   Читать дальше...   )Производство: highlightsЖанр: РисованиеПродолжительность: 24:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A51AFFB97435EA618056E668B370B553344EE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441153   (1037880) от 20.01.2021
+
+highlights | Цифровой рисунок в Photoshop (2018)
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс идеален для тех, кто хочет научиться рисовать в Photoshop! Преподаватель с огромным опытом Анастасия Васильева объяснит и покажет, как рисовать в программе Adobe Photoshop, даже если до этого вы никогда не открывали эту программу. За 2 месяца вы не только узнаете основы основ рисунка, работы с инструментами, применения референсов, но и примените на практике (   Читать дальше...   )Жанр: РисованиеПродолжительность: 12:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F9BC94DEF23A9702908BA8F1F6CCC47802B57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441290   (1037712) от 21.01.2021
 
 Kolt Wilson | Exploring Houdini's SOP Solver (2017) PCRec [En, Ru]
@@ -6,7 +85,7 @@ Kolt Wilson | Exploring Houdini's SOP Solver (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ David Kahl | Houdini: VEX Fundamentals (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +137,7 @@ XYZ School, Сергей Мингулин | Руки всему голова (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +166,7 @@ David Andrade | Blender 2.8 Essential Training (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +192,7 @@ Udemy, Alex Cordebard | Ультимативный курс по скульпт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +219,7 @@ John Moncrief | Introduction to Particles in Houdini (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +247,7 @@ Jonathan Lampel | Normal Map Modeling for Games (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +273,7 @@ Alex Jerjomin | Sculpting a Stylized Axe in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +301,7 @@ Patrick Gladys | Creating Game-Ready Vegetation (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -250,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -303,7 +382,7 @@ Paris Christou | How to Draw Cartoon Animals (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +408,7 @@ CartoonSmart | Tradigital Animation: 2D FX (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +434,7 @@ Marc Brunet | Painting Character Portraits (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +489,7 @@ Marc Brunet | 3D Hand-painted Character For Games (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -438,7 +517,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн окружения от А 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +544,7 @@ Patreon, Ian Hubert | Уроки с сайта Patreon по 3D моделиро�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -521,7 +600,7 @@ New Art School ,Егор Гришин | База CG (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,7 +627,7 @@ New Art School, Егор Гришин | Скетчинг (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,7 +654,7 @@ Lectoroom, Мария Павлова | Старичок с воробьями (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -601,7 +680,7 @@ The Gnomon Workshop, Pawel Margacz | Creating Stylized VFX in Unreal Engine 5 (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,84 +691,6 @@ The Gnomon Workshop, Pawel Margacz | Creating Stylized VFX in Unreal Engine 5 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E97E5B4A8768DD9643B50B37B52AD61F851C2F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443452   (1035438) от 29.01.2021
-
-Syd Mead | Airship Arrival (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035438.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом обучающем курсе легендарный дизайнер Сид Мид делится техникой создания завершенного изображения футуристического дирижабля. Создание рисунка требует нового уровня владения искусством графики и техникой рисования. Для создания ощущения «присутствия» требуется не только сочетание навыков рисования, художественных приемов, но создание как бы «внутренней» иллюзии (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 2:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C2BA3D68DCD0F7D2597BDB2A8DCE6616889C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443450   (1035430) от 29.01.2021
-
-Feng Zhu | The Techniques of Feng Zhu Vol 1-3 (2015) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение рисовать как автомобили так и другие реальные и не очень средства передвижения - очень важный навык для любого концепт-арт дизайнера. Используя стандартные для любого дизайнера инструменты, вам будет детально продемонстрировано, как создается рисунок транспортного средства. Вам расскажут об основах перспективы, важности эскизов, разных техниках создания скетчей, (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 5:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400BD68EA111A46475A00BD1EC4E179F27F9FB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443453   (1035427) от 29.01.2021
-
-Shane Hurlbut | Experience Lighting Masterclass (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер-класс Experience Lighting Masterclass научит вас мощным принципам и методам для всех ваших видео проектов. Получите высокий уровень визуального изображения, научившись раскрывать потенциал своей камеры и мастерски обращаться со светом. Совершенствуйте свои навыки, конкурентоспособность, эффективность повествования и уверенность в качестве режиссераПроизводство: MZEDЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 6:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F9B5ED9A6FCBCF1E4D64CA2D78362F2F309724
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1219266   (715053) от 13.04.2018
+
+Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В пыльном, темном углу старой потрепанной комнаты потрескивает включенный телевизор, и к вам обращается коллекция кассет VHS. Приготовьтесь отправиться в путешествие по темному лесу, замерзшей пустыне, загадочному океану и заброшенному объекту. Каждое место, которое вы посещаете, скрыто в секретах, скрыто из виду... но имейте в виду, не все так, как кажется...Тип издания: LicenseРазработчик: Charlie BehanЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059B2F819E4DCC33D0BCD8D23E37DF17DD7A31B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258610   (714368) от 01.03.2019
+
+Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Год 1924-й. Частный детектив Эдвард Пирс расследует трагическую гибель семьи Хокинсов в их импозантном особняке на расположенном неподалеку от Бостона уединенном острове Даркуотер. Погрузитесь в охваченный безумием мир Старших Богов в игре Call of Cthulhu, действия которой разворачиваются в культовой вселенной произведений Говарда Лавкрафта.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Adventure (Horror), RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133D218A818FAE24A5EB8CB4FFAFB27B8A48EFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258492   (714356) от 01.03.2019
+
+Call of Cthulhu (2018) [Ru/En] (1.0/u2) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Call of Cthulhu – это детектив с элементами психологического триллера, официальная игровая адаптация одноименной настольной ролевой системы компании Chaosium. Рассказы о владыке миров Ктулху, созданные писателем Говардом Лафкрафтом, со временем превратились в одну из самых проработанных и известных вселенных в современной литературеТип издания: RepackРазработчик: Cyanide StudioЖанр: Adventure (Detective), Survival horror (1st Person), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E25A35B3FE6934E4BBAA95632A7EB563B14F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258526   (714355) от 01.03.2019
+
+Call of Cthulhu (2018) [Ru/Multi] (1.0/upd2) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Год 1924-й. Частный детектив Эдвард Пирс расследует трагическую гибель семьи Хокинсов в их импозантном особняке на расположенном неподалеку от Бостона уединенном острове Даркуотер. Погрузитесь в охваченный безумием мир Старших Богов в игре Call of Cthulhu, действия которой разворачиваются в культовой вселенной произведений Говарда Лавкрафта.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Adventure (Horror), RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853DC821A0947DAAB72EAB845EF2E49728879F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130630   (713928) от 02.05.2017
 
 Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
@@ -6,7 +110,7 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Journeyman Project 1: Pegasus Prime (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Resolutiion (2020) [Ru/Multi] (1.1.4.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Journeyman Project 2: Buried in Time (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Q.U.B.E. (2014) [En] (2.8/dlc) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Black Book (2021) [Ru/Multi] (1.0.36/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ KURSK (2018) [Ru/Multi] (3.0.8/dlc) License CODEX [Collectors Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sherlock Holmes: Chapter One / Шерлок Холмс: Глава 1 (2021) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Station (2018) [En] (B1.53.1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Matanga (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_699499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Matanga (2019) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ GRIS (2018) [Ru/Multi] (1.0/upd2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Milky Way Prince The Vampire Star (2020) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ CRIMSON ROOM DECADE (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Truberbrook (2019) [Ru/Multi] (1.10) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ RiME (2017) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ PLAY WITH ME (2018) [Ru/Multi] (1.22.21) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Kageroh: Shadow Corridor (2019) [En/Ja/Ko] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Kageroh: Shadow Corridor — это игра в жанре хоррор, раз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:330A77FF812B3D0642C501C4E407D3D332FCED7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221868   (691041) от 26.04.2018
-
-Inked (2018) [Multi] (20180425-1) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инкэд - это рассказ о любви и мести, которые были написаны чернилами на бумаге. Вы играете как Безымянный Герой (Nameless Hero), который отправляется в путешествие по огромному ландшафту, наполненному головоломками. Каждая решенная головоломка приближает вас к вашей потерянной любви, распутывая историю, которая навсегда изменит вас.Тип издания: LicenseРазработчик: Somnium Games d.o.o.Жанр: Adventure, Puzzle, Logic, CasualЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E4C279F83D4137A43C34E1CA9C2D16744F839F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221786   (690961) от 26.04.2018
-
-INFRA (2016) [Ru/Multi] (3.3.0/dlc) License CODEX [Complete Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690961.jpg" />
-</div>
-
-
-###  Подробнее
-
-INFRA - это приключенческая игра, в которой игрокам отводится роль аналитика, который путешествует по разным местам и пытается остановить бедствия, связанные со страстью человечества к улучшениям и развитию технологий.Тип издания: LicenseРазработчик: Loiste InteractiveЖанр: Adventure, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский (главное меню), Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303546D83CB312252D0D52A036B9532163A23310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134031   (690780) от 14.05.2017
-
-The Fan (2017) [En/Fr] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690780.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Fan - это интерактивная новелла с элементами point and click квеста, сделанная с помощью фотографий, в которой игроков ждут реально существующие люди и локации. Игроков ждет история жуткого серийного убийцы, который охотился за женщинами и приносил их в жертву в подземельях Парижа.Тип издания: RepackРазработчик: Ezhaac StudioЖанр: Adventure (Horror), InteractiveЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F005D0850A7ECDE1F1C198628493AAB71F6FE79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403545   (690010) от 20.08.2020
-
-Dark Earth (1997) [Ru] (1.1) License
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690010.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 21 веке Земля погрузилась во тьму - это был результат катастрофического столкновения с волной астероидов в 2054. Спустя многие годы ужасов и страданий, немногие из уцелевших людей принялись восстанавливать цивилизацию. Они строили города и храмы возродившегося культа Солнца, которое пробивается сквозь мрак и несет жизнь на Землю. Аркан, молодой Хранитель Огня из (   Читать дальше...   )Тип издания: LicenseРазработчик: Kalisto EntertainmentЖанр: Adventure, 3rd PersonЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770259F9AB15EC8085CDB0EF6BD4274949AFC5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

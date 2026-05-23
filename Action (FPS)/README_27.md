@@ -1,3 +1,107 @@
+###  Публикация: 1189731   (407576) от 06.10.2018
+
+Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы — Грейсон Хант, некогда элитный киллер Dead Echo. После крушения корабля вы оказались на заброшенной планете-курорте Стигия и должны сделать выбор: спасаться или отомстить предателю.Тип издания: RepackРазработчик: People Can FlyЖанр: Action, Shooter, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8923E359105BEAC601C2A311615C9365AD0FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162350   (407215) от 03.09.2022
+
+Immortal Redneck (2017) [Ru/Multi] (1.3.3) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Immortal Redneck - это шутер с элементами жанра роуглайк, действие которого происходит в Египте. Классические перестрелки от первого лица сочетаются здесь с механиками, свойственными играм жанра роуглайт: бешеный темп, отзывчивое управление и аркадная атмосфера, с одной стороны, и случайно создаваемые подземелья, 9 классов с разными особенностями, дерево навыков (   Читать дальше...   )Тип издания: LicenseРазработчик: Crema GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AF24EB02DB244AA8742C25D8D3ED56AD3E4BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413687   (406982) от 05.10.2020
+
+Borderlands 3 (2019) [Ru/Multi] (5382210/dlc) License EMPRESS [Super Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Оторвитесь на полную! Всеми любимый шутер с горами лута возвращается, приготовив ТОННЫ стволов и безбашенные приключения. Вас — одного из четырех новых искателей Хранилища — ждут ураганные бои в неизведанных мирах с новыми противниками Играйте в одиночку или вместе с друзьями, сражайтесь с совершенно безумными врагами, загрузитесь трофеями под завязку и спасите свой (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action (Shooter), RPG, 1st Person, CoopЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19361146FE5195BCAF70943EF0D77B855034F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301387   (406969) от 05.10.2020
+
+Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Потрясающий шутер во вселенной Звездных Войн. Захватывающие массовые баталии по сети и три режима одиночной игры: Сражение, Завоевание Галактики и Исторических компании, содержавших все знаменитые битвы I-IV эпизодов кинофильма. Динамические действия среди ландшафтов родного Татуина и Набу, а также на 8 других планетах. Обзор от первого и третьего лица, управление (   Читать дальше...   )Тип издания: LicenseРазработчик: Pandemic StudiosЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562680   (405124) от 20.10.2012
 
 Chivalry: Medieval Warfare [Ru] (Repack) 2012 | R.G Repacker's
@@ -6,7 +110,7 @@ Chivalry: Medieval Warfare [Ru] (Repack) 2012 | R.G Repacker's
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ E.Y.E. Divine Cybermancy [Ru] (Repack/1.37) 2011 | Fenixx
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ RAID: World War II (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Half-Life 2: Episode Two / Offshore [Ru] (Mod/P) 2004/2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_402821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +269,7 @@ RAID: World War II / RAID: World War 2 (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8) Repack R.G. Мех�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Crysis Warhead (2008) [Ru/Multi] (1.1.1.711) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Crysis / Wreckage [Ru/En/De] (RePack/Mod) 2012 | dr.Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Bulletstorm (2011) [Ru] (1.0.7147/dlc) Rip R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +661,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,110 +672,6 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5D8026A965606844F57BF9D4C280BA354F3CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573250   (380580) от 10.11.2012
-
-CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще один киберпанковый хит от издателей System Shock. Cybermage - уникальный экшен с RPG элементами и тяжелой, захватывающей aтмосферой киберпанка и фэнтези. Графика в игре очень хороша для своего времени и не уступает своему собрату по цеху System Shock. К сожалению, в своё время игра не была популярна из-за своих высоких системных требований, несовершенства движка и сложного геймплея. Игра написана и стилизована под комиксы D. W. Bradley и прорисована с душой. Для 1995 года графика просто шикарная. Действие происходит в 2044 году. Миром правят могущественные корпорации и группы повстанцев. Корпорации, столкнувшись с бунтовщиками и внутренними спорами, начинают работу над имплантами для создания "людей-гибридов". Вы просыпаетесь в биогенетическом инкубаторе в странном костюме с самоцветом, который имплантирован на шлем. Этот самоцвет - Темносвет или Светотень (как вам удобнее); камень с волшебными свойствами. Под звуки выстрелов вы выбираетесь из инкубатора, чтобы узнать что происходит и кто Вы такой (   Читать дальше...   )Тип издания: RePackЖанр: 3D Action\Sci-fi\CyberpunkЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657BF5453AC125391F0B642CC46FFA0A525F1D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175168   (380167) от 17.10.2017
-
-Crysis 2 (2011) [Ru] (1.9/dlc) Repack xatab [Maximum Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы вторглись на улицы Нью-Йорка, и только у вас есть оружие, которое может спасти город от уничтожения. Применяйте в бою уникальные возможности обновленного Нанокостюма: Мощь, Броню и Невидимость. Crysis 2 покажет высокую детализацию окружения в каменных джунглях Нью-Йорка на ПК и консолях. Станьте Оружием.Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16010E3A27253A424BF385619FD99CD53D6A38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573044   (379700) от 10.11.2012
-
-Turok [Ru] (L) 2008
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите побывать на месте героев фильма Стивена Спилберга «Парк юрского периода»? Новая часть культовой игры-сериала Turok, созданная специально для игровых систем нового поколения – определенно для вас! Пока ученые строят догадки о причинах исчезновения динозавров, главный герой игры, командир спецподразделения Джозеф Турок – истребляет их, не задумываясь! Хищные рептилии ростом в пятнадцать метров, плотоядные растения и насекомые, гигантские папоротники, непроходимые топи и горы – все это и многое другое увидит игрок, путешествуя по затерянной планете, похожей на Землю юрского периода. Все динозавры обладают инстинктами реальных животных. Они атакуют, только когда голодны или чувствуют угрозу, и нападают не только на игрока, но и друг на друга! Но не только динозавры будут противостоять главному герою. Готовьтесь к встрече с наемниками-террористами, засевшими в джунглях, – они прекрасно ориентируются на местности, быстры, умны и жестоки… (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D287BF3732FED2D6A69CE766E74E9AFE2DA84C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068694   (379558) от 01.11.2016
-
-ALICE VR (2016) [Ru/Multi] (1.0) Repack Other s [VR]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice VR - это остросюжетная исследовательская игра с множеством головоломок, уникальное приключение в виртуальной реальности. Игра создана по мотивам известной книги Льюиса Кэрролла "Алиса в Стране чудес", персонажи и сюжеты которой перенесены в фантастическую, инопланетную обстановку. Прекрасные пейзажи, стильная электронная музыка. Добро пожаловать в (   Читать дальше...   )Тип издания: RepackРазработчик: Carbon StudioЖанр: Action, Adventure, 3D, 1st PersonЯзык озвучки: Английский, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56738A2626E38F3CD12686A38505D31B808A45FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

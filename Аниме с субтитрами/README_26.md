@@ -1,3 +1,108 @@
+###  Публикация: 1350620   (901141) от 24.03.2020
+
+Eizouken ni wa Te o Dasu na! | Keep Your Hands Off Eizouken! | Руки прочь от киноклуба! [2020, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мир аниме поразителен. Асакуса с детства мечтает создавать аниме, но, к сожалению, в одиночку ей не справиться. Хотя бы потому, что концепт-арты и задники у нее получаются гораздо лучше, чем люди. Но вот судьба случайно сводит ее с Цубамэ, которая тоже хочет стать аниматором вопреки желанию родителей, которые запрещают ей даже вступать в мульткружок. Асакуса, её (   Читать дальше...   )Производство: Студия Science Saru / サイエンスSaruЖанр: приключенияРежиссер: Юаса МасаакиПеревод: официальный (CruncheRoll); SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D70C59656AB16F4A3B35F6DAB06352D69A49AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760082   (900772) от 09.02.2015
+
+Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ёму – древние демоны и обитатели духовного мира. Кое-кто из «высших» вообще неотличим от человека, большинству же до нас нет дела. Встречаются и агрессивные особи, с которыми издавна разбираются защитники человечества. Охотники живут кланами, причем у каждого рода свои способности и боевые стили, собственные власть и влияние. При этом Охотники, Чистильщики и Оценщики, все, кто действует за гранью реальности, стараются скрыть свое существование от обычных людей, для которых отзвуки магических битв – что далекая (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Исидатэ ТайтиПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB5B2697EA981FB50017534B6AE6190E27FC3326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637633   (900134) от 31.03.2013
+
+Kikou Ryouhei Mellowlink / Armor Hunter Mellowlink / Бронебойщик Меллоулинк [1988, OVA, 12] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Месть. Чувство, которое, наверняка, испытал каждый человек. Месть делает человека сильным, превращая его в орудие отмщения.
+Главный герой – бывший солдат Mellowlink Aliti знает о мести не понаслышке. Ведь месть, это то, чем он живет, и нет ему покоя, пока месть не свершится. Он будет мстить, мстить и еще раз мстить людям, обрекшим его боевых товарищей на гибель. (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Канда ТакэюкиСубтитры: RUSПродолжительность: 12 эп., 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAE367F64BB0167006E8C1C16B4D8224978D52B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968423   (898802) от 04.02.2017
+
+Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 1080p hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мир RPG с мечами и волшебством, где авантюристы решили бросить вызов праву короля демона управлять. У всех красивая грудь, огромная грудь и броня бикини!Производство: FeelЖанр: приключения, эттиРежиссер: Кудзуя НаоюкиЯзык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 13 серий по 5 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AD7C4A5F2C00941F7D9DE4F52C6F0302A770A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992743   (898752) от 03.03.2016
 
 Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка Альп [1974, TV, 52] BDrip 1080p Hi10p raw
@@ -6,7 +111,7 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan / Armored Trooper Votoms: Shining Heresy
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, ONA, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Natsunagu! | Нацунагу! [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Tenkuu Senki Shurato / Heaven Wars Shurato / Небесные войны Сюр�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Dominion Tank Police | Доминион: Танковая полиция [1988, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +267,7 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Mugen no Juunin: Immortal | Клинок бессмертного (2019) [2019, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Tsukimonogatari: Yotsugi Doll / История одержимости: Кукл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +397,7 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +423,7 @@ Soukou Kihei Votoms: Pailsen Files / Soukou Kihei Votoms Pailsen Files / Бро�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +449,7 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +475,7 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu. | A Destructive God Sits Next to Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +501,7 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +527,7 @@ High Score | Лучший счет [2011, TV, 8 + 2 SP] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +553,7 @@ Wasteful Days of High School Girl | Бездельные дни старшекл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +579,7 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 эп.] DVDRip 540p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +605,7 @@ Steins;Gate: Soumei Eichi no Cognitive Computing | Врата Штейна: Ве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +631,7 @@ Koi Suru Asteroid / Asteroid in Love / Влюблённый астероид [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +657,7 @@ Kyokou Suiri / In/Spectre / В/Спектре / Ложные выводы [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,114 +668,6 @@ Kyokou Suiri / In/Spectre / В/Спектре / Ложные выводы [2020,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B79B91683C938FC8EEE61C3D5BE6CAE22C40CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 639368   (892971) от 04.04.2013
-
-Shiranpuri / Minding My Own Business [2012, TV-special] HDTV 720p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о жизни школьника, которого шпыняют свои же одноклассники. Он только наблюдает со стороны, когда некоторые из его одноклассников издеваются над другим слабым мальчиком. Не вмешивается, чтобы спасти себя от превращения в мишень.Жанр: комедия, приключенийРежиссер: Миясита Симпэй / Miyashita ShinpeiПеревод: Amarillis | Dreamers TeamЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 25 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371340   (892036) от 30.03.2020
-
-Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892036.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 лет назад братья Тацуя и Кадзуя Уэсуги впервые привели школу Мейсей на Национальные соревнования по бейсболу среди старших школ Японии, и она победила на Кошиене. С тех пор школьная команда не показывала высоких результатов, но теперь талантливые сводные братья Тоума и Сейчиро Тачибана стремятся вернуть Мейсей на Кощиен. Снова попасть туда будет непросто, тем (   Читать дальше...   )Производство: Студия OLM / オー・エル・エムЖанр: повседневность, романтика, спортРежиссер: Ватанабэ ОдахироПеревод: naiveЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A352EA57C32E67D3589DE249FD21DA34F0CB3933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061996   (892016) от 08.02.2017
-
-Отважные ведьмы / Brave Witches [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе ответвление. (Strike Witches)
-
-В конце ХХ века планету ожидала военная катастрофа. Новый враг пришёл неожиданно, и был невероятно силён. Естественно, люди не знали способов борьбы с ним – на тот момент простые военные технологии были бесполезны. Прозванный Невроем, враг беспощадно разрушал всё на своём пути. Выжженные земли, бездушные руины – вот всё, что (   Читать дальше...   )Жанр: приключенияРежиссер: Такамура КадзухироЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18063C4520629E9BC94C4733D8A77D5C7BD59166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762412   (891911) от 02.03.2014
-
-Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответственный капитан Тайлор [1993,TV, 26] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джасти Уэки Тайлор не может похвастаться ничем - ни профессиональными навыками, ни лидерскими качествами, ни быстротой мышления. Зато он обладает невероятным везением, которое перекрывает все недостатки, раз за разом выручая его в жизненных передрягах. По чистой случайности Тайлор оказывается спасителем любимых внучек самого адмирала, командующего Космическим Флотом Объединённых Планет. И в благодарность за это тот производит бездельника Тайлора сразу в капитаны, назначив под его командование славный эсминец "Ветерок". Сбылась мечта Тайлора - блестящая карьера, беззаботное существование в почёте и достатке...
-
-Но старый адмирал оказался не таким уж безумным. Эсминец "Ветерок", позор всего флота и свалка всех его человеческих отбросов, можно было назвать славным только в издёвку. Назначив Тайлора его капитаном, старик убил сразу двух зайцев - и дал "награду" за спасение внучек, и закрыл чёрную дыру, где дела были столь плачевны, что испортить что-либо уже не представлялось возможным. (   Читать дальше...   )Жанр: приключения, комедия, фантастикаРежиссер: Масимо КойтиПродолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38041C6536157BA4C4B185902C8445ADED14C54F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1409679   (1021583) от 11.04.2021
+
+Рецепты для детей. Детское меню. Питание и прикорм v5.0 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Рецепты для детей. Детское меню. Питание и прикорм» - это большой каталог самых разнообразных блюд и напитков для ваших маленьких сокровищ! Теперь все рецепты для детей от 6 месяцев до 3 лет и старше собраны в одном приложении! Выберите случайный рецепт или воспользуйтесь удобным поиском и начинайте готовить. Ваш кроха обязательно оценит!Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 07.04.2020Разработчик: Maksim E.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41CC4479883CD59F42763459946D2159ED6A755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461931   (1021575) от 11.04.2021
+
+Lapse It • Time Lapse • Pro v4.70 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Съемка и создание Time-Lapse видео. Снимайте удивительные time-lapse видео с помощью вашего Android-устройства.Тип издания: Пиратка (Paid)Релиз состоялся: 6 ноября 2014 г.Разработчик: Interactive UniverseПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC83B96E9E4613F9042CA6354D0258E3E1E3EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461836   (1021556) от 11.04.2021
+
+Scan & Translate+ Text Grabber v4.3.8 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Хотите понимать, что написано на иностранных вывесках и знаках, которые встречаются при путешествиях за границу? Возникали ли у вас трудности с пониманием важного документа, написанного на иностранном языке? Нужен перевод во время совершения покупок, поиска или чтения любых текстов? Тогда это приложение для вас. Scan & Translate - это ваш персональный переводчик (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 5 апреля 2021 г.Разработчик: AISBERG LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B298CEB921B428179EF6B5474B29AE328744A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461724   (1021520) от 11.04.2021
 
 СМЕТА М2 v1.184 [Ru] - калькулятор строительных работ
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +113,7 @@ QS Английский язык v1.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +169,7 @@ FIMO - Analog Camera v2.12.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -118,7 +196,7 @@ Stoxy PRO v5.5.0 [Ru/Multi] - Акции, Индексы, Фьючерсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -144,7 +222,7 @@ DiagScan v3.1 [Ru] - сброс кодов ошибок elm327 и расшифр
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -173,7 +251,7 @@ KMPlayer Plus v31.04.120 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -202,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -231,7 +309,7 @@ IELTS Listening v2020.08.25.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -260,7 +338,7 @@ Handy Photo v2.3.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -289,7 +367,7 @@ Kinoplay v0.1.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ DNS Changer | Mobile Data & WiFi | IPv4 & IPv6 v1255r [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +589,7 @@ KnownReader Premium v2021.04.14.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +615,7 @@ Lingvist v2.65.8 + Lite Mod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +641,7 @@ MIX by Camera360 v4.9.12 + Opti-Lite Mod [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +667,7 @@ n-Track Studio 9 Pro v9.3.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -629,87 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE844D2E14C10BE01D66FDD249390A97DBF4C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356497   (1019379) от 24.04.2021
-
-SoundStream v4.3.17 [Ru] - слушаем различные подкасты (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушайте то, что интересно! Откройте для себя более 500 000 подкастов, аудиокниг, аудиосериалов, радиопередач, лекций и аудиоуроков на русском языке абсолютно бесплатно! Слушайте подкасты и аудиосериалы по дороге на работу и учебу, за домашними делами, в очереди, на отдыхе, тренировках и прогулках и в любое удобное время.Тип издания: Mod (Безлимитные скачивания подкастов)Релиз состоялся: 23.04.2021Разработчик: Russian MediaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD231C623D8E4AE3693E138A02B754E8A0F0D3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465345   (1019278) от 25.04.2021
-
-Mokoroom v1.1.2 [En] - Мультяшный фоторедактор (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои фотографии за секунды с помощью различных эффектов и анимации с помощью Mokoroom. Добавляем модные фильтры и стикеры с помощью нашего простого в использовании редактора мультипликационных фотографий. Все в одном приложении без какого-либо профессионального оборудования. Проявив немного творчества, вы получите невероятные фотографии с потрясающим кинематографическим (   Читать дальше...   )Тип издания: Пиратка (удалена реклама)Релиз состоялся: 22.04.2021Разработчик: Palette Cartoon Photo Editor APPПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD25E327B4C08E89B4D354DFC967466FED47A4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465245   (1019259) от 25.04.2021
-
-Домашний Самогон Plus! v11.10 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Калькулятор поддерживает управление Ардуино-автоматикой, рассчитывает:
-- Зерновые браги с осахариванием заторов микробиологическими ферментами;
-- Фруктовые, сахарные и заторы их концентратов/мелассы;
-- Измерение сусла: Расчет остаточной сахаристости, Спиртуозности и Процента сбраживания: °Brix, °Plato, SG, %Сахара;(   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 19 апреля 2021 г.Разработчик: Evgeny KurepinПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DB88A0B2C969A13463C87D5FD5104640C7D23E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1776608   (71255) от 01.02.2025
+
+МузЛофт-подкаст / МузLoft. Согдиана (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Согдиана. Кастинги ничего не значат! О Фабрике, Новой волне и уверенности в себе.
+В нашу музыкальную подкастошную заглянула одновременно и российская и узбекская исполнительница. Ее хит «Сердце-магнит» по-любому знаком всем кому сейчас 30-ть с хвостиком. Включайте выпуск и ловите нотки ностальгии!Производство: Россия | Y-GenerationУчастники: СогдианаПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F889BCAD45E603DBBF5040F59B30B540AAD0B12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776437   (71251) от 01.02.2025
+
+МузЛофт / МузLoft. Диана Анкудинова (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Диана Анкудинова. Жору съели журавли. Опасные поклонники и ответ хейтерам.
+В гостях обладательница множества вокальных наград и необычного голоса. А с недавнего времени ещё и автор собственных песен. В общем обо всех этих регалиях Диана расскажет в выпуске. С вас только хорошее настроение и часик времени.Производство: Россия | Y-GenerationУчастники: Диана АнкудиноваПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC5037D8F130EB410953753FB1D00ACF6290A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776494   (71230) от 01.02.2025
 
 МузЛофт-подкаст / МузLoft. TESTOSTERON (2024) WEBRip [H.264/1080p]
@@ -6,7 +60,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -145,7 +199,7 @@ Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -174,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -201,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -230,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -259,7 +313,7 @@ Paul Van Dyk - Live at opening Kazantip Z17 (2009) TVRip [H.264/1080p] [hand mad
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -286,7 +340,7 @@ Scooter - Jumping all over the world - Live in Berlin (2008) DVDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -315,7 +369,7 @@ Paul Van Dyk - Live at Green Valley (2010) HDTVRip [H.265/2160p] [hand made upsc
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +398,7 @@ Scooter - Live in Dnepropetrovsk (1999) VHSRip [H.264/1080p-LQ] [hand made upsca
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +481,7 @@ Scooter - Live at Highfield festival (2016) WEBRip [H.264/1080p-LQ] [hand made u
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +510,7 @@ Scooter - Live at Rocco del Schlacko festival (2019) WEBRip [H.264/1080p-LQ] [ha
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -597,7 +651,7 @@ NEMOPHILA. Zepp Tour 2022 at Zepp Osaka Bayside (2022) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -627,7 +681,7 @@ NEMOPHILA 4th Anniversary. -Rizing NEMO- at KOBE KOKUSAI HALL (2023) [H.264/1080
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -657,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -671,64 +725,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A278CCF61033E88BAEAB9AEA828F4AF202B051E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713517   (60593) от 06.04.2024
-
-Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.1. Ecstasy of Gold (by Ennio Morricone) =S&M= 1999
-2. Creeping Death =RIDE THE LIGHTNING= 1984
-3. For Whom the Bell Tolls =RIDE THE LIGHTNING= 1984
-4. Fuel =RELOAD= 1997(   Читать дальше...   )Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хэмметт, Роберт Трухильо, Кайл Томсон, Тоби Харгрейв, Маккензи Грей, Питер Брайант, Хротгар МэтьюзПеревод: многоголосый профессиональный (THT)Язык озвучки: русский, английскийСубтитры: русские (full, texts songs), английские (forced songs, full texts songs)Продолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713521   (60574) от 06.04.2024
-
-Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участник технической команды группы Metallica получает задание — привезти сумку, содержимое которой необходимо группе для выступления. Сопровождая таинственную сумку, он попадает в невероятные передряги.1. Ecstasy of Gold (by Ennio Morricone) =S&M= 1999
-2. Creeping Death =RIDE THE LIGHTNING= 1984
-3. For Whom the Bell Tolls =RIDE THE LIGHTNING= 1984
-4. Fuel =RELOAD= 1997(   Читать дальше...   )Производство: США / Blackened Recordings, Exclusive Media Group, Hit The LightsЖанр: музыка, приключения, концертРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хэмметт, Роберт Трухильо, Кайл Томсон, Тоби Харгрейв, Маккензи Грей, Питер Брайант, Хротгар МэтьюзПеревод: многоголосый профессиональный (THT)Язык озвучки: русский, английскийСубтитры: русские (full, texts songs), английские (forced songs, full texts songs)Продолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762794A6ECD81393B514C305865248C3542C5C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,190 @@
+###  Публикация: 266865   (303691) от 06.12.2010
+
+Samurai Warriors 3 [Wii] [PAL] [Multi 5] (2010)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая игра в знаменитой серии ролевых экшенов с продажами более чем 3,5 млн копий отправляет одного или двух игроков в Японию периода Сенгоку. «Эра враждующих государств» воссоздана максимально точно: среди персонажей игры есть даже Ода Нобунага. Игроки могут выбрать любого (и любую) из 37 самураев с абсолютно уникальным оружием и стилем боя, чтобы прорубиться через (   Читать дальше...   )Разработчик: Omega ForceЖанр: Action, beat'em allЯзык интерфейса: Multi 5Формат: Образ в формате
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266908   (303687) от 06.12.2010
+
+Kerio Connect 7.1.2 build 2260 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Kerio Connect 7 – новое поколение почтовых серверов для корпоративных сетей предназначенный для организаций имеющих филиалы (прежняя версия продукта была представлена на рынке под именем Kerio MailServer).
+
+В настоящий момент,Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740628   (303660) от 01.12.2014
+
+VA - Hard Pro v.1-60 (2012-2014) [MP3|320 кб/с]<Hardstyle, Hardcore, Hands Up>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Wavetraxx feat. Elaine Winter - Dark Angel (Dizmaster Remix)
+02. Discotronic - Trickidisco (Paragod Mondo Mix)
+03. Housegeist feat. Safrina - In Your Eyes (Neyther Remix)
+04. Dark Sector - I Came For Destruction(   Читать дальше...   )Жанр: Hardstyle, Hardcore, Hands UpПродолжительность: 274:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0075B2EE5D3DD89D05B68E35D91E29A076CF3CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961018   (302746) от 30.11.2015
+
+qBittorrent 3.3.0 Stable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+qBittorrent - бесплатный, мощный и удобный в работе кроссплатформенный клиент файлообменной сети BitTorrent. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, встроенный менеджер ограничения скорости, фильтрация (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59790FB3447D975440096013565B5A5FDBB4A4EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184146   (302708) от 16.11.2017
+
+Adobe Illustrator CC 2018 22.0.1.253  RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Adobe Illustrator CC 2018 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD7E5B3AA844B5B7597F71B0CE20EE858451715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333245   (302560) от 25.10.2019
+
+Pirates of the Caribbean / Корсары 2: Пираты Карибского Моря (2003) [Ru] (1.03/dlc) Repack miststuck
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к абордажу, пираты не дремлют! «Пираты Карибского моря» - это история, повествующая о приключениях молодого капитана во времена расцвета пиратства в Карибском море. Вам предстоит управлять парусным кораблем и его экипажем, сражаться с полчищами головорезов, ввязываться в отчаянные авантюры, раскрывать политические заговоры и одолеть всех соперников (   Читать дальше...   )Тип издания: RepackРазработчик: АкеллаЖанр: RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3B9BCA147C5BE530E51D38BDEA151C59F591C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960897   (302500) от 30.11.2015
+
+Vampire: The Masquerade Bloodlines (2004) [Ru/En] (1.2/9.4) Repack Samael
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Vampire: The Masquerade-Bloodlines - игра, которая сочетает в себе ключевые элементы традиционных RPG с графической насыщенностью, непосредственностью и жестокими схватками боевиков от первого лица. Игра погружает игроков в темный и жестокий потайной мир современного Лос-Анджелеса, принадлежащий страшным порождениям тьмы - вампирам.Тип издания: RepackРазработчик: Troika GamesЖанр: RPG, Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EFE30137B3524E72F8CC252B6AC816070A5D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875997   (302487) от 30.11.2015
 
 Терминатор: Пенталогия / The Terminator: Pentalogy (1984/1991/2003/2009/2015) BDRip [H.264/720p]
@@ -6,7 +193,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +219,7 @@ Total War: Rome II/2 (2013) [Ru] (2.2.0 Build 16155.736913/upd17/dlc) Repack =ne
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +245,7 @@ Star Wars: Republic Commando (2005) [Ru/Multi] (1.2.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +271,7 @@ OfficeSuite + PDF Editor v10.0.15671 Premium Mod by Balatan [Ru/Multi] - Офи�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +324,7 @@ Sacred 2 Gold: Падший Ангел & Лёд и Кровь [Ru] (Repack/2.65.
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +376,7 @@ Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.11.616.0/dlc) SteamRip R.G. Origin
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +402,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.30 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +483,7 @@ Assassin's Creed: Director's Cut Edition (2008) [Ru/Multi] (1.0.2.1) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +509,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +535,7 @@ Maxon CINEMA 4D Studio R23.110 build RB330286 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +666,7 @@ Adobe Photoshop CC 2018 (19.0.1) Special Edition x86/x64 RePack by Gosuto [Ru/En
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,189 +677,6 @@ Adobe Photoshop - это комплексное решение для профе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4913153A16D3E0205E3CBCC0A75330F3D736548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094263   (300650) от 17.11.2017
-
-F.E.A.R. (2005) [Ru] (1.08/dlc) Repack Other s [Platinum Collection]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будьте героем в вашей собственной кинематографической эпопее с экшеном, постоянным напряжением и ужасом. Таинственные военизированные силы просочились в многомиллиардный аэрокосмический проект, захватив заложников, но не выдвигая никаких требований. Правительство реагирует, послав команду специальных сил для уничтожения угрозы. Но неведомая резня, вызвавшая необъяснимую (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith Productions, Inc., TimegateЖанр: Action (Shooter, Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991D424D0017E700FE4A7344A71F1FD291BACAC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163878   (300648) от 17.11.2017
-
-Американская история ужасов / American Horror Story (2017) WEB-DL [H.264/1080p-LQ] (сезон 7, серии 1-11 из 11) OmskBird [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет нового седьмого сезона сериала, вышедший под названием «Культ», начинается с показа отрывков из президентской кампании Дональда Трампа и Хиллари Клинтон. Герои серии с ужасом наблюдают за тем, как Дональд Трамп объявлен президентом Соединенных Штатов...Производство: СШАЖанр: Ужасы, Фэнтези, Триллер, ДрамаРежиссер: Брэдли Букер, Майкл Аппендаль, Альфонсо Гомез-Рейон, Майкл ЛеманнАктеры: Фрэнсис Конрой, Сара Полсон, Таисса Фармига, Дэнис О`Харе, Закари Куинто, Дилан МакДермотт, Джэми Брюэр, Кэти Бэйтс, Джозеф Файнс, Лиззи Брошере и др.Перевод: Многоголосый закадровый, профессиональный - OmskBirdСубтитры: АнглийскиеПродолжительность: ~00:42:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE40860622A8EEC0E8782BD28A77A48A8958424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333440   (300594) от 26.10.2019
-
-Разговоры клиентов Сбербанка с колл-центром продают в даркнете
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продавец с чёрного рынка утверждает, что кроме персональных и кредитных данных, располагает записями телефонных переговоров клиентов с колл-центром, что может существенно помочь мошенникам при кражах.За последний месяц Сбербанк уже несколько раз фигурировал в СМИ в связи с утечкой персональных данных, и вот о новой утечке сообщает Коммерсантъ. По данным издания, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961295   (300427) от 01.12.2015
-
-Пятый элемент / The Fifth Element (1997) WEB-DL [H.264/2160p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждые пять тысяч лет открываются двери между измерениями и темные силы стремятся нарушить существующую гармонию. Каждые пять тысяч лет Вселенной нужен герой, способный противостоять этому злу. XXIII век. Нью-йоркский таксист Корбен Даллас должен решить глобальную задачу - спасение всего рода человеческого.
-Зло в виде раскаленной массы, наделенной интеллектом, надвигается (   Читать дальше...   )Производство: ФранцияЖанр: Фантастика, боевик, триллер, комедияРежиссер: Люк БессонАктеры: Брюс Уиллис, Гари Олдман, Милла Йовович, Йен Холм, Крис Такер, Люк Перри, Брайон Джеймс, Том «Тини» Листер мл., Ли Эванс, Чарли Срид-МайлсПеревод: Дублированный x 2Язык субтитров: Английский, русский x 3Продолжительность: 02:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D9723D9CD302C30481CD7D41EFB677B751EC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961371   (300395) от 01.12.2015
-
-Fallout 4 (2015) [Ru/Multi] (1.1.29.0.0) License PROPHET
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bethesda Game Studios, создатель популярнейших игр Fallout 3 и The Elder Scrolls V: Skyrim, приглашает вас в мир Fallout 4 – своей самой грандиозной игры нового поколения с открытым миром. Вы – единственный выживший из убежища 111, оказавшийся в мире, разрушенном ядерной войной. Каждый миг вы сражаетесь за выживание, каждое решение может стать последним.Тип издания: LicenseРазработчик: Bethesda Game StudiosЖанр: Action, Shooter, RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, Французский, Итальянский, Немецкий, ИспанскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Бразильский (Португальский), КитайскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Бразильский (Португальский), Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C048FD4C61857A61E79698D62481AF9B1A87E8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333265   (300393) от 26.10.2019
-
-Сторож (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Размеренную жизнь сторожа заброшенного санатория нарушает приезд странной пары, которая просит остановиться в одном из номеров. Всем троим есть что скрывать и от чего прятаться в снежной глуши.Производство: Россия, Инвада ФильмЖанр: драма, триллерРежиссер: Юрий БыковАктеры: Юрий Быков, Владислав Абашин, Алла Юганова, Александр Кузьмин, Артур Бесчастный, Олег Зима, Гела Месхи, Алексей Симонов, Николай Козак, Дмитрий БлохинПродолжительность: 01:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E86E6470BAA594DA56DE8C6BDD2454405265245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955060   (300391) от 01.12.2015
-
-Последнее королевство / The Last Kingdom (2015) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о временах правления короля Уэссекса Альфреда Великого, сумевшего отвоевать английские земли у датских викингов — заморских захватчиков. Главным героем повествования выступает ещё в младенчестве похищенный данами Утред — потомок благородного саксонского рода. Воспитанный как викинг, в очень непростой момент жизненного выбора молодой воин должен (   Читать дальше...   )Производство: Великобритания / Carnival Film & TelevisionЖанр: боевик, мелодрама, историяРежиссер: Бен Чанан, Энтони БирнАктеры: Александр Дреймон, Николас Роу, Эмили Кокс, Дэвид Доусон, Иэн Харт, Герард Кернс, Алек Ньюман и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B25E84BF56EBD52933962B9358EAA72855B3DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

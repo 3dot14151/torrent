@@ -6,7 +6,7 @@ Kraster - 26 альбомов (2008-2013) Touhou Vocal /Doujin/ [FLAC|tracks] <J
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +35,7 @@ BLANKFIELD - 8 альбомов (2008-2014) Touhou Instrumental /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +64,7 @@ forestpireo - 24 альбома (2008-2014) Touhou Vocal /Doujin/ [FLAC|Lossless
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +92,7 @@ nano - 3 альбома (2013-2015) [FLAC|Lossless] <J-Rock>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -121,7 +121,7 @@ Vermillion-D Alice Syndrome - 8 альбомов (2011-2015) Touhou Vocal, KanCo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +150,7 @@ Barrage Am Ring - 11 альбомов (2010-2015) Touhou Vocal /Doujin/ [FLAC|tr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +179,7 @@ Orange Pekoe - Best Remixes (2016) [FLAC|Lossless|tracks + .cue] <JPop, House, S
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -208,7 +208,7 @@ Demetori - 9 альбомов (2006-2015) Touhou Instrumental /Doujin/ [FLAC|tra
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +236,7 @@ Kazu Matsui - The Stone Monkey (2005) [APE|Lossless|image + .cue] <Contemporary,
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +265,7 @@ Loudness - 2·0·1·2 (2012) [WavPack|Lossless]<Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +300,7 @@ VA - Who Do They Think We Are? - A Tribute to Deep Purple from Japan (1996) Reis
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -335,7 +335,7 @@ ESQUARIA - 7 альбомов (2013-2015) Touhou Vocal /Doujin/ [MP3|320kbps] <J
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -364,7 +364,7 @@ Saber Tiger - Project One (1997) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -393,7 +393,7 @@ Saber Tiger - Indignation (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +422,7 @@ Kaori Muraji - Portraits (2009) [MP3|320 кб/с]<Classical, Instrumental, Acous
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +456,7 @@ Cintija Wang - Copenhagen's Fairy Tales (2009) [FLAC|Lossless]<Cpop,mandopop,tw.
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +482,7 @@ T.M.Revolution - ignited (2004) Single [FLAC|Lossless|tracks + .cue] <Jpop, Anim
 >>Asian Pop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +509,7 @@ Shunichi Miyamoto - 4 альбома, 4 сингла (2003-2008) Дискогр�
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +535,7 @@ Luo Qi-Rui - Sweet Sounding From Hsiao (2006) [MP3|320 кб/с]<Instrumental>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +570,7 @@ VA - Eastern Fragrance (2007) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +604,7 @@ VA - Treasure Edition, Chinese Music Classics Of The 20th Century (2004) 24 CDs 
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -630,7 +630,7 @@ Toru Takemitsu (武満徹) - The Film Music Of Toru Takemitsu (1997) [FLAC|Lossl
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -659,7 +659,7 @@ Kinoco Hotel - 3 альбома (2010-2011) [MP3|192 кб/с]<J-Rock, J-Pop>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -694,7 +694,7 @@ Rokugen Alice - 32 альбома (2006-2014) /Doujin/ [FLAC|Lossless] <J-Rock, 
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -723,7 +723,7 @@ VA - Sound Of The Crystal Energy (4 albums) (2009) [MP3|320 кб/с]<Instrumenta
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -759,7 +759,7 @@ Shoujo Byou - 26 альбомов (2004-2012) /Doujin/ [FLAC|tracks] <J-Rock, Go
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

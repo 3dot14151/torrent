@@ -1,3 +1,56 @@
+###  Публикация: 1179049   (348503) от 31.10.2017
+
+Двойная рокировка: Трилогия / Infernal Affairs: Trilogy / Mou gaan dou I-III (2002, 2003) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История двух людей, ежесекундно рискующих жизнью. Один из них — агент мафии в полиции, другой — полицейский, внедренный в мафию. Каждый стремится к одному: разоблачить врага...Производство: Гонконг, Китай, Сингапур / Media Asia Films, Basic Pictures, Eastern Dragon Film Co. Ltd., Mediacorp Raintree PicturesЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Эндрю Лау, Алан МакАктеры: Энди Лау, Тони Леунг, Энтони Вонг, Чау Санг, Эрик Цанг, Келли Чен, Самми Ченг, Эдисон Чен, Шоун ЮПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:42 | 01:59:28 | 01:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC21AB0D8DF72BED7AD2FC35DA5CF65A8EE3546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418795   (343844) от 26.10.2020
+
+Неуловимые мстители (1966,1968,1971) WEBRip [H.264] [Трилогия]
+
+>>Коллекции / *логии
+>>Отечественное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Неуловимые мстители» — советский цветной художественный фильм-истерн, поставленный на Московской ордена Ленина киностудии «Мосфильм» Эдмондом Кеосаяном по мотивам повести Павла Бляхина «Красные дьяволята», о приключениях четырёх подростков в годы Гражданской войны.
+Все три части знаменитой трилогии о "Неуловимых мстителях". Блистательная режиссура, актёрская (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Приключения, боевикРежиссер: Эдмонд КеосаянАктеры: Василий Васильев, Виктор Косых, Валентина Курдюкова, Михаил Метёлкин, Борис Сичкин, Армен Джигарханян, Владимир Белокуров, Надежда Федосова, Виктор Колпаков, Иван Жеваго, Александра Денисова, Лев Свердлин, Савелий Крамаров, Глеб Стриженов, Инна Чурикова, Павел Винник, Ефим Копелян, Владимир Трещалов, Геннадий Юхтин, Иван Савкин, Валентина Ананьина, Альбина Матвеева, (   Читать дальше...   )Язык озвучки: Русский, Английский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:13:03 + 01:16:11 + 01:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429E33E36B1EB67F9F7110EC35E8F4D9A383590D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580340   (339487) от 26.11.2012
 
 Коллекция отечественных новогодних фильмов. Часть 2 (1959-2011) DVDRip, SATRip, HDRip, TVRip
@@ -6,7 +59,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_333981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BAF4A50351ACD177615638F64AA1E88CBBDC2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334265   (290526) от 31.10.2019
-
-Звездный путь / Star Trek (2009,2013,2016) BDRip [H.265/1080p] [10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная команда крейсера Звездного Флота «Энтерпрайз» исследует неизведанные глубины космоса. Во время этого полного опасностей путешествия герои сталкиваются с таинственной силой, ставящей под угрозу не только их миссию и стабильность Федерации, но и весь миропорядок.Производство: США, Германия, Китай, ОАЭ, Канада / Paramount Pictures, Spyglass Entertainment, Bad Robot, Skydance Media, Alibaba PicturesЖанр: фантастика, боевик, приключенияРежиссер: Джей Джей Абрамс, Джастин ЛинАктеры: Крис Пайн, Закари Куинто, Зои Салдана, Карл Урбан, Эрик Бана, Антон Ельчин, Саймон Пегг, Джон Чо, Леонард Нимой, Брюс Гринвуд, Саймон Пегг, Бенедикт Камбербэтч, Идрис Эльба, София Бутелла, Джо ТаслимПеревод: ДублированныйСубтитры: Русские, украинские, английскиеПродолжительность: 02:06:50 / 02:12:06 / 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678CCDBB433E85373ED22272560E3CF01594B1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263050   (283860) от 21.11.2018
-
-Сайлент Хилл / Silent Hill (2006-2012) BDRip [H.265/1080p-LQ] [10-bit, Дилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: США, Франция, Davis-Films, Silent Hill 2 DCP, Sony Pictures Entertainment (SPE)Жанр: Ужасы, Триллер, Детектив, ДрамаРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин Питт, Питер АутербриджПеревод: Дублированный (лицензия)Субтитры: ОтсутствуютПродолжительность: 01:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73AE4331D2EDC5D680217195FFF70866316EF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

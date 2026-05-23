@@ -6,7 +6,7 @@ Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|t
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +35,7 @@ Koda Kumi - 10 альбомов, 5 компиляций, 6 Remix Albums, 58 си
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +61,7 @@ Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +90,7 @@ Babymetal - Metal Galaxy (2019) Japanese Edition [MP3|320 Kbps] <Heavy Metal, J-
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +119,7 @@ Masayoshi Takanaka - Ukulele Seychelles (2011) Lagoon Records [FLAC|Lossless|tra
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +148,7 @@ Akisai - Images (2015) [OGG| 466-546 кб/с]<Electronic, Instrumental, Ambient,
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +177,7 @@ Akisai - Colors (2014) [OGG| 432-502 кб/с]<Electronic, Instrumental, Ambient,
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +206,7 @@ SYU - You Play Hard (2016) [MP3|320 Kbps] <Instrumental Neoclassical Power Metal
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +235,7 @@ VA - Lovely String (1999) [MP3|320 кб/с]<Instrumental, Ethnic>
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +270,7 @@ Meisa Kuroki - 4 альбома, 8 синглов (2008-2012) [MP3|320 кб/с]<
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +296,7 @@ The Art of Mankind - Archetype (2018) 2CD [FLAC|Lossless|image + .cue] <Melodic 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +322,7 @@ Loudness - Lightning Strikes (2016) 30th Anniversary Limited Edition [WavPack|Lo
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +351,7 @@ Loudness - Buddha Rock 1997-1999 (2016) 35th Anniversary Limited Edition [WavPac
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +380,7 @@ Daisy×Daisy — 6 альбомов + 5 синглов (2008-2014) [MP3|320 kbps
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +409,7 @@ Arclipse - City of Haze (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +438,7 @@ Pure Wrath - Sempiternal Wisdom (2018) [MP3|320 Kbps] <Atmospheric Black Metal>
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - The Chinese Musician Series (Ensemble) (41 CD) (2006) [MP3|320 kbps]<Tradit
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +493,7 @@ Einherjar Records - 2 альбома (2009) Touhou Instrumental /Doujin/ [FLAC|L
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +521,7 @@ Finality Blast - Sorrow Halation (2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <P
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +555,7 @@ False&Trues - 4 альбома (2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +585,7 @@ Mods Crisis x Register6 - New Age Swager  (2014) Touhou Vocal /Doujin/ [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +616,7 @@ Shanren - Left Foot Dance of the Yi (2014) [OGG|465-587 кб/с]<World Music, Ch
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -645,7 +645,7 @@ FactoryNoise AG - 4 альбома (2005-2006) Touhou Instrumental /Doujin/ [FLA
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,7 +675,7 @@ MONACA — DRAG-ON DRAGOON 3 Original Soundtrack (2014) [FLAC|tracks] <Soundtrac
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -703,7 +703,7 @@ VA — NieR Gestalt & Replicant Original Soundtrack (2010) [FLAC|tracks] <Soundt
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -731,7 +731,7 @@ Hatsune Miku Symphony 2016 Orchestra Live CD [FLAC|Lossless|image+.cue] <J-Pop, 
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 

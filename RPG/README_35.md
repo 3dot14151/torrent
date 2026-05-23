@@ -1,3 +1,81 @@
+###  Публикация: 268576   (271615) от 30.11.2018
+
+Mount & Blade: With Fire & Sword / Mount & Blade: Огнём и мечом: Великие битвы (2010) [Ru] (1.0) License R.G Игроманы
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Средневековая Европа умирает. И хотя бронированная конница всё ещё страшна в атаке, а лук и стрелы в умелых руках всё ещё опаснее пистолета, война уже изменилась навсегда. Под грохот полевых орудий, среди гранатных взрывов и треска мушкетной пальбы рождаются новые армии, которые сметут старые империи с карты Европы. В новом проекте серии «Огнём и мечом» вас ждёт (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Студия СиЧъ, Snowberry ConnectionЖанр: Action, Add-on (Standalone), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0985F5661E21F3E35342BE1DD7BA5B5EFAC08786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337930   (271109) от 13.11.2019
+
+CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Соберите команду и бросьте вызов смерти в CODE VEIN. Раскройте тайну своего прошлого и спасите свою жизнь. Меняйте класс персонажа, подбирайте навыки и союзников и делайте все, что поможет вам выжить. Эта игра может содержать контент, не подходящий для всех возрастов или для просмотра на работе: Сцены насилия или жестокости, Контент для взрослых.Тип издания: RepackРазработчик: BANDAI NAMCO StudiosЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9362E2A9B77649558C97DBA368A2AAE37FFBA2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337868   (271108) от 13.11.2019
+
+Rune II (2019) [Ru/Multi] (0.0.9L) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие RUNE II происходит в опасном скандинавском мире, дни которого почти сочтены. Это эпическая приключенческая ролевая игра, в которой боги, чудовища и остатки людей борются за выживание. Боги избрали вас спасителем Мидгарда — получайте их благословения и мощные способности, чтобы предотвратить Рагнарёк.Тип издания: LicenseРазработчик: Human Head StudiosЖанр: Action, RPG, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32835E06AD9F85097E47B7A05F3AA352CC583431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482911   (270618) от 01.12.2018
 
 The Elder Scrolls: Arena (1994) [Ru] (1.0) Repack pilotus
@@ -6,7 +84,7 @@ The Elder Scrolls: Arena (1994) [Ru] (1.0) Repack pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Fictorum (2017) [En] (2.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Temple of Elemental Evil (2003) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.3/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +292,7 @@ ARK: Survival Evolved (2017) [Ru/Multi] (275/dlc) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Star Wars™: Knights of the Old Republic (2003) [Multi] (1.0.3.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Vaporum (2017) [Ru/Multi] (Build 236) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Hand of Fate 2 (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Hades (2020) [Ru/Multi] (1.38290) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Balrum (2016) [En] (1.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Yendorian Tales [En] (RePack) 1996 | RG games (Pilotus)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.22) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Geneforge 1 - Mutagen (2021) [En] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +630,7 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Trails in the Sky 1st Chapter (2025) [Multi] (1.0/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Legend of Heroes: Trails in the Sky - ролевой экшн, разраб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22462C6588A2491028740B6501A0896B9A3A5B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837397   (256742) от 16.11.2025
-
-Little Witch in the Woods (2022) [Multi] (1.0) Scene SKIDROW
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Witch in the Woods позволяет окунуться в жизнь девочки - ученицы ведьмы, которая отправляется на исследование странного леса, помогая его обитателям. В адвенчуре присутствует глубокая сюжетная линия, а также реализована пиксельная графика, есть многообразие мероприятий и возможность провести интересно досуг. Героиня - Элли, которая учится магии.Тип издания: SceneРазработчик: SUNNY SIDE UPЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык субтитров: Английский, Корейский, Китайский (упрощенный) и другиеЯзык интерфейса: Английский, Корейский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39A68D800BA4CB12D3ED9FE3817661CEFA7B5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476306   (255912) от 14.11.2025
-
-Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в ностальгию с тактической ролевой игрой, вдохновением для которой послужили самые выдающиеся классические представители жанра. Отправляйтесь в увлекательное путешествие с уникальными персонажами и погрузитесь в захватывающую историю. Вы можете нанять до 14 персонажей с уникальными способностями и победить с их помощью свой самый ужасный кошмар в эпических (   Читать дальше...   )Тип издания: LicenseРазработчик: Makee, Forever Entertainment S. A.Жанр: jRPG, Tactical RPG, Adventure, StrategyЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836790   (255662) от 12.11.2025
-
-Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255662.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли единственного выжившего из Убежища 111 вам предстоит отправиться в путешествие по миру, испепеленному ядерной войной. Опасности поджидают на каждом шагу, а каждое решение имеет свои последствия. Стройте, восстанавливайте и покоряйте Пустошь - так, как захотите. Добро пожаловать домой.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,157 @@
+###  Публикация: 1040808   (585468) от 06.08.2016
+
+VA - Новая Жажда Скорости Без Тормозов vol.4 (2016) [MP3|320 Kbps] <Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Cally & Riot - World In My Hands (Original Mix)
+02. Frequencerz - 12FU (Original Mix)
+03. Airtunes - Vampires (Original Mix)
+04. Faizar - The Darkness Drops (Original Mix)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FEC4C074AFB730C67710BA70900D756FABE74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358663   (585223) от 03.07.2011
+
+VA - Amnezia Super Hits 60 (02.07.2011) [MP3|320 kbps]<Dance, Euro Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo Cooper ft. Megane - Je Veux (Radio Edit)
+ 02. Robert Abigail & Dj Rebel ft. The Gibson Brothers - Cuba (Radio Edit)
+ 03. Miani - Balkanica (Slowbrothers Radio Mix)
+ 04. Maria - Acredita (Believe)
+ 05. Flow 212 & Juan Magan - Ritmo Do Meu Flow
+ 06. Karmin Shiff ft. Juliana Pasini & Kryz Santana - Ole Ola (Radio Edit)
+ 07. Lucenzo ft. Don Omar - Danza Kuduro
+ 08. Willy William & Lylloo - Hula Hoop (US Radio Edit)
+ 09. El Simbolo - Ritmo Bomba (Acordeon Mix)
+ 10. Javier Voltaje & Vitamina C - La Chica Baila(   Читать дальше...   )Жанр: Dance, Euro DanceПродолжительность: 04:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4A7E1524A4F097C8446BE45C2DC07BB8EBD2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040606   (585049) от 06.08.2016
+
+VA - Hits of My Soul Vol. 09 (2016) [MP3|320 кб/с]<Synthpop, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки, разных жанров.
+Его должен услышать каждый кто хочет насладится: яркими, эмоциональными, красивыми, нежными, и атмосферными треками.
+Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественною музыку.01. Kick Puncher - Resolution (03:04)
+02. MegaDrive - NARC (04:44)
+03. Betamaxx - Redlining 6th (02:58)
+04. Dance With The Dead - Zombie Night (04:29)Жанр: Dark Synth, Electronic, New Retro Wave, Synth, Synthwave, Synthpop, New Wave, Dreamwave, Electronic Rock, SoundtrackПродолжительность: 03:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B765A0A4A2BFD99C22553398EC82B65DC428AD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552896   (584697) от 23.05.2022
+
+VA - Record Super Chart 21.05.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. MELISA & TOMMO - I'm Alone (2:59)
+02. Imanbek & BYOR - Belly Dancer (Extended Mix) (3:32)
+03. James Hype & Miggy Dela Rosa - Ferrari (5:38)
+04. Alis Shuka - Not About Us (2:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711BD14CBEAD3D7E9F29F0A22464EB6F460E584F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301189   (584349) от 12.05.2019
+
+VA - Joom Techno Grooves (2019) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. David Londono - Booster
+002. Act Of Rage - Brain Confusion
+003. Wildstylez - Run With The Wolves
+004. Akyra Ft. Mc Chucky - All The Ladies(   Читать дальше...   )Жанр: TechnoПродолжительность: 08:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8563F4EA3433F2F990BE25EE67A1F38BC02150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301177   (584343) от 12.05.2019
 
 VA - Republic Of Free Music: Trance Set (2019) [MP3|320 Kbps] <Trance, Electro>
@@ -6,7 +160,7 @@ VA - Republic Of Free Music: Trance Set (2019) [MP3|320 Kbps] <Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +189,7 @@ VA - New Gallery Soft House (2019) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +218,7 @@ VA - Drum Report Bass Line (2019) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +247,7 @@ VA - Drum Rehab: Vocalize & Pressure Rhythm (2019) [MP3|320 Kbps] <Techno>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +276,7 @@ VA - EDM Spring Box Set (2019) [MP3|320 Kbps] <EDM, Dance, House, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +305,7 @@ VA - Elegy Of Techno Music: DJ Zone (2019) [MP3|320 Kbps] <Techno, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +334,7 @@ VA - Amsterdam EDM Music: Minimal Tech House (2019) [MP3|320 Kbps] <Tech House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_584285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +363,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #57 (19.06.2011)[MP3|320 kbps]<Vo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +398,7 @@ VA - New Trance Euphoria (2019) [MP3|320 Kbps] <Trance, Uplifting, Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +427,7 @@ VA - Sexy Trance #10 (03.07.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -306,7 +460,7 @@ VA - Lounge At The Seashore 16 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -335,7 +489,7 @@ VA - Some New Stuff (2016) [MP3|320 Kbps] <House, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -364,7 +518,7 @@ VA - Goa Vol.60 (Compiled By DJ SIM & Champa) (2016) [MP3|320 Kbps] <Trance, Psy
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -393,7 +547,7 @@ VA - Club Dance Ambience Vol.81 (2016) [MP3|320 Kbps] <House, Progressive, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +576,7 @@ VA - Trance Colors (2022) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +605,7 @@ VA - Beatport Trance Pack (08.08.) (2016) [MP3|320 Kbps] <Trance,  Progressive, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +634,7 @@ VA - Sexy Deephouse Selection (2016) [MP3|320 Kbps] <Deep House, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +663,7 @@ VA - Summer Hits 100 Empire (2016) [MP3|320 Kbps] <House, Progressive, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +692,7 @@ VA - Neon Club House: Spring DJ Session (2019) [MP3|320 Kbps] <Club, Dance, Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +721,7 @@ VA - Sense Of Trance #1-13 (2011) [MP3|320 kbps]<Trance>[обновляемая]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +747,7 @@ VA - A World Of Trance (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,155 +761,6 @@ VA - A World Of Trance (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89E55DDB7691FF5D6618A5E0FBAC804679F18B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041707   (581475) от 10.08.2016
-
-VA - Sexy Chillout Vol 1 (2016) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Sandri - Eden Song (4:26)
-02. Christoph Spendel - Journey to the Sun (4:20)
-03. Della Sol Lounge - Love Sweet Love (4:32)
-04. Aqua Mundi - Sweet Fragrances (6:15)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E849FC9F28FE076629FACF0924F52044C3E08AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041473   (581471) от 10.08.2016
-
-VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Frim - 110 Squad
-002. TroyBoi & Diplo - Afterhours (BONE Remix)
-003. NGHTMRE & Boombox Cartel - Aftershock (NTCRCKRS Remix)
-004. Elephante - Age Of Innocence (CrankDat Remix)(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 06:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C43E906781DEB1C79AA7260CE4152A19C17DB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041684   (581466) от 10.08.2016
-
-VA - The Best - In Music We Trust  Vol.5 (2016) [MP3|320 Kbps] <House, Trance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581466.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrew Rayel & Digital X feat. Sylvia Tosun  -  Winterburn (Jorn van Deynhoven Extended Remix)  5:30
-002. Crew 7  -  Bounce (Melbourne Bounce Project Edit)  3:29
-003. Melbourne Bounce Project & Gemeni  -  Melbournia Superstars (Extended Mix)  4:10
-004. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Trance, ClubПродолжительность: 06:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E71E6C930F9FD8C0D35CEB88B243C418FD54826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920249   (581112) от 21.07.2015
-
-VA - Trance Desire Volume 51 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5ugar & Eva Kade - All Around (Original Mix) (08:16)
-02. Alex M.O.R.P.H. feat. Natalie Gioia - The Reason (Extended Mix) (07:41)
-03. Audiocells & Eskova - Breathing (Original Mix) (07:41)
-04. Colonial One feat. Eva Kade - Where You Are (Original Mix) (08:17)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E664CCA477D6B04B2F2B9655DC041223FD1A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360344   (581104) от 07.07.2011
-
-VA - In Da Club Vol.53 (07.07.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581104.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - In Da Club Vol.53 (07.07.2011)
-Год: 07.07.2011
-Жанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance, Classic Trance
-Продолжительность: 01:43:46Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-001. Steve Anderson feat. Pippa - Always More (Extended)
-002. Andy Duguid feat. Lea - Miracle Moments (Original Mix)(   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B1A0270E0A240A75321B9D2DE439D2BE4A1E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

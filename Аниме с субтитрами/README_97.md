@@ -1,3 +1,107 @@
+###  Публикация: 1643715   (209953) от 02.07.2023
+
+Fate/strange Fake: Whispers of Dawn | Судьба/странная подделка: Шёпот рассвета [2023, Special] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о Фальшивой Войне Святого Грааля, основанной на Третьей Войне Святого Грааля, происходившей в городе Фуюки. После её завершения базирующаяся в США организация магов, отличная от лондонской Ассоциации Магов, использовала данные о ней для своего собственного ритуала. Семьдесят лет спустя город Сноуфилд в Калифорнии избрали Священной Землёй для собственной (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Энокидо СюнПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47EEBCDE319EFCA3412FB02C57361228A5890F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605377   (209767) от 17.01.2023
+
+Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп. + 13 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Настала пора Назарику выйти из тени. Следуя своему великому плану, Айнз Уол Гоун создал свою страну — Колдовское Королевство — и, заключив ложный союз с Империей Багарут, с лёгкостью захватил Эрантел. Присвоив титул Короля-заклинателя, он взошёл на трон своего нового царства. Цель велика — под стать правителю: создать утопичное и процветающее королевство, основанное (   Читать дальше...   )Производство: студия Madhouse / マッドハウスЖанр: приключения, фэнтезиРежиссер: Ито НаоюкиПеревод: CrunchyRoll (только ТВ, спешалы без перевода)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин. + 13 SP по 2 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDBD672F72E066E5E0C312D3E303E42E286A7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563338   (208202) от 13.09.2022
+
+Meng Qi Shi Shen | Cinderella Chef 3 | Очаровательная богиня еды 3 [2022, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Е Цзяяо, редактор журнала современная кухня, перемещается в период династии Хуай Сун, став Е Цзинсюань - старшей дочерью губернатора Янчжоу и становится наложницей Ся Чхуньюя, третьего человека в деревне Черного Ветра. Ся Чхуньюй на самом деле - шпион, он подозревает, что его новую наложницу подослал к нему глава деревни, чтобы за ним следить. Однако, острота ума (   Читать дальше...   )Производство: КитайЖанр: Комедия, Драма, Гурман, Романтика, ИсторическийРежиссер: Цзя ФэйПеревод: официальный (crunchyroll)Язык озвучки: КитайскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B93BE9115F0EC4B1E36D783E157413631021E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609972   (208147) от 05.02.2023
+
+Mushibugyou | Истребители насекомых [2013, TV, 26 эп. + 3 OVA] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В очередном альтернативном Эдо людям не дают житья насекомые. Да не простые клопы с тараканами, а гигантские демонические жучары с пауками, которым человека перекусить – что нам спичку сломать. Для защиты города по просьбе жителей сегунат Токугава создал Жучиный приказ, чьи бойцы неустанно истребляют членистоногую нечисть с помощью верных мечей, взрывчатки и Великой (   Читать дальше...   )Производство: Студия Seven Arcs / セブン・アークスЖанр: приключения, фэнтезиРежиссер: Хамана ТакаюкиПеревод: fynnley (1-6); lethal, Lyserg17 (7-26); Fallen Serrafim (OVA)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A9FC8307F1958018F645334844412A75D6E6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648676   (208104) от 24.07.2023
 
 Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не признает меня мобом [2023, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +110,7 @@ Kubo-san wa Mob o Yurusanai | Kubo Won't Let Me Be Invisible | Кубо не п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kanojo, Okarishimasu 2 | Rent-a-Girlfriend 2 | Девушка на час [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Engage Kiss | Поцелуй-активатор [2022, TV, 13 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Love All Play | Люблю играть [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Aoashi | Аоаси [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Lycoris Recoil / Ликорис Рекойл [2022, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Nakitai Watashi wa Neko o Kaburu | Nakineko | A Whisker Away | Сквозь сл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Orient | Ориент [2022, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Dansai Bunri no Crime Edge | The Severing Crime Edge | Режущий грань
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Hataraku Maou-sama!! / The Devil is a Part-Timer!! / Повелитель Тьм
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Inu-ou | Inu-Oh | Ину-о: Рождение легенды [2022, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -378,7 +482,7 @@ Fuuto Tantei | Fuuto PI | Детективы Футо [2022, Web, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +508,7 @@ Warau Arsnotoria Sun! | Smile of the Arsnotoria the Animation | Улыбка А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +534,7 @@ Mamahaha no Tsurego ga Motokano Datta / My Stepmom's Daughter Is My Ex / Моя 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Kakkou no Iinazuke | A Couple of Cuckoos | Обручённые кукушкам
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -534,7 +638,7 @@ Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выбо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -560,7 +664,7 @@ Mushikaburi Hime | Bibliophile Princess | Принцесса-библиофил 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -571,110 +675,6 @@ Mushikaburi Hime | Bibliophile Princess | Принцесса-библиофил 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1283DABD9F1E5FF0809C3E6C5406C25EE7153FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654581   (204584) от 02.01.2023
-
-Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выборы и шоколад [2012, TV, 13] BDrip 1080p Hi10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204584.jpg" />
-</div>
-
-
-###  Подробнее
-
-В престижной частной школе Такафудзи кипят совсем не детские страсти! Борьба за власть и влияние среди отпрысков небедных семей привела к первым жертвам, про многих лидеров Совета поползли темные слухи, и потому назначены новые выборы. Главным претендентом на пост президента Школьного совета является действующий казначей Сацуки Синономэ, которую даже недоброжелатели (   Читать дальше...   )Жанр: комедия, романтика, школаРежиссер: Китахата ТоруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FCA2FB2274B000C9B50151D61FF83827ED9057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589043   (204564) от 02.01.2023
-
-Renai Flops / Love Flops / Любовные неудачи [2022, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Асахи Кащигави — обычный японский школьник, который в один прекрасный день сталкивается с чередой необычных случаев по дороге в школу. Все они происходят согласно пространному телевизионному гороскопу, который он смотрел утром, а кульминацией должно стать неудачное столкновение с девушкой. Вот только встречает он не одну девушку, а нескольких и, по странному совпадению, (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Нагаяма НобуёсиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1C45509375E6A7092DEAFFE00B437AA4EF2942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591727   (204493) от 04.01.2023
-
-Peter Grill to Kenja no Jikan: Super Extra | Peter Grill and the Philosopher's Time: Super Extra | Питер Грилл и время мудреца [ТВ-2] [2022, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Между подавлением вторжения гоблинов, улучшением торговых переговоров с гномами и умиротворением бдительной сестры, которая может просто сойти с ума, чтобы держать его в узде, у Питера есть своя работа. Он самый востребованный герой в стране… и это не считая множества женщин, интересующихся его «другими» талантами. Питеру потребуется вся его сила воли, чтобы сосредоточиться (   Читать дальше...   )Производство: SevenЖанр: комедия, эттиРежиссер: ТацумиПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3955B53E81187F93950B02FBC0FF84E5A4E2DCC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602884   (204351) от 07.01.2023
-
-Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убойный ангел Докуро OVA [2005-2007, OVA, 6 эп.] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный школьник Сакура-кун даже не подозревает, что в будущем ему суждено изобрести революционную технологию вечной молодости, которая будет прекращать взросление девочек после того, как им исполнилось двенадцать лет (хотя, делая это открытие, он будет преследовать совсем иные цели...). Тем не менее это изобретение даст людям невиданные доселе возможности, что не (   Читать дальше...   )Производство: Студия Hal Film Maker / ハルフィルムメーカーЖанр: комедия, эттиРежиссер: Мидзусима ЦутомуПеревод: Shedani (1-4); BakaNyaka (5-6)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238522EAF759DCBEC5035113C529D36A431C0C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

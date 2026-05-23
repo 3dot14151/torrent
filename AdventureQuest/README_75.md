@@ -1,3 +1,107 @@
+###  Публикация: 1710711   (61610) от 27.03.2024
+
+Between Horizons (2024) [Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Between Horizons - это крутой 2.5D приключенческий детектив в научно-фантастической атмосфере. Ты отправляешься в путешествие на корабле Zephyr, первом поколении космического корабля человечества, направляющегося к другой звезде. В роли Стеллы, наследницы должности начальника службы безопасности, тебе предстоит раскрыть заговор, который угрожает миссии корабля. Весь (   Читать дальше...   )Тип издания: SceneРазработчик: DigiTales InteractiveЖанр: Приключенческие игры, ИндиЯзык субтитров: Английский, Немецкий, Корейский, Китайский (упрощенный)Язык интерфейса: Английский, Немецкий, Корейский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710774   (61544) от 28.03.2024
+
+Bloody Ink (2024) [Ru/Multi] (13792199) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Bloody Ink - это психологическая хоррор-игра от первого лица, направленная на внедрение беспокойства, страха и ужаса. Лука - мужчина, потерявший работу. Он живет день ото дня, пытаясь выжить. Когда новая работа, наконец, обещает изменить его жизнь, начинается его кошмар. Ему предстоит заботиться о человеке, полностью обгоревшем, и Лука переезжает в дом этого человека, (   Читать дальше...   )Тип издания: SceneРазработчик: Daniele Doesn't MatterЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE2F13B09456064B93ABFA673E7BC4DF09DC7E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711018   (61542) от 28.03.2024
+
+Distant Bloom (2024) [Multi] (1.0) Scene FAiRLIGHT
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Distant Bloom – постарайтесь восстановить некогда прекрасный мир! Попросту говоря, отправьтесь навстречу предельно расслабляющему менеджменту, в котором вы будете заниматься исследованиями инопланетного мира. Вас приветствует довольно уютное управление и одновременно исследования далёкого мира. Где наш протагонист длительное время провел в космической экспедиции (   Читать дальше...   )Тип издания: SceneРазработчик: Ember TrailЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218C89C574E24F2EF8CA2702ACE7D569A2BF975A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711510   (61342) от 30.03.2024
+
+Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Психологический хоррор переплетается с шармом южной готики в леденящем душу переосмыслении культовой Alone in the Dark, ставшей эталоном жанра. Вам приоткроется дверь в мир безумия, где каждая встреча может оказаться последней. Вы ощутите, как с каждым шагом, что приближает вас к разгадке тайны Дерсето, взирающие из тьмы глаза становятся все голоднее.Тип издания: RepackРазработчик: Pieces InteractiveЖанр: Action, Adventure, HorrorЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED86AC60DE2A1170DFCD06ECEC5B50BDEE9D6C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670013   (61236) от 31.03.2024
 
 Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
@@ -6,7 +110,7 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Clash: Artifacts of Chaos (2023) [Ru/Multi] (28836/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ There's Something In The Ice (2024) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ A Divine Guide To Puzzle Solving (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Distant Bloom (2024) [Multi] (41064.3120) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Between Horizons (2024) [Multi] (1.0.4+s) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Gore Doctor (2024) [En] (1.05) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Bloody Ink (2024) [Ru/Multi] (13792199) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Holy Maid Academy (2024) [Multi] (1.0.0a/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0.11) Repack Cheshire28 [Multilang
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Spider Fox (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Paradise Marsh (2022) [Multi] (1.0) Scene Tenoke [Soundtrack Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dark Days (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Children of the Sun (2024) [Ru/Multi] (13997895) Repack Other s [AD]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Cursed Legacy (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Cursed Legacy - это сверхъестественное расследо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5731180FC31E51E9B504A865E514C8145871FB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715572   (59958) от 12.04.2024
-
-Ereban: Shadow Legacy (2024) [Ru/Multi] (1.1.14) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ereban: Shadow Legacy в быстро развивающемся стелс-платформере вы окажетесь на месте Аяны, последней представительницы забытой расы. Вы будете использовать уникальную смесь мистических теневых способностей и высокотехнологичных гаджетов, сражаясь или крадясь, раскрывая детали своей биографии. Ставки высоки - вы выполняете миссию по спасению гибнущей вселенной, но (   Читать дальше...   )Тип издания: RepackРазработчик: Baby Robot GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D4272434600BBDDBB328FE7559E2145BC49E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715594   (59955) от 12.04.2024
-
-Yet Another Fantasy Title (2024) [Ru/Multi] (1.0hf) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yet Another Fantasy Title (YAFT) - это изометрический ролевой экшен, в котором вы сможете почувствовать себя настоящим разбойником в фэнтезийном мире! Здесь вы сможете отправиться в эпическое путешествие по открытому миру, наполненному абсурдным юмором и музыкой, которая перенесет вас в Средневековье. Но будьте осторожны, в этом мире многие персонажи готовы просто (   Читать дальше...   )Тип издания: SceneРазработчик: Atomic WolfЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Итальянский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25A87391E7628283DDFF241CB08700DA775B104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715473   (59948) от 12.04.2024
-
-Frogmonster (2024) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Только вы можете помочь Мелору в защите от Руни и его бесчисленного количества творений. Попросту говоря, перед вами очаровательный приключенческий Metroidvania FPS, в котором вы не будете знать, что скрывается за очередным поворотом. Насладитесь сполна прогулкой по атмосферному и сочному миру с различными персонажами, которые имеют благие намерения.Тип издания: RepackРазработчик: Ben JungwirthЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78B39EAC229F92910B5CDA804453FD84C1E7BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715417   (59938) от 12.04.2024
-
-Children of the Sun (2024) [Ru/Multi] (13997895) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Children of the Sun бросает вас с головой в жестокую вендетту. Вы управляете одинокой женщиной, жаждущей мести зловещему культу. Но это не типичный шутер. Здесь вы получаете только одну пулю за уровень. В чем сложность? Направить этот единственный выстрел через смертоносный лабиринт врагов, ловушек и разрушаемого окружения, чтобы уничтожить свою цель. Подумайте о (   Читать дальше...   )Тип издания: RepackРазработчик: René RotherЖанр: Экшены, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC592AFE0E50BAE512D2194BAE20FED5FB031B46
 ```
 
 https://mybot314.ru/tekegram_catalog/

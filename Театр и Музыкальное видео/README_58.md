@@ -1,3 +1,170 @@
+###  Публикация: 337440   (676544) от 15.05.2011
+
+Britney Spears - Till The World Ends (Dance Version) (2011) HDTVRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ВидеоклипПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD280A5CC01AB58F4828DCC2CC99D5182B91437B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508679   (676508) от 11.06.2012
+
+DVJ Bazuka - Anything [Без цензуры] (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727F61B4722342E3AB9A40D78750649B50DC15C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508850   (676363) от 11.06.2012
+
+Эпидемия - В Трезвучиях Баллад  (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Снова Быть С Тобой
+03. Феникс
+04. Жизнь В Сумерках(   Читать дальше...   )Жанр: Концерт, Power MetalПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B267727C9E8AC8710679F300528A88C3F7B44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136143   (676342) от 21.05.2017
+
+Rammstein: Paris (2017) BDRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концертный фильм группы Rammstein, вышедший в кинотеатрах 23 марта 2017 года. Записан на концертах в Париже 6 и 7 марта 2012 года в рамках тура Made in Germany.01. Intro
+02. Sonne
+03. Wollt Ihr Das Bett In Flammen Sehen
+04. Keine Lust(   Читать дальше...   )Жанр: Industrial-MetalРежиссер: Йонас ОкерлундПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:103ECDB42A4EAB8A5C306C41B40AEF3A33378031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029016   (674142) от 30.06.2016
+
+Leonard Cohen - Live in Dublin '2013 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый концерт исполнителя, изданный в полной версии. Шоу было записано и снято на знаменитой «O2 Arena» в Дублине 12 сентября 2013 года. Это, без преувеличения , искусный концерт, признанный критиками одним из лучших во всемирной практике живых выступлений, был дан в рамках гастрольного тура 2013 года в поддержку нового альбома Old Ideas.Disc 1/2:
+01. Dance Me to the End of Love
+02. The Future
+03. Bird on the Wire(   Читать дальше...   )Производство: Columbia Records and Legacy RecordingsЖанр: Folk Rock, Blues, CountryРежиссер: Edward SandersАктеры: Leonard Cohen & bandПеревод: ОтсутствуетПродолжительность: 03:09:39 (01:37:51+ 01:31:48)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD521F9B71D911D58BF3863DD9B7CDBF7E19E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290793   (673941) от 22.03.2019
+
+Безумный день, или Женитьба Фигаро (1974) DVDRip [H.264] [PR]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия спектакля московского театра Сатиры по пьесе Бомарше «Женитьба Фигаро».
+
+Все события разворачиваются в течение одного дня в поместье графа Альмавивы, и все они связаны с решением слуги графа, Фигаро, жениться на Сюзанне — горничной графини Розины. Между тем к Сюзанне неравнодушен граф, давно охладевший к своей супруге. После женитьбы на Розине он отменил (   Читать дальше...   )Производство: СССР, ТО "ЭКРАН", Московский театр СатирыЖанр: КомедияРежиссер: В. Плучек, В. ХрамовАктеры: Андрей Миронов, Александр Ширвиндт, Вера Васильева, Нина Корниенко, Татьяна Пельтцер, Александр Воеводин, Тамара Мурина, Роман Ткачук, Зиновий Высоковский, Юрий АвшаровСубтитры: отсутствуютПродолжительность: 02:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A1DB892CE0CD33CBBFD370D39179288AD4209F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030509   (673915) от 30.06.2016
 
 The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
@@ -6,7 +173,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2016) BDRip [h.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +200,7 @@ Foreigner - With The 21st Century Symphony Orchestra & Chorus (2017) 2xDVD5 [cus
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +229,7 @@ DVJ Bazuka - Don't Get Around (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -88,7 +255,7 @@ Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -114,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +336,7 @@ Millenium Extended (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +362,7 @@ Rammstein - Paris (2017) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +443,7 @@ Wings - Red Rose Speedway (The Bruce McMouse Show) (2018) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +469,7 @@ Golden Earring - Five Zero At The Ziggo Dome (2016) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +495,7 @@ Sexy Car Chag Rock Mix (2018) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +521,7 @@ Adam by Eve: Анимационный концерт / Adam by Eve: A live in An
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +547,7 @@ DVJ Bazuka - You`re Mine (2012) [720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +573,7 @@ Kiss - Rocks Vegas (2016) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +602,7 @@ Deep Purple - California Jam (1974/2016) Blu-ray [H.264/1080i ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +628,7 @@ David Gilmour - Rattle That Lock (2015) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,181 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4412F80216DF621570D963E05A795A609B6BFEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224573   (664793) от 11.05.2018
-
-Аквариум - Live on TV (1986, 1990) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара ранних выступлений группы "Аквариум" на госТВ.Программа "Музыкальный ринг" - вышла в эфир 17.01.1987г.Фильм-концерт, снятый режиссером Константином Эрнстом - выпущен ВПТО "Видеофильм" в 1990 году."Аквариум" там представлен в своем, по мнению ценителей творчества БГ и группы, лучшем составе.
-
-Музыкальный ринг (1986)01.Поезд в огне
-02.Мир, как мы его знали
-03.Молодые львы
-04.В полный рост(   Читать дальше...   )Производство: ГРМП-Ленинград ;ВПТО "Видеофильм"Жанр: рокРежиссер: Владимир Максимов ; Константин ЭрнстАктеры: АквариумПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:13:34 + 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6248EE85CFB877A4A07547B47AFA5AEC824BB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339517   (664599) от 22.05.2011
-
-Gipsy Kings / Live at Kenwood House in London (2004) [1080p] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_664599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидеры жанра ФЛАМЕНКО, GIPSY KINGS, на протяжении 16 лет заставляли трепетать сердца в разных уголках мира. Вашему вниманию предлагается концерт, записанный в формате "HIGH-DEFINITION" на легендарной сцене Кенвуд Хаус в Лондоне.Жанр: МузыкаАктеры: Gipsy KingsПеревод: ОтсутствуетПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138206   (664095) от 29.05.2017
-
-ONUKA и НАОНИ (06.04.2017) WEB-DL [H.264/1080p-LQ] [UKR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две музыкальные вселенные, ONUKA и Национальный академический оркестр народных инструментов (НАОНИ) под управлением дирижера Виктора Гуцало, встретились на одной сцене.
-Концерт представляет собой уникальное музыкальное действо, не имеющее аналогов. Неповторимые электронные композиции, чувственный женский вокал и феерия эмоций. В творчестве группы в изобилии представлены (   Читать дальше...   )Жанр: Электроника, Фолк, КонцертПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24325E4412E903A18ADABFDB156A4380481F6F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326652   (663383) от 23.05.2011
-
-Sandra - The Complete History (1974 - 2002) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Maria magdalena
-02 In the heat of the night
-03 Little girl
-04 Innocent love
-05 Hi hi hi
-06 Loreen
-07 Midnight man
-08 Everlasting love
-09 Stop for a minute
-10 Heaven can wait(   Читать дальше...   )Жанр: PopРежиссер: AllАктеры: SandraПеревод: ОтсутствуетПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340929   (662512) от 24.05.2011
-
-Avril Lavigne - Smile (2011) HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_662512.jpg" />
-</div>
-
-
-###  Подробнее
-
-А́врил Рамо́на Лави́н(Avril Ramona Lavigne, род. 27 сентября 1984 года) — канадская певица, автор-исполнитель, дизайнер и актриса. Её дебютный альбом, Let Go, вышел в 2002 году и был продан тиражом 16 млн копий. Последующие работы — Under My Skin (2004) и The Best Damn Thing (2007) — возглавляли мировые чарты, в том числе американский Billboard 200. Пять песен Лавин — «Complicated», «Sk8er Boi», «I’m With You», «My Happy Ending» и «Girlfriend» — занимали первые строчки мировых чартов. По всему миру было продано более 30 млн копий её альбомов. По состоянию на январь 2011 года, она являлась одной из самых популярных певиц в США с 11,5 млн проданных альбомов. Журнал Billboard поместил Лавин на 10-е место в рейтинге артистов 2000-х, а также на 28-е место по коммерческому успеху. Её четвертый студийный альбом Goodbye Lullaby вышел в марте 2011 года.
-20 мая состоялась премьера клипа на композицию «Smile». По сюжету Аврил ходит по улицам Нью-Йорка и забирает кусочки разбитого сердца у разных людей, делая (   Читать дальше...)Жанр: МузыкаРежиссер: Avril LavigneАктеры: Avril LavigneПеревод: ОтсутствуетПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7C888440056BF612BB77FC83B82A3E4AEFD781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137650   (662031) от 31.05.2017
-
-Группа Мегаполис - Концерт в Москве (2017) HDTVRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662031.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мегаполис» — советская и российская рок-группа, основанная в Москве в 1987 году. День рождения группы – по-видимому, 27 мая(сегодня им 30 лет), именно тогда был издан дебютный альбом «Утро». Первое выступление «Мегаполиса» состоялось в июне 1987 года на фестивале Московской рок-лаборатории в ДК Горбунова.Многие песни группы написаны на стихи известных поэтов: Иосифа (   Читать дальше...   )1.Там
-2.Я весна
-3.Семь пар нечистых
-4.Супертанго(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E447F9379D78DB1C2F3E2C182A905B7C2BE43390
 ```
 
 https://mybot314.ru/tekegram_catalog/

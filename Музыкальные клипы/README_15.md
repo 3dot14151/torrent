@@ -1,3 +1,110 @@
+###  Публикация: 323682   (746871) от 15.04.2011
+
+[FR] Zaz - Zaz / Limited Special Edition (Интервью + Концерт + Видеоклипы) (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Интервью + Концерт + ВидеоклипыСубтитры: НемецкиеПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940C19D5E2073CC2A6EBD37CB6B5622A414FEC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664518   (745685) от 05.06.2013
+
+Мираж - Музыка нас связала (1989) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+клип на песню "Музыка нас связала"Жанр: МузыкаПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9EB6F1765988A20A6CB47AA56AED3B43EE3244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216387   (744439) от 03.04.2018
+
+Океан Эльзы - Без тебя / Океан Ельзи - Без тебе (2018) WEBRip [H.264/2160p] [4K]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Украинская группа Океан Эльзы выпустила новую песню и клип под названием Без тебе.
+– Весна всегда приходит неожиданно, – прокомментировала группа Океан Эльзы премьеру клипа на официальной странице в Facebook.
+Слова песни принадлежат Святославу Вакарчуку.
+В клипе главный герой путешествует на машине по малым городам, встречая много близнецов, ищет свою родственную (   Читать дальше...   )Производство: УкраинаЖанр: RockРежиссер: Анна БурячковаСубтитры: отсутствуютПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528C9AF85A91804ACE23C5682F31C0B9DD6D915E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785644   (738913) от 11.05.2014
+
+Lindsey Stirling - Child of Light (2014) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Dubstep, RockПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F263E3E7BD5462C3595927370F0FBA1DF2F737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397265   (737011) от 23.07.2020
 
 Гурт Made in Ukraine - Клипы (2014-2019) WEBRip [H.264/720p/1080p-LQ] 4 клипа
@@ -6,7 +113,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +142,7 @@ ABBA - Gimme! Gimme! Gimme! (A Man After Midnight) (1979) WEBRip [H.264/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +221,7 @@ Nasty - Клипы (2013-2020) WEBRip [H.264/VP9/1080p/2160p] <Beatdown Hardcore
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -283,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -309,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,7 +445,7 @@ VA - Magical Flight vol. 2 (2CD) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +474,7 @@ Kalwi & Remi feat. Mr X - Girls (Uncensored) (2011) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -393,7 +500,7 @@ DJ Phoenix - The Legend Club (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +557,7 @@ Gregorian - Masters Of Chant In Santiago De Compostela (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +583,7 @@ Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +609,7 @@ Gregorian - Masters Of Chant Chapter III (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +635,7 @@ VH1 All Classics Hits (2005) 10xDVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +690,7 @@ VA - Millenium Melody 6 (2016) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,115 +704,6 @@ VA - Millenium Melody 6 (2016) WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF0D23F93EF1FB3776A119A42991B2A75CCD98F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401603   (703392) от 13.08.2020
-
-Moby - My Only Love; Power Is Taken; Power Is Taken (Moby's Old School Remix) (2020) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703392.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Moby - My Only Love (by Zombie Studio) (Master_1080p)
-2020 Moby - Power Is Taken (Moby's Old School Remix) (1080р)
-2020 Moby - Power Is Taken ft. D.H. Peligro (1080р)Производство: Zombie StudioЖанр: ElectronicРежиссер: Paulo GarciaПродолжительность: 00:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0697556AAE2F345BB8D008A589E6BB8593B1A2A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672661   (702674) от 25.06.2013
-
-Cher - Woman's World (Live On The Voice) (2013) HDTV [H.264/1080i] <Pop>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сингл талантливой поп. дивы Cher. Живое выступление на американском "The Voice" (06.18.2013).Жанр: PopПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104DC00554F6C4D1CA74B7945AEEAC80628623D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 672087   (702539) от 25.06.2013
-
-Сборник клипов - VA - Various Music part. 43 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 9-11 - Cum se face 1080p (3:30)
-2. A.M. SNiPER - ROAR 1080p (2:39)
-3. Abel The Kid & Julio Iglesias Jr. feat Snoop Dogg A Piece Of My Love 720p (4:02)
-4. ALEXANDER PROJECT FEAT. MAAX - Сердце 1080p (3:23)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F8EED913F8E6D54F7580E1C1A13780F4125149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401275   (699693) от 15.08.2020
-
-Anaal Nathrakh - Endarkenment (2020) WEBRip [VP9/2160p] <Grindcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: MyGoodEyeЖанр: Black Metal, GrindcoreРежиссер: David BrodskyАктеры: Anaal NathrakhПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1141B903DA7A6AD07330B137CCE10293C73F2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

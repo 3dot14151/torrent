@@ -1,3 +1,165 @@
+###  Публикация: 1620150   (201115) от 19.03.2023
+
+Квартирник у Маргулиса. Группа «Пикник» (18.03.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Их творческий путь начался в уже далеком 1978 году в Ленинграде, однако сами участники считают отправной точкой 1981-й — год, когда в коллектив пришел Эдмунд Шклярский. За более чем 40 лет на сцене «Пикник» сформировал уникальный стиль, выпустил несколько десятков альбомов и завоевал любовь миллионов слушателей. Их любят не только за невероятные и яркие представления, (   Читать дальше...   )00:00  Сияние
+05:48  Только не плачь, палач
+12:18  Играй, страна, играй!
+20:29  Разноцветные ленты(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC87764378605B3A5189704553C2FFF9D5F511F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621265   (200255) от 07.04.2023
+
+Патхан / Pathaan (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Клипы из фильма "Pathaan" : "Besharam Rang" и "Jhoome Jo Pathaan"Производство: Индия, Yash Raj Films Pvt. Ltd.Жанр: музыка, клипыПеревод: отсутствуетЯзык озвучки: индийскийСубтитры: русские, английские (на слова песен)Продолжительность: 00:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900488F5537956487A5C048C60430D4B84ED9CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889904   (199297) от 26.04.2023
+
+Umbra Et Imago – 20 (2011) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+31 июля Umbra Et Imago отметила свое 20-летие. В рамках празднования дня рождения группа выступила с большим концертом в "Crystal Ballroom" в Карлсруэ. Шоу включало в себя как акустическое выступление, так и роковую часть. Кроме того, музыканты выпустили новый сингл "Davon geht die Welt nicht unter", который они окрестили "юбилейным леденцом". (   Читать дальше...   )Жанр: Gothic MetalРежиссер: Gregor SkowronekПеревод: Не требуетсяПродолжительность: 01:06:22 + 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D313A93CD3615F21E51E3948F1F803158769EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630542   (199093) от 01.05.2023
+
+Демон Онегина (2015) WEB-DL [H.264/1080p] (Театр ЛДМ "НОВАЯ СЦЕНА")
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Евгений Онегин, в финале жизни оказавшийся в доме скорби бредит – ждет какого-то письма, бормочет, что Татьяна любит его. Медсестры делают ему укол и старик, задремав, во сне слышит голос секунданта той дуэли, которая когда-то разрушила и его жизнь, и жизни тех, кто был ему дорог. Онегин просыпается в ужасе, но и тут нет ему покоя – ему является… Демон. Старик обвиняет (   Читать дальше...   )Производство: Россия / Театр ЛДМ "НОВАЯ СЦЕНА"Жанр: театр, искусство, мюзиклРежиссер: Ирина АфанасьеваАктеры: Иван Ожогин, Анастасия Макеева, Антон Авдеев, Мария Лагацкая-Зимина, Сергей Худяков, Наталья Фаерман, Манана Гогитидзе, Олег Калабаев, Роман Никитин, Александр Кулинкович, Евгений Чесноков, Зинаида Некрасова, Ярослав ШварёвЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE78D2C9A1E40EA5CB15F00445E33A2A60D7C39A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630897   (198917) от 03.05.2023
+
+Авторадио – 30 лет. Классика (2023) IPTVRip [VP9/1080p] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+22 апреля состоялось грандиозное шоу «Авторадио – 30 лет. Классика». Поздравить радиостанцию с 30-летием в столичный Crocus City Hall пришли более 30 самых ярких звезд страны.Bel Suono — Попурри
+Emin — Я лучше всех живу
+Елка — Грею счастье
+Burito — Мама(   Читать дальше...   )Производство: РоссияЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:572685B0CEA88AD43B6CB5E4BE7AD1A6C073A25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632265   (198653) от 09.05.2023
+
+SHAMAN – «Я русский» (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+На сцене «Крокус Сити Холла» — 100-й концерт «Я русский» певца, композитора и автора песен Ярослава Дронова, более известного как SHAMAN. Его песни стали народными хитами, они передают дух и жизненную силу России. Артист исполнил как мегапопулярные «Я русский», «Ты моя», «Исповедь» и легендарные «Улетай», «Танцы на стеклах» и «Дельтаплан», так и совершенно новые (   Читать дальше...   )Производство: Россия | ООО «ФРИМОУШН»Жанр: PopПродолжительность: 01:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721A4368BE9DB214723CCCE365BE9D1E308915D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635875   (197427) от 07.06.2023
 
 Скутер - Бис (Полная история) - Лайв / Scooter - Encore (The Whole Story) - Live (2002) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
@@ -6,7 +168,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -61,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -87,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -116,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -144,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -170,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -196,7 +358,7 @@ Original ENIGMA Voices LIVE 2019 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -226,7 +388,7 @@ Golden Voice of ENIGMA - МИР Сибири (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -257,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -283,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -310,7 +472,7 @@ Two Steps From Hell - Wacken Open Air 2023 (2023) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -341,7 +503,7 @@ Asia – Resonance / The Omega Tour (2010) DVD5 (Live In Basel, Switzerland)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -399,7 +561,7 @@ Asia – Axis XXX Live San Francisco (2015)  DVD5 (Recorded Live at the Regency 
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -428,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -457,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -486,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -515,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -542,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -556,177 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C63005CB87D18A3335A1D55CD89F41B85B5540B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662273   (188038) от 17.09.2023
-
-Квартирник у Маргулиса. «Лётная школа» (17.09.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188038.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лётная школа» — это не просто группа, сочетающая в себе остроту поэзии нового времени с рокерским драйвом, но и воспитанники Академии современной музыки Александра Белова и Ольги Кормухиной. Автор всех песен «Лётной школы» — фронтмен коллектива Дмитрий Вагин00:00:05 Лётная школа
-00:04:48 Маленький принц
-00:09:55 Электросталь
-00:15:33 Капитан(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: РокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B216750EB91A3FF6784EEFC8B2190626EB3065C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663927   (186202) от 24.09.2023
-
-Квартирник у Маргулиса. «Калинов мост» (24.09.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186202.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Калинов мост» — советская и российская рок-группа из Новосибирска. Основана в середине восьмидесятых Дмитрием Ревякиным. Вот уже более 35 лет группа находится в прекрасной творческой форме. Стиль группы довольно самобытен и узнаваем — на протяжении многих лет он менялся00:00:08 Азиатская
-00:07:49 Четыре стороны
-00:15:07 Мед
-00:20:44 Камушек(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Фолк-рок, арт-рок, блюз-рокЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553E760D8C23CD6A6CBA0CFD11180703A241F8F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427409   (183057) от 28.11.2020
-
-T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip [H.264/720p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183057.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом году T. Rex были включены в Зал славы рок-н-ролла. Отметить это событие можно просмотром концерта легендарного коллектива на площадке Wembley Empire Pool 18 марта 1972 года. T.Rex отыграл два аншлаговых концерта в Empire Pool на Уэмбли (вместимость 10 000 человек на шоу). Они были лишь второй группой, которая играла там - первой из них была Led Zeppelin в (   Читать дальше...   )01. Chariot Choogle
-02. Cadillac
-03. Jeepster
-04. Baby Strange(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F5DC791493A10E8115B3BE17EB2B0C7AF3C99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 445550   (182168) от 24.11.2022
-
-Эзоп (1981) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182168.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Гильерме Фигейредо "Лиса и виноград". История о греческом рабе Эзопе, подарившем мировой литературе свои гениальные произведения и о его глупом хозяине, обладающим деньгами и властью, но лишенном доброты и порядочности.
-Философ Ксанф возвращается домой из путешествия. По дороге он нашёл уродливого человека по имени Эзоп с кольцом шее. Эзоп становится (   Читать дальше...   )Производство: СССР, ЛентелефильмЖанр: драма, история, телеспектакльРежиссер: Олег РябоконьАктеры: Александр Калягин, Олег Табаков, Любовь Полищук, Валентин Гафт, Наталья Каресли, Юрий Мальцев, Владислав ПазиСубтитры: отсутствуютПродолжительность: 01:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACAEE91896C585BA1E4B01DDF90928D15A85694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427730   (182145) от 29.11.2020
-
-Квартирник НТВ у Маргулиса. Группа Отава Ё (28.11.2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182145.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Отава Ё» — коллектив единомышленников, играющих в стиле фолк-фьюжн и народной песни, который появился абсолютно спонтанно в 2003 году. На тот момент никто из участников не предполагал, что этот эксперимент выльется в самостоятельную группу. Они прошли путь от уличных концертов и даже стали «городской достопримечательностью» Петербурга до экспериментов с русской (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89044A08C28AAE13C26FDB01B034278057ACFEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665458   (182012) от 30.09.2023
-
-Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись дебютного концертного тура Two Steps From Hell, прошедшего летом 2022 года под руководством авторов проекта Томаса Бергерсена и Ника Феникса.
-Музыкальная программа первых европейских гастролей включает 28 лучших композиций, накопившихся за 16 лет существования проекта.
-Относительно студийных/альбомных версий, живое выступление имеет ряд (   Читать дальше...   )1 Empire of Angels
-2 Cannon in D Minor
-3 After the Fall
-4 Unbreakable(   Читать дальше...   )Жанр: Симфоническая Рок-ОпераПродолжительность: 02:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9CCADF1848D099EB8CDDA3B8E26681160FB07D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1802178   (14504) от 15.06.2025
+
+BBC. Легендарные тигры Индии / Легендарні тигри Індії / My Tiger Family / Legendary Tigers of India (2024) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эпическая 50-летняя история индийского клана тигров и его пяти самых харизматичных и сильных тигриц, которые рассказали о жизни тигров больше, чем кто-либо мог себе представить. Их дом — Рантхамбор, волшебный ландшафт в Раджастане, где доминируют огромный древний форт и три озера, полные крокодилов и добычи тигров. Один страстный человек, Валмик Тапар, посвятил свою (   Читать дальше...   )Производство: Великобритания / Mike Birkhead AssociatesЖанр: документальный, фауна, природаРежиссер: Майк Биркхед, Бет ДжонсУчастники: Валмик ТапарПеревод: дублированныйЯзык озвучки: русский, украинский (компания Кіт)Субтитры: отсутствуютПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8650D07EBEA78A24D5BFFEAD2D7A1A57BFEBA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803639   (13641) от 24.06.2025
 
 BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (сезон 1, серии 1-6 из 6) Pazl Voice
@@ -6,7 +32,7 @@ BBC: Древние державы / Ancient Powers (2023) WEBRip [H.264/720p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +85,7 @@ BBC: Помпеи: Новые раскопки / Pompeii: The New Dig (2024) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +112,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +138,7 @@ BBC: Родительство / Parenthood (2025) WEBRip [H.264/1080p] (сезо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

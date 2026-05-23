@@ -1,3 +1,55 @@
+###  Публикация: 1701406   (116607) от 20.02.2024
+
+Windows Server 2022 LTSC [10.0.20348.2322], Version 21H2 (Updated February 2024) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C191B1E5E3CEF4295177C3D431C8FD0EF27F71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485981   (90569) от 24.04.2012
+
+Языковые пакеты Microsoft Windows Server 2008 SP2 (x64-x86) [Multi]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Носители со сгруппированными языковыми пакетами для Windows Server® 2008 с пакетом обновления 2 (SP2) позволяют использовать интерфейс пользователя на нескольких языках в средах, в которых установлена такая система. Добавление одного или нескольких языковых пакетов в образ обеспечивает поддержку одного или нескольких языков в устанавливаемой операционной системе Windows Server® 2008 с пакетом обновления 2 (SP2). Благодаря этому крупные организации могут глобально развертывать один и тот же образ с необходимыми локализованными интерфейсами пользователя.Название программы: Языковые пакеты Microsoft Windows Server 2008 SP2 (x64-x86)Язык интерфейса: Многоязычный
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474816   (85232) от 29.03.2012
 
 Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [ENGLISH]
@@ -6,7 +58,7 @@ Microsoft Windows Server 2008 SP2 (x64-x86) VOLUME [ENGLISH]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Microsoft Windows Server 2003 R2 SP2 (x64-x86) VOLUME [ENGLISH-RUSSIAN]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +116,7 @@ Windows Server 2022 LTSC [10.0.20348.2340], Version 21H2 (Updated March 2024) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +142,7 @@ Windows Server [10.0.25398.763], version 23H2 (Updated March 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +168,7 @@ Windows Server 2022 LTSC [10.0.20348.2402], Version 21H2 (Updated April 2024) - 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +194,7 @@ Windows Server [10.0.25398.830], version 23H2 (Updated April 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +220,7 @@ Windows Server 2022 LTSC [10.0.20348.2461], Version 21H2 (Updated May 2024) - О
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +246,7 @@ Windows Server [10.0.25398.887], version 23H2 (Updated May 2024) - Оригин�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +272,7 @@ Windows Server 2022 LTSC [10.0.20348.2527], Version 21H2 (Updated June 2024) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +298,7 @@ Windows Server [10.0.25398.950], version 23H2 (Updated June 2024) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +324,7 @@ Windows Server 2022 LTSC [10.0.20348.2582], Version 21H2 (Updated July 2024) - �
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +350,7 @@ Windows Server [10.0.25398.1009], version 23H2 (Updated July 2024) - Ориги�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +376,7 @@ Windows Server 2022 LTSC [10.0.20348.2655], Version 21H2 (Updated August 2024) -
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Windows Server [10.0.25398.1085], version 23H2 (Updated August 2024) - Ориг�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Windows Server 2022 LTSC [10.0.20348.2700], Version 21H2 (Updated September 2024
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +454,7 @@ Windows Server [10.0.25398.1128], version 23H2 (Updated September 2024) - Ори
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +480,7 @@ Windows Server 2022 LTSC [10.0.20348.2762], Version 21H2 (Updated October 2024) 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +506,7 @@ Windows Server [10.0.25398.1189], version 23H2 (Updated October 2024) - Ориг
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +532,7 @@ Windows Server 2025 LTSC [10.0.26100.1742], Version 24H2 - Оригинальн�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Windows Server 2025 LTSC [10.0.26100.2314], Version 24H2 (Updated November 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +584,7 @@ Windows Server [10.0.25398.1251], version 23H2 (Updated November 2024) - Ори�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +610,7 @@ Windows Server 2022 LTSC [10.0.20348.2849], Version 21H2 (Updated November 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +636,7 @@ Windows Server 2025 LTSC [10.0.26100.2605], Version 24H2 (Updated December 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +662,7 @@ Windows Server 2022 LTSC [10.0.20348.2966], Version 21H2 (Updated December 2024)
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,58 +673,6 @@ Windows Server 2022 впервые обеспечивает расширенну
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D7F67B4FDCC41B578F8D6AEDF47C798BB12D74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766825   (33571) от 20.12.2024
-
-Windows Server [10.0.25398.1308], version 23H2 (Updated December 2024) - Оригинальные образы от Microsoft VLSC [En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server, версия 23H2 - это первый выпуск ежегодного канала Windows Server для контейнеров, который был выпущен 24 октября 2023 года. Недавно созданный ежегодный канал предназначен для контейнеризированных рабочих нагрузок, которые предпочитают более быстрые инновации на уровне операционной системы хостинга. В отличие от канала долгосрочного обслуживания Windows (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7F55D75C897AC6B1515F181D1F9E7BA6D81DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774568   (30297) от 21.01.2025
-
-Windows Server 2022 LTSC [10.0.20348.3091], Version 21H2 (Updated January 2025) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C590B37FD63B2EC298B375E817E8688C109688B
 ```
 
 https://mybot314.ru/tekegram_catalog/

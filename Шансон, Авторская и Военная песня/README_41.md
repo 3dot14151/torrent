@@ -1,3 +1,119 @@
+###  Публикация: 1266979   (267713) от 05.12.2018
+
+Елена Ваенга - 1+1 (Дуэты) (2018) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Ре, ля (feat. Ачи Пурцеладзе)
+2. New (feat. Лайма Вайкуле)
+3. Гравитация (feat. Intars Busulis)
+4. Город на Неве (feat. Jein)(   Читать дальше...   )Жанр: Шансон, PopПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA4E38BC4DBC62FD3CDAC94E18545D751183314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338893   (266994) от 18.11.2019
+
+Михаил Шелег - 8 Альбомов (1996-2003) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Третий глаз
+03. Отмороженная
+04. Строевая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC716788744BA9B44C25FA589E70040AFAD341E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267824   (265123) от 08.12.2018
+
+Сергей Крава (Кравченко) - Крава (2005) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. За спиной четыре ходки...
+02. Фартовые
+03. Будьте бдительны
+04. Не жди любви, не требуй постоянства...(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28CABA775DC18817756C4949914171343BCEE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267817   (265075) от 08.12.2018
+
+Иван Банников - Сказания о жизни (2005) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Сказ о боли матерей войны ( Чечня )
+02. Сказ о вольной воле ( Воля ) - дуэт с А. Беркут
+03. Сказ о жизни в КПЗ ( Нет таких оков ) - дуэт с Г. Грач
+04. Сказ о тюремной работнице ( Контролёрша ) - дуэт с С. Трофимов и В. Токарев(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577997BDF4BE41234732CE249E836EDD87172FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267401   (265065) от 08.12.2018
 
 Люба Успенская - К единственному, нежному... (2007) [FLAC|Lossless|image + .cue]<Шансон>
@@ -6,7 +122,7 @@
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -244,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -279,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -314,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +465,7 @@ iSenin - Я покинул родимый дом. Сергей Есенин (202
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -407,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -436,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -465,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -494,7 +610,7 @@ VA - Привал романтиков 2 (2004) [MP3|320 Kbps] <Авторска
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -523,7 +639,7 @@ VA - Калина красная-Песни, спетые сердцем (2016) 
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -589,7 +705,7 @@ Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -624,7 +740,7 @@ VA - Лучшие песни радио русский шансон 8 (2008) [MP
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -653,7 +769,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -667,134 +783,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D642B3C0F78C34194B78874442433529A81D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618668   (249921) от 12.03.2023
-
-VA - Лучшие песни радио русский шансон 9 (2009) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. М. Шуфутинский и гр. Воровайки - Северная весна
-02. М. Бородин и гр. Алиби - Алиби
-03. М. Шелег и В. Снежная - Карточный домик
-04. Мафик - Обыкновенное чудо ( Remix )(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69ACED22E59361166AB7EA31387027CF5EAADEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538941   (249482) от 24.03.2022
-
-VA - Шансон 2022 года (Музыкальный хит-парад) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стас Михайлов - Одной тебе (3:15)
-02. Инна Вальтер - Грубая любовь (Dance Version) (3:46)
-03. Ярослав Сумишевский - Ты не суди меня (4:50)
-04. Ирина Круг - Фамилия (3:42)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDD595E74D44410D829C4C9E0D58D04A2C34D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493619   (248964) от 08.05.2012
-
-VA - 9 мая День Победы - 65 лет 1945-2010 (2010) [MP3|320 kbps]<Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сводка Совинформбюро 'О полной и безоговорочной капитуляции' - Юрий Левитан (0:40)
-02. Сводка Совинформбюро 'Акт о военной капитуляции Германии' - Юрий Левитан (5:11)
-03. Марш Преображенского полка, петровской эпохи - Отдельный показательный оркестр Министерства Обороны СССР (2:09)
-04. Баллада о солдате - Н. Абрамов (6:11)
-05. Песенка фронтового шофера - М. Бернес (2:41)
-06. Моя любимая - В. Власов (2:41)
-07. Давай закурим - К. Шульженко (2:30)
-08. Соловьи - В. Пучков (5:55)
-09. Вернулся я на Родину - Л. Утесов (2:36)
-10. Эх, дороги… - Г. Виноградов (2:58)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF86674C50E17B57D81FAEBE35BDA661DA7F4042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493557   (248949) от 08.05.2012
-
-Елена Ваенга - Песни военных лет (2009) [MP3|320 кб/с]<Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248949.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009Жанр: Военная песняПродолжительность: 00:49:00
- 01. Казачка (Ансамбль)
- 02. Попури, пляска (Ансамбль)
- 03. Песня из кинофильма Белорусский вокзал (Елена Ваенга)
- 04. Песня из телефильма Семнадцать мгновений весны (Елена Ваенга)
- 05. Журавли (Елена Ваенга)
- 06. Эта рота (Виталий Аксенов)
- 07. На солнечной поляночке (Ансамбль)
- 08. Землянка (Елена Ваенга)
- 09. Подмосковные (Ленинградские) вечера (Елена Ваенга)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C262FCD53AC18E9DF37274B75C734DE004A3DA26
 ```
 
 https://mybot314.ru/tekegram_catalog/

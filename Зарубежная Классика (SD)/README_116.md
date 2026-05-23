@@ -1,3 +1,107 @@
+###  Публикация: 1672412   (134533) от 28.11.2023
+
+Восстание Кейна / The Caine Mutiny (1954) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на одноимённом романе Германа Вука, получившего Пулитцеровскую премию 1951 года... Действие разворачивается на Тихоокеанском театре Второй мировой войны. В фильме рассказывается о событиях на борту вымышленного эсминца-тральщика ВМС США... Офицеры Фрэнсис, Джонсон и МакМюррэй служат на этом эсминце. Новый капитан сразу же устанавливает свою власть, (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: военный, драмаРежиссер: Эдвард ДмитрикАктеры: Хамфри Богарт, Хосе Феррер, Ван Джонсон, Фред МакМюррэй, Роберт Френсис, Мэй Винн, Том Талли, Э. Г. Маршалл, Артур Франц, Ли Марвин, Уорнер Андерсон, Клод Экинс, Кэтерин Уоррен, Джерри Пэрис, Стив БродиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EADD11206F1C49037FACCB549DC8991603F1039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678698   (134142) от 29.11.2023
+
+Шерлок Холмс: Голубой карбункул / Sherlock Holmes: The Blue Carbuncle (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Утром 27 декабря Ватсон приезжает к Холмсу, чтоб поздравить его с Рождеством. Холмс поведал ему историю, как к нему попала старая шляпа, и Рождественский гусь, проявив при этом свой дедуктивный метод. Казалось бы простое, даже комичное дело, но как оказалось потом, было совершено преступление — из отеля «Космополитен» украли драгоценнейший Голубой Карбункул из шкатулки (   Читать дальше...   )Производство: Великобритания / BBC Television CentreЖанр: Детектив, КриминалРежиссер: Энтони КирейАктеры: Найджел Сток, Питер Кушинг, Питер Мэдден, Грэйс Арнольд, Джимми Эштон, Энид Линдси, Гари Рэймонд, Габриэлла Ликуди, Филип БондПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9668E856F806FDB334B20ACAC4BDD6D18C71E90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678693   (134105) от 29.11.2023
+
+Шерлок Холмс: Тайна Боскомской долины / Sherlock Holmes: The Boscombe Valley Mystery (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Боскомской долине убит пожилой арендатор Чарльз Маккарти. Перед гибелью он повздорил с сыном Джеймсом, на которого и падает подозрение. Джеймс заявляет, что встретил отца в лесу случайно, тот подал возглас «Коу», а, увидев сына, удивился и, после спора о невесте, прогнал его. Джеймс ушёл, но услышав предсмертный крик отца, прибежал обратно. Перед смертью отец успел (   Читать дальше...   )Производство: Великобритания / BBC Television CentreЖанр: Детектив, КриминалРежиссер: Энтони КирейАктеры: Найджел Сток, Питер Кушинг, Питер Мэдден, Грэйс Арнольд, Джимми Эштон, Энид Линдси, Гари Рэймонд, Габриэлла Ликуди, Филип БондПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F893F5F98DF83A3F63D91FEA59AFD85058FB94D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680598   (133747) от 30.11.2023
+
+Лемон Дроп Кид / The Lemon Drop Kid (1951) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+У мошенника из Нью-Йорка Лемона Дроп Кида есть время до Рождества, чтобы заработать 10 000 долларов, которые он должен гангстеру Муса Морану, что побудило его заняться мошенничеством в ускоренном режиме. К счастью, скоро Рождество, время, когда людей можно убедить расстаться с деньгами ради "правого" дела.Производство: США / Hope EnterprisesЖанр: мелодрама, комедия, криминал, музыкаРежиссер: Сидней Лэнфилд, Фрэнк ТэшлинАктеры: Боб Хоуп, Мэрилин Максвелл, Ллойд Нолан, Джейн Дарвелл, Андреа Кинг, Фред Кларк, Джей С. Флиппен, Уильям Фроули, Гарри Беллэвер, Сид МелтонПеревод: Одноголосый любительский (Мика Бондарик)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русские (forced - на песни, full)Продолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D63A99791B941BFBC4A4B204A97863E4DB4DFDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593104   (132988) от 27.12.2012
 
 Робинзон Крузо на Марсе / Robinson Crusoe on Mars (1964) BDRip
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,112 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E2E7496F37E0A6A11CB578957F484C3D802F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688734   (121556) от 22.01.2024
-
-Лорна Дун / Lorna Doone (1951) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация романа Ричарда Д. Блэкмора.
-Действие фильма происходит на фоне событий английской революции XVII века на западе страны. Местные феодалы из клана Дунов убивают фермера Джека Рида, его сын Джон клянется отомстить. Однажды на рыбалке Джон чуть не утонул: его спасла юная наследница враждебного клана, Лорна Дун. Джон, поражённый красотой девушки, влюбляется (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: драма, мелодрама, приключения, экранизацияРежиссер: Фил КарлсонАктеры: Барбара Хейл, Ричард Грин, Карл Бентон Рейд, Уильям Бишоп, Рон Рэнделл, Шон МакКлори, Онслоу Стивенс, Лестер Мэтьюз, Джон Денер, Глория ПетроффПеревод: Одноголосый любительский (Kolobroad)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C3A76072530DC0EC7194CFD30142EE2E661800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693149   (121150) от 24.01.2024
-
-Жюльетта, или Ключ к сновидениям / Juliette ou La Clef des songes (1951) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм «поэтичный рассказ о юном герое, которому нет счастья в реальном мире, и который ищет забвения в мире грёз».Производство: Франция / Films Sacha GordineЖанр: драмаРежиссер: Марсель КарнеАктеры: Жерар Филип, Сюзанн Клотье, Жан-Роже Коссимон, Рене Женен, Ролан Лезафр, Габриель Фонтан, Артюр Девер, Луиз Фуке, Марсиаль Реб, Marion DelboПеревод: Авторский (Роман Янкелевич)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9548B71970BE02F99BA5EB647C61A131BDAD6CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118382   (121080) от 25.01.2024
-
-К сокровищам авиакатастрофы / Race for the Yankee Zephyr (1981) BDRip [H.264]
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121080.jpg" />
-</div>
-
-
-###  Подробнее
-
-В озере, в высокогорьях Новой Зеландии, охотник Гибби Гибсон обнаруживает самолет потерпевший крушение во времена Второй Мировой Войны. Когда он рассказывает об этом, гангстеры начинают преследовать его, угрожая ему и его дочери, потому что они знают, где находятся 50 миллионов долларов пропавшие при крушении. Пилот вертолета Барни, рискуя своей жизнью, помогает (   Читать дальше...   )Производство: Австралия, Новая Зеландия, СШАЖанр: Боевик, драма, приключенияРежиссер: Дэвид ХеммингсАктеры: Кен Уол, Лесли Энн Уоррен, Дональд Плезенс, Джордж Пеппард, Бруно Лоуренс, Грант Тилли, Роберт Брюс, Гарри Разерфорд-Джонс, Тони Спаркс, Кларк Уокингтон ...Перевод: Профессиональный многоголосый, дублированныйСубтитры: РусскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3FDC10D7EB6621378344EB34DF2C9B477C42C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 442988   (121075) от 25.01.2024
-
-Крамер против Крамера / Kramer vs. Kramer (1979) BDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тед Крамер, целиком посвятив себя карьере, не замечает того, что происходит в собственной семье. Поэтому от него уходит жена, оставляя незадачливого отца заботиться о шестилетнем сыне.
-Теперь Крамер старший должен выступить в непривычной роли: ему предстоит ухаживать за Крамером младшим, проводить с ним больше времени и, наконец, попытаться проникнуть в хрупкий и (   Читать дальше...   )Производство: США / Columbia Pictures, Stanley Jaffe ProductionЖанр: ДрамаРежиссер: Роберт БентонАктеры: Дастин Хоффман, Мэрил Стрип, Джейн Александр, Джастин Генри, Говард Дафф, Джордж Коу, ДжоБет Уильямс, Билл Моор, Хоуланд Чемберлен, Джек Рэмэдж и др.Перевод: Дублированный, ДвухголосыйСубтитры: Русские, Английские, ФранцузскиеПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809820D4F4BF899D1EB829278018B697BB47825F
 ```
 
 https://mybot314.ru/tekegram_catalog/

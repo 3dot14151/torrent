@@ -1,3 +1,191 @@
+###  Публикация: 742280   (969910) от 12.01.2014
+
+VA - Жажда Скорости. Дискотека Казанова (1998-2006) [MP3|112-320 кб/с]<Eurodance, Rave, Club, Techno, House, Trance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Студия "Казанова Рекордс" - это вымышленное название. Выпускалась она конгломератом, известным как "НОВАЯ СТУДИЯ" ("Арлекина" и "Русская Студия").01 Scooter - One (Club mix)
+02 DJ Aligator - Music is my language (feat. Arash)
+03 Eddy Wata feat Evanescence - Bring Me To Life (remix)
+04 Alex M Vs. Mark Van Damme - Technodisco (R.Mayth Radio Edit)(   Читать дальше...   )Жанр: Eurodance, Rave, Club, Techno, House, TranceПродолжительность: 88:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F6E1631458847294832D376A9BE216B2726A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358147   (969290) от 07.02.2020
+
+Windows 10 Enterprise LTSC 2019 x64 Rus by OneSmiLe [17763.1012]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
+Интегрированы последние обновления на 06.02.20.
+Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D55ADA557FF425CE445A46ED71EF87B8FD6CA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358004   (969289) от 07.02.2020
+
+Мое прекрасное лето с Софи / Une fille facile (2019) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Найме 16 лет, она живет в Каннах. Учебный год закончился, впереди каникулы — в компании с приехавшей из Парижа 22-летней кузиной Софи, готовой научить подросшую сестренку правилам взрослой жизни. Лови момент — ее главный девиз. А это значит — богатые и щедрые мужчины для того и существуют, чтобы делать счастливыми юных красавиц и дарить им удовольствия. Такое море (   Читать дальше...   )Производство: Франция, Les Films Velvet, France 3 Cinéma, Canal+Жанр: Драма, комедияРежиссер: Ребекка ЗлотовскиАктеры: Мина Фарид, Захия Дехар, Бенуа Мажимель, Нуно Лопеш, Клотильда Куро, Любна Абидар, Лакдхар Дриди, Анри-Ноэль Табари, Седрик Аппиетто, Микаэль МильориниПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9410C0635C35C2BAB6C124F8BCDADA2BB50023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976196   (969246) от 17.01.2016
+
+Как американская разведка предлагает правительству США бороться с криптовалютами
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вчера в интервью «Российской газете» глава Следственного комитета Бастрыкин предлагал запретить биткойн. А вот свежая новость из США: аналитический центр RAND Corporation (по факту — подразделение американской раздедки) в своем докладе называет криптовалюты (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975525   (969164) от 17.01.2016
+
+MAGIX Movie Edit Pro 2016 Premium 15.0.0.90 (x64) [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+MAGIX Movie Edit Pro 2016 - это программа для работы с видео, способная удовлетворить самые высокие требования профессиональных пользователей. Эта программа является победителем самых разных конкурсов и включает в себя уникальный набор инструментов для детальной обработки видео и аудио. Кроме того благодаря продуманной разбивке программы на модули и повышенной производительности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827A340763E2D8BA68E556278B67D0B2358225D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976172   (969155) от 17.01.2016
+
+AusLogics BoostSpeed 8.2.0.0 RePack (& Portable) by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B49DAE414CAF346697A2883A03AB91347392452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976163   (969152) от 17.01.2016
+
+Total Commander 8.52a LitePack | PowerPack | ExtremePack 2016.1 Final + Portable [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCFCE7817B6385A92DF989D05FE4DB9530C1E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531219   (969145) от 17.01.2016
 
 Шрифты - 2981 кириллический декоративный шрифт + 18 шрифтов zip-кодов + 170 шрифтов bar-кодов [TTF]
@@ -6,7 +194,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +220,7 @@ COWBOY WPI DVD Project III StartSoft 17 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +246,7 @@ T-Flex CAD 12 12.0.57 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +432,7 @@ BSPlayer Pro 3.06.220 Mod by Dymonyxx [Ru] - Универсальный муль
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +510,7 @@ ArchiCAD 19 Build 4013 + Add-Ons [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +536,7 @@ Far Cry 3 [Ru] (Repack/1.0.4.0) 2012 | z10yded
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +616,7 @@ Slax 7.0.8 [i486+x86_64] [EN+RU] 4xCD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +671,7 @@ Auslogics BoostSpeed 8.2.0.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,192 +682,6 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:231399ECB5AF37EF2E91934AB5D39EC3D04E406D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619560   (967051) от 16.02.2013
-
-Impire [En/Gr] (L/1.0.1.1) 2013 | FLT
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Impire – стратегия, в которой вы выступаете правителем живущих в подземном мире импов. Выполняя всяческие задания, необходимо помочь Bjal-Abaddon'у обрести былое могущество повелителя подземного царства. Воевать придется против постоянно ищущих приключений героев, хотя при желании всегда можно предпринять вылазку на поверхность, совершив рейд на какое-то из поселений людей. (   Читать дальше...   )Тип издания: ЛицензияЖанр: StrategyЯзык озвучки: Английский / НемецкийЯзык субтитров: Английский / НемецкийЯзык интерфейса: Английский / Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632FB4F01D58D61D1C51E2231F731A7A71E64573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618923   (967046) от 16.02.2013
-
-Metal Gear Rising: Revengeance [XBOX360] [Region Free] [En] [LT+3.0] (XGD3 / 15574) 2013
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Metal Gear Rising: Revengeance является шестой игрой в серии Metal Gear Solid и восьмой в серии Metal Gear. Первый анонс этой игры сделал летом 2009 года Хидзо Кодзима, легендарный гейм-художник. Он же заявил, что непосредственного участия в создании Metal Gear Solid: Rising он принимать не будет, довольствуясь продюссерством.
-Слоган игры «молниеносный экшн». То есть это классический прямолинейный шутер типа «стреляй во все, что видишь». В игре Metal Gear Solid: Rising вы играете за Рейдена, который пытается противостоять всевозможным военным компаниям. Ликвидирует врагов Рейден своим собственным мечом. Но разработчики добавили функцию замедления времени, чтобы удары меча могли стать наиболее точными. Игроку на выбор предлагаются разные «планы рассечения». Кстати, кроме врагов, Рейден своим могучим мечом крушить может все подряд.
-По сравнению с предыдущими сериями игры, в Metal Gear Solid: Rising Рейден выглядит несколько по-другому, у него даже изменился цвет глаз и оттенок кожи. (   Читать дальше...   )Тип издания: ЛицензияРазработчик: PlatinumGames и Kojima ProductionsЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358809   (966917) от 09.02.2020
-
-Forza Motorsport 7 (2017) [Ru/Multi] (1.141.192.2/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ощутите опасность и красоту настоящей гонки на максимальном пределе возможностей в самой реалистичной автомобильной игре Forza Motorsport 7. Соберите более 700 машин, включая огромную коллекцию Ferrari, Porsche и Lamborghini. Проявите свое мастерство в 30 известных локациях, где погодные условия могут меняться каждый раз, когда вы участвуете в гонке.Тип издания: RepackРазработчик: Turn 10 StudiosЖанр: Racing, Arcade, Simulator, 3DЯзык озвучки: Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC41494C0F9437A4693CFA56110E655A660D06EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357753   (966916) от 09.02.2020
-
-BELOFF 2020 [Ru] (Авторская раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_966916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA33DF47FFA883A5989DDDF58855672C45F684A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358834   (966915) от 09.02.2020
-
-WinPE 10 x64 by LEX v.20.2.8 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузочный диск на базе Windows 10 - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D251FF6EA9797B2B2575D2659E4A1292AA0B0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977265   (966327) от 20.01.2016
-
-В России "навечно" заблокировали 13 торрентов
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966327.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Роскомнадзор получил из Мосгорсуда вступившие в законную силу решения суда о постоянной блокировке 13 интернет-ресурсов, которые распространяют мультимедийный контент с нарушением авторских прав. Об этом говорится в сообщении ведомства. Это первое решение о пожизненной блокировке сайтов, вступившее в законную силу.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977310   (966256) от 20.01.2016
-
-Resident Evil 0 HD Remaster (2016) [En/Multi] (1.0/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признанная классика жанра ужасов снова с нами! Встречайте обновленное издание игры Resident Evil в формате HD. В 1998 году для расследования странных убийств в окрестности города Раккун-сити направлен отряд особого назначения. На бойцов нападает стая кровожадных псов-мутантов, и они пытаются спастись в усадьбе неподалеку. Но и там все пропитано запахом смерти.Тип издания: LicenseРазработчик: CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102A56EB21B194A07BE9F2E18D0C151EEBCD73AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

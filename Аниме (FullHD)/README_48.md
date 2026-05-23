@@ -1,3 +1,55 @@
+###  Публикация: 1589620   (189901) от 10.11.2022
+
+Exception | Ошибка [2022, Web, 8 эп.] WEB-DL 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В отдалённом будущем человечество вынуждено покинуть Землю и отправиться в другую галактику. На выбранную для терраформирования планету отправляется корабль с передовой командой, каждый член которой напечатан на «биологическом 3D-принтере». Что же может пойти не так?Производство: студия Tatsunoko Production / タツノコプロЖанр: триллер, фантастикаРежиссер: Сато ЮдзоПеревод: Netflix (Полина Стародуб)Язык озвучки: Японский; Английский;Субтитры: Английские; Русские; Multi-SubПродолжительность: 8 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FFDE999FA77FB9AFBCC438F3497A9DF920B914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589831   (189755) от 11.11.2022
+
+Kimi ni Todoke 2nd Season | Дотянуться до тебя [ТВ-2] [2011, TV, 12 из 12 + 1SP] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Очаровательная старшеклассница Савако Куронума пробила символическую скорлупу скованности и непонимания, сумела открыться окружающим и завести друзей, а также упрочить отношения с виновником своего превращения – одноклассником Сётой Кадзэхайей. Образ жутковатой «Садако» остался в прошлом. Даже школьная звезда Куруми, по уши влюбленная в Сёту, после долгой борьбы (   Читать дальше...   )Производство: Production I.GЖанр: Романтика, повседневность, сёдзёРежиссер: Кабураги ХироСубтитры: РусскиеПродолжительность: 12 серий по 23 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28439D20C073560D80B09EC1375EF9154141860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544263   (189564) от 11.11.2022
 
 Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
@@ -6,7 +58,7 @@ Kingdom 4 | Царство [ТВ-4] [2022, TV, 26 из 26] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_189564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ RWBY: Hyousetsu Teikoku | RWBY: Ice Queendom | RWBY Ледяное короле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Spy x Family | Семья шпиона [2022, TV, 12 из 25] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Heike Monogatari | The Heike Story | Повесть о доме Тайра [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Machikado Mazoku 2-Choume | The Demon Girl Next Door 2 | Городская дь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Azur Lane: Queen's Orders | Лазурный путь: Приказы корол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу (2022) [2022, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -372,7 +424,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Sister Princess: Re Pure | Сестры-принцессы [ТВ-2] [2002, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -481,7 +533,7 @@ Sister Princess | Сестры-принцессы [ТВ-1] [2001, TV, 26 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -509,7 +561,7 @@ Birdie Wing: Golf Girls Story | История гольфисток [ТВ-1] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -537,7 +589,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -566,7 +618,7 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -594,7 +646,7 @@ Mahou Sensei Negima! Anime Final Gekijouban | Волшебный учитель 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -620,7 +672,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -631,58 +683,6 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385F306994B8E90DE3ED579053BD018F1DF8222E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427817   (182020) от 29.11.2020
-
-Mugen no Juunin: Immortal | Blade of the Immortal | Клинок бессмертного [2019, Web, 24 из 24] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мандзи — убийца ста самураев и бессмертный мечник, уставший от своего проклятия. После гибели собственной сестры он делает 800-летней монахине, запустившей в его тело не позволяющих расстаться с жизнью «кровяных червей», предложение: дабы искупить грехи, он обещает убить на своём пути тысячу злодеев. И как только клятва будет исполнена, Мандзи вернётся его смертность, (   Читать дальше...   )Производство: Liden Films / ライデンフィルム, Graphinica / グラフィニカЖанр: приключения, самурайский боевикРежиссер: Хамасаки ХиросиПеревод: EVGENION820, ThirTeenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05247BF3A6C3992ECC39EF18C3F64BDA9FD73865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427877   (180642) от 01.12.2020
-
-Hatsukoi Monster | First Love Monster | Моя первая любовь - монстр [2016, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никайдо Кахо — любимая дочь богатых родителей, умница, красавица, которой все всегда старались угодить. Однако безоблачное существование нарушается в первый же день в новой старшей школе: у ворот общежития Кахо почти сбивает грузовик, и только внезапное появление неизвестного парня спасает девушке жизнь. Ну как тут не влюбиться? Покоренная такой самоотверженностью, (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: комедия, романтикаРежиссер: Инагаки ТакаюкиПеревод: YakuSub Studio (Nika_Elrik, SeshaRim, Nagaki)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12EF0E16A137176C12FBA510267F3B4A3555FFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

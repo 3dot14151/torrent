@@ -1,3 +1,107 @@
+###  Публикация: 1746221   (45190) от 30.08.2024
+
+Crypt Custodian (2024) [Ru/Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Crypt Custodian - очаровательная метроидвания, напоминающая серию Zelda, об уборке в загробной жизни. Главный герой - озорной кот, который умер и очутился во дворце в загробной жизни. После краткой и неприятной встречи со стражем посмертия Кендрой его изгоняют из дворца и приговаривают к должности уборщика... навечно! Исследуйте обширные земли вокруг дворца, сражайтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Kyle ThompsonЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C8F9AD67C9B9EBBBACEEB2788AD24392D5134E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728396   (45169) от 30.08.2024
+
+Fireside (2024) [Ru/Multi] (1.0.3_rc1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Fireside – окунитесь с головой в добрый игровой сюжет, приправленный приключениями и правилами. Где вы сможете находить новых друзей, обмениваться своими находками и просто хорошо проводить время у костра. К тому же, займитесь выстраиванием связей и делайте многое другое.Тип издания: LicenseРазработчик: Emergo EntertainmentЖанр: Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E191E4B51A239202086A4E79C7130547CF5379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746355   (45165) от 30.08.2024
+
+Highwater (2024) [Multi] (1.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Highwater переносит игроков в недалекое и мрачное будущее. На Земле осталось очень мало пригодных для жизни территорий из-за Великой климатической катастрофы. Самые богатые люди перебрались в город-крепость под названием Альфавиль. Оставшееся простое население вынуждено выживать. По слухам, мир обретен, и готовится эвакуация на Марс элит. Об этой информации прознал (   Читать дальше...   )Тип издания: LicenseРазработчик: Demagog StudioЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1D60287D7FD583D4219000F9B968A4247B1B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746219   (45163) от 30.08.2024
+
+Alter Ego (2010) [En] (1.0) Scene Skidrow
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новое приключение от создателей легендарной Black Mirror. Жители Плимута пришли в ужас, узнав о таинственной пропаже недавно захороненного тела сэра Уильяма. Еще при жизни его не раз обвиняли в жестоких и кровавых преступлениях. Доказать причастность не удалось – но все старались держаться от Уильяма подальше. И стоило исчезнуть трупу, как начались зверские убийства. (   Читать дальше...   )Тип издания: SceneРазработчик: bitComposer GamesЖанр: Приключенческие игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6B969146BF74CA81B506DEDF2D1098529F89DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746223   (45147) от 30.08.2024
 
 KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Desire! (2024) [En] (1.0) Scene Tenoke
@@ -6,7 +110,7 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Nancy Drew: The White Wolf of Icicle Creek / Нэнси Дрю. Белый во�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Nancy Drew: Last Train to Blue Moon Canyon / Нэнси Дрю. Последни
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ NARIBIKIMURA (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ No Return (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Bewitching Sinners (2024) [En] (1.9.8.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Wild West Dynasty (2023) [Ru/Multi] (1.0.9064) Repack FitGirl [Settler Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ I Wani Hug that Gator! (2024) [Ru/Multi] (1.6.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Date Z (2024) [Ru/Multi] (1.0.2) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Scene FairLigh
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sunset Hills (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Sunset Hills (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Perennial Order (2024) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Don't Stare (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Dreamlike Love with Seira (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.00/dlc) Repack FitGirl [Digital Collec
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749381   (43586) от 14.09.2024
-
-LUNARiA -Virtualized Moonchild- (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43586.jpg" />
-</div>
-
-
-###  Подробнее
-
-LUNARiA -Virtualized Moonchild- адвенчура, основанная на повествовании, которая исследует пересечение виртуальной реальности и человеческих связей. В центре сюжета - Т-БИТ, старшеклассник и исключительный геймер, который попадает в таинственное виртуальное пространство, известное как Лунный мир. Здесь он сталкивается с аватаром ИИ по имени LUNAR-Q, который является (   Читать дальше...   )Тип издания: SceneРазработчик: VISUAL ARTS KeyЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3508732EE59B741B9C9757CEA36B948CB570C946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749382   (43582) от 14.09.2024
-
-Everlasting Flowers - Where there is a will, there is a way (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everlasting Flowers - Where there is a will, there is a way - это история о двух молодых женщинах. Студия SPRITE создала этот кинематографический роман. Мина, одиночка, уходит от мира. Школа становится для нее полем боя. Ее убежище? Комната, наполненная засушенными цветами. Пленница своих мыслей, она бредет сквозь бесконечные дни. Тем временем Ран, рожденная в богатстве, (   Читать дальше...   )Тип издания: SceneРазработчик: sprite, flowers.studioЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный), ЯпонскийЯзык интерфейса: Английский, Китайский (упрощенный, традиционный), Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681A8B8D9CE57A7DF39A2B53E2EBD963723782AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640922   (43533) от 15.09.2024
-
-Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркий представитель классических приключенческих point-and-click игр с забавным сюжетом и затягивающей с первых минут игровой механикой. Молодой программист Джастин буквально раздавлен после расставания с Джулией и всё у него валится из рук. В таком состоянии легко что-то сломать, но кто же мог подумать, что главный герой с легкостью превратит неисправную микроволновку (   Читать дальше...   )Тип издания: LicenseРазработчик: Warm KittenЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CA76F5B620C9A25C068B197C82E26A129808CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749596   (43444) от 15.09.2024
-
-Dave the Diver (2023) [Ru/Multi] (1.0.2.1474/dlc) Repack Wagner
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: RepackРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3FA0EA4A1AED7704099BE8770177328DED93A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

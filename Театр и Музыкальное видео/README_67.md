@@ -1,3 +1,174 @@
+###  Публикация: 919318   (583628) от 18.07.2015
+
+Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выступление знаменитой финской Symphonic Power Metal команды "Nightwish" на "Wacken Open Air 2013" с новой нидерландской вокалисткой Floor Jansen (ex - After Forever, действующая вокалистка ReVamp и Nightwish).01. Dark Chest Of Wonders
+02. Wish I Had An Angel
+03. She Is My Sin
+04. Ghost River(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Folk MetalПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744DB7EF307F0D09AF0B251E6F78F7DCAB5C7365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 179360   (583352) от 05.08.2014
+
+Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Акустическое выступление Avril Lavigne в Roxy Theatre, Los Angeles, 16 Oct. 200701. Sk8er Boi
+02. Girlfriend
+03. My Happy Ending
+04. Innocence(   Читать дальше...   )Продолжительность: 00:50:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 70017   (582279) от 06.08.2014
+
+Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Sk8er Boi
+2. Girlfriend
+3. Innocence
+4. Don't Tell Me(   Читать дальше...   )Жанр: Pop RockРежиссер: Kevin WallПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 733221   (581798) от 20.07.2015
+
+Сергей «Чиж» Чиграков - Дзержинск, Музыкальная школа им. Н.А.Скрябина 21.02.2007 (2013) CAMRip->DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление
+02. Автобус
+03. Блюз на сваях
+04. О любви(   Читать дальше...   )Жанр: Acoustic Rock, Acoustic BluesПродолжительность: 02:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9025229C25A214C7C924006ADD83A8372E8542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919347   (581797) от 20.07.2015
+
+Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот концерт был записан в период с 20 по 28 июля 2009 года, когда группа давала 5 концертов в столице Дании. Видео снято самими фанатами группы.Поэтому съемка получилась не совсем профессиональная, зато атмосфера передана на отлично.01. The Ecstasy Of Gold
+02. That Was Just Your Life
+03. The End Of The Line
+04. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashПродолжительность: 02:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6E9D5357B0D52080EF12AD5F5B90E531733E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039449   (581351) от 10.08.2016
+
+Сказки Беатрикс Поттер / Tales of Beatrix Potter (1971) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представляется удивительный фильм-балет 1971 года “Сказки Беатрис Поттер” по знаменитой истории английской писательницы и художницы Беатрикс Поттер о кролике Питере и других животных. Вся кинокартина - это представление персонажей: танцуют белки, мыши, лягушки и прочие мелкие животные. Уникальная в своём роде постановка, граничащая с кукольным сюрреализмом, (   Читать дальше...   )Производство: Великобритания, GW FilmsЖанр: Мюзикл, балет, фэнтези, семейныйРежиссер: Реджинальд МиллсАктеры: Фредерик Эштон, Александр Грант, Джули Вуд, Энн Ховард, Боб Мид, Гарри Грант, Сэлли Эшби, Бренда Ласт, Майкл Коулмэн, Уэйн СлипПеревод: Не требуетсяПродолжительность: 01:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E140EE64D677A4F57752BA6483856C4AC3C84F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919482   (580975) от 21.07.2015
 
 Принц Наполеон (1969) WEB-DLRip
@@ -6,7 +177,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +230,7 @@ Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +259,7 @@ Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -175,7 +346,7 @@ Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +375,7 @@ MEDINA - FOR ALTID (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -230,7 +401,7 @@ Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -259,7 +430,7 @@ Rammstein - Live aus St. Petersburg (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +494,7 @@ Beyonce - Best Thing I Never Had (2011) HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +546,7 @@ Stomp: Live (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +602,7 @@ Bon Jovi - Live at Madison Square Garden (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +660,7 @@ Dio - Live In London - Hammersmith Apollo (1993/2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_574516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,180 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921815   (573647) от 26.07.2015
-
-U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы U.D.O., прошедший 16 ноября 2011 года в Софии (Болгария).01. Rev-Raptor
-02. Dominator
-03. Thunderball
-04. Leatherhead(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246F933482049988EB5B01A9B248F66EF75E73A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921772   (573583) от 26.07.2015
-
-Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Status Quo на Wembley Arena в марте 2013 года. Status Quo — британская рок-группа, основанная бас-гитаристом Аланом Ланкастером и гитаристом Фрэнсисом Росси в 1962 году в Лондоне, Англия.01. Intro/Junior's Wailing
-02. Backwater
-03. Just Take Me
-04. Is There a Better Way(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues Rock, Rock 'n' RollРежиссер: Andy Gamble, Jaff CousinsПродолжительность: 01:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F478E4C3ECC8A7C83C5EEF1BF6E08C350D39DB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528494   (573316) от 28.07.2012
-
-Alex Kunnari vs. Delerium feat. Sarah McLachlan - Lost Silence (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B98D920C1DE2D97A8387934299D0DCEC3380BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528533   (572886) от 28.07.2012
-
-Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный бутлег группы Dream Theater под названием1. Acid Rain (9:25)
-2. Kindred Spirits (8:00)
-3. Biaxident (7:39)
-4. Freedom of Speech (9:00)
-5. Improv Jam #1 (8:10)
-6. Another Dimension (10:51)
-7. State of Grace (6:20)
-8. Universal Mind (9:36)
-9. When the Water Breaks (16:49)
-10. Improv Jam #2 (11:31)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalАктеры: John Petrucci (guitars) Mike Portnoy (drums) Tony Levin (bass, Chapman stick) Jordan Rudess (keyboard)Перевод: ОтсутствуетПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043276   (571887) от 16.08.2016
-
-The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третьего июня на Eagle Rock Entertainment состоялся релиз THE ROLLING STONES "Totally Stripped" - сборника студийных сессий из альбома "Stripped" и концертных вариантов различных композиций. Релиз доступен на DVD или SD Blu-ray с бонусным документальном фильмом, на DVD/CD, на DVD/LP и на CD/2LP с записью концертных выступлений. Лимитированное (   Читать дальше...   )Жанр: Rock, Blues Rock, Rock & Roll, Hard Rock, Psychedelic/Garage, British BluesЯзык субтитров: Английский, Немецкий, Французский, ПортугальскийПродолжительность: 01:31:17,  01:38:56, 02:04:44, 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFA9CDE736B8911758507EB933B260893ACF993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689057   (571607) от 14.08.2013
-
-Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 2011 года в Японии произошло ужасное землетрясением и чудовищное цунами, что повлекло за собой крупнейшую аварию на атомной станции Фукусима. Осенью 2011 года, несмотря ни на что, Aerosmith совершил тур в Японию, страну с которой они всегда имели хорошие отношения. Этот фильм - концерт объединяет музыкальные треки с закулисными кадрами которые порой очень (   Читать дальше...   )01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Производство: USA / Eagle Rock EntertainmentЖанр: Hard RockСубтитры: Английские, немецкие, испанские, французские, итальянские, датские, португальскиеФормат: MKVПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C3EAFF105BB2C7F3815EC7EE9C204109ADCAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

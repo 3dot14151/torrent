@@ -1,3 +1,109 @@
+###  Публикация: 921280   (531411) от 11.08.2015
+
+Очень важные персоны / The V.I.P.s (1963) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лондонский аэропорт оказался ловушкой для четырех очень важных персон, направляющихся в США, и желающих побыстрей покинуть туманный Альбион, но именно туман становится на пути всех вылетающих. Этой ночью в аэропорту деловой магнат Пауль, который всегда считал жену Франческу чем-то само собой разумеющимся вдруг понимает, что может ее потерять, ведь она готова бросить (   Читать дальше...   )Производство: Великобритания / De Grunwald Productions, Metro-Goldwyn-Mayer (MGM)Жанр: ДрамаРежиссер: Энтони ЭсквитАктеры: Элизабет Тейлор, Ричард Бёртон, Луи Журдан, Эльза Мартинелли, Маргарет Разерфорд, Мэгги Смит, Род Тейлор, Орсон Уэллс, Линда Кристиан, Деннис ПрайсПеревод: Двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861567D730FAB6F7829C702E57ED1705B22EEB05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920143   (531192) от 11.08.2015
+
+Ублюдки / I bastardi (1968) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Джейсон и Эдам, два сводных брата, занимаются ограблениями ювелирных магазинов и банков. Эдам предает Джейсона, отнимает у него похищенные камни и любимую девушку и бросает покалеченного на произвол судьбы. Полуживого младшего брата подбирает молодая женщина-доктор, которая выхаживает его на своем ранчо. Едва встав на ноги, Джейсон замышляет свою страшную месть. (   Читать дальше...   )Производство: Италия, Франция, Германия (ФРГ) / PECF, Rhein Main, Ultra FilmЖанр: Драма, КриминалРежиссер: Дуччо ТессариАктеры: Рита Хэйворт, Джулиано Джемма, Клаус Кински, Маргарет Ли, Клодин Оже, Серж Маркан, Умберто Рахо, Дэн ван ХузенПеревод: Одноголосый закадровый (CCK+)Субтитры: ОтсутствуютПродолжительность: 01:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7506C6502585BFD18D57DB45EAFC3BE4D76B6027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152078   (531158) от 04.08.2017
+
+На древо взгромоздясь / Sur un arbre perchе (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Индустриальный магнат, возвращаясь из Италии в хорошем настроении, по дороге подбирает двух непредвиденных пассажиров. Ночью в результате небольшого инцидента он теряет контроль над управлением машиной.
+На следующее утро, на фоне горного пейзажа французской Ривьеры, открывается удивительная картина: автомобиль с тремя пассажирами надежно устроился в ветвях кроны (   Читать дальше...   )Производство: Франция, Италия / Comacico, Lira Films, SNCЖанр: КомедияРежиссер: Серж КорберАктеры: Луи де Фюнес, Джеральдин Чаплин, Оливье Де Фюнес, Алис Саприч, Поль Пребуа, Ролан Армонтель, Франко Вольпи, Жан Паниссе, Ганс Мейер, Дэниэл БеллюПеревод: Двуголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3105D15B701F7C0F1788A7C93C28CC5421B7ACBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919896   (531111) от 11.08.2015
+
+Бог простит. Я – нет! / Dio perdona... Io no! (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По дороге из Эль Пасо ограблен поезд. Налетчики забрали 300000 долларов, убив при этом всех пассажиров. На поиски денег отправляется сыщик страховой компании Хатч со своим знакомым Кэтом Стивенсом.
+После недолгих размышлений они приходят к единому мнению: налет на поезд, мог совершить только один человек — Билл Сан Антонио. Однако, проблема заключается в том что (   Читать дальше...   )Производство: Италия, Испания / Cronocinematografica S.p.a., Productores Exhibidores Films Sociedad Annima (PEFSA)Жанр: ВестернРежиссер: Джузеппе КолицциАктеры: Теренс Хилл, Бад Спенсер, Фрэнк Вулф, Джина Ровере, Хосе Мануэль Мартин, Луис Барбу, Хоакин Бланко, Тито Гарсия, Франк Бранья, Антониетта ФиоритоПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD33BAED09760C794F2B83FBF0715A184FA98089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532821   (530566) от 11.08.2012
 
 Влюбленные / Amanti (1968) DVDRip
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE9008D723112F1987209BA1AB226B83BD09880B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 58966   (524103) от 25.06.2022
-
-Козырной туз / I quattro dell'Ave Maria (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524103.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Какопоулос ухитрился спастись от виселицы по ложному обвинению, он грабит на крупную сумму Кэта Стивенса и Хатча Бэсси. К тому же крадет их лошадей. В результате развеселого и бесшабашного преследования Стивенс и Бэсси становятся невольными союзниками Какопоулоса в разборках с бандой, подставившей его.Производство: Италия / Cronocinematografica S.p.a., San MarcoЖанр: Комедия, вестернРежиссер: Джузеппе КолицциАктеры: Илай Уоллак, Теренс Хилл, Брок Питерс, Кевин МакКарти, Бад Спенсер, Ливио Лоренцон, Стеффен Захариас, Тиффани Хойвелд, Армандо Бандини, Ремо КапитаниПеревод: профессиональный одноголосыйСубтитры: ОтсутствуютПродолжительность: 02:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15F73E60D6B5039045B2066B8D0CE8A06ABA1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922716   (523825) от 14.08.2015
-
-Останься со мной / Stand by Me (1986) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма переносит зрителя в 50-е годы. Лето подходит к концу, но сезон развлечений омрачен таинственным исчезновением мальчика. Четверо друзей-подростков отправляются на его поиски. Дети взялись за трудное дело, ведь им так хочется поскорее стать старше…Производство: СШАЖанр: Драма, приключенияРежиссер: Роб РайнерАктеры: Уил Уитон, Ривер Феникс, Кори Фельдман, Джерри О`Коннелл, Кифер Сазерленд, Кэйси Семашко, Гари Райли, Брэдли Грегг, Джейсон Оливер, Маршалл БеллПеревод: Профессиональный многоголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9FFC3CF4151BC7A98D04C44BAFDDAABCF8724C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240253   (523521) от 13.08.2018
-
-Банда заложников / Le gang des otages (1972) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый тюремный срок, отпущенный Жильберу Нодье, не пошел начинающему грабителю впрок. Банда, сколоченная на скорую руку из криминальных приятелей Нодье и его жены Лилиан – бывшей труженицы панели, совершала налеты быстрые и эффективные в своей простоте, пока не перешла дорогу подлинным акулам преступного мира. Столкновение заканчивается массовой бойней, и банда (   Читать дальше...   )Производство: Италия, Франция / Citeca Productions, Medusa Distribuzione, Société Nouvelle des Établissements Gaumont (SNEG)Жанр: ДрамаРежиссер: Эдуар МолинароАктеры: Даниэль Коши, Бюль Ожье, Жиль Сегаль, Жерар Дарьё, Мишель Фавори, Морис Травай, Жинетт Гарсен, Жермэн Дельба, Симона Рьётор, Арман Местраль, Клер Морье, Габриэль Каттан, Морис БарьеПеревод: Одноголосый закадровый (Линда)Субтитры: РусскиеПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FB483D72B4303789F10C8A70701923E56B7F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923758   (523235) от 15.08.2015
-
-Гора / The Mountain (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый проводник Захари живет в горах вместе со своим младшим братом Крисом. Мать Криса умерла при родах, и Захари был вынужден в одиночку вырастить брата, который не испытывает ни малейшей благодарности к брату и думает только о том, как бы разбогатеть и уехать. В горах происходит авиакатастрофа, но добраться до места аварии спасателям не удаётся. Крис уговаривает (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Драма, ПриключенияРежиссер: Эдвард ДмитрикАктеры: Спенсер Трэйси, Роберт Вагнер, Клер Тревор, Уильям Демарест, Барбара Дарроу, Ричард Арлен, Э. Г. Маршалл, Анна Кашфи, Ричард Гаррик, Гарри ТаунсПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94E90C1CE47E5E5C3FD17AD1D7B106FAB8B3A17
 ```
 
 https://mybot314.ru/tekegram_catalog/

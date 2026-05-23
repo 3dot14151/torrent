@@ -1,3 +1,107 @@
+###  Публикация: 1754880   (23364) от 27.03.2025
+
+Ao no Hako | Blue Box | Голубая шкатулка [2024, TV, 25 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Taйки Инoмaтa cocтoит в бaдминтoннoм клyбe cпopтивнoй шкoлы Эймeй. Oн влюблён в бacкeтбoлиcткy Чинaцy Kaнo, кoтopaя нa гoд cтapшe. Kaждый дeнь дo нaчaлa ypoкoв oни вмecтe тpeниpyютcя в oбщeм cпopтивнoм зaлe. B oдин вeceнний дeнь в иx oтнoшeнияx пpoиcxoдит нeoжидaнный пoвopoт... Taк нaчинaeтcя иcтopия o любви, cпopтe и мoлoдocти!Производство: Студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: комедия, романтика, спортРежиссер: Яно ЮйтироПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3E7CACDC8BB6926D0E32C0F8CB1D9F1486E675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775429   (23361) от 27.03.2025
+
+Sousei no Aquarion: Myth of Emotions | Aquarion: Myth of Emotions | Акварион [ТВ-4] [2025, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Эносима — небольшой остров, плавающий в море Сёнан. На его прекрасном и спокойном пляже находится частная академия Эносима. Школа собирает талантливых детей со всей страны и предоставляет им одаренное образование с использованием новейшего оборудования. Сакко, Римия и Тоши, которые были отобраны в качестве учеников в специальный усиленный класс «Элементы», получают (   Читать дальше...   )Производство: Студия Satelight / サテライトЖанр: приключения, фантастика, мехаРежиссер: Итосо КэндзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957AB8919719CA8C861E82B99647D1A3D4371AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772266   (23345) от 27.03.2025
+
+Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любом случае я влюблюсь в тебя [2025, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В качестве главной героини — начинающая мангака, которую окружает гарем из друзей детства, но она сохнет по крутому старшаку.Производство: Студия Typhoon Graphics / 颱風グラフィックスЖанр: романтикаРежиссер: Ямамото ДзюнъитиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E381B47D28E10596995A85798DAE92D2BB98194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787881   (23317) от 27.03.2025
+
+Meng Qi Shi Shen | Adorable Food Goddess | Очаровательная богиня еды [2018, TV, 12 эп.] WEBRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Е Цзяяо, редактор журнала современная кухня, перемещается в период династии Хуай Сун, став Е Цзинсюань - старшей дочерью губернатора Янчжоу и становится наложницей Ся Чхуньюя, третьего человека в деревне Черного Ветра. Ся Чхуньюй на самом деле - шпион, он подозревает, что его новую наложницу подослал к нему глава деревни, чтобы за ним следить. Однако, острота ума (   Читать дальше...   )Производство: Wawayu Animation (Китай)Жанр: комедия, драма, Гурман, Романтика, ИсторическийРежиссер: Цзя ФэйПеревод: официальный  (Crunchyroll)Язык озвучки: КитайскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A44E417F12E8CCA98D94935D875C08AC1620F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753435   (23291) от 28.03.2025
 
 Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Fuguu-shoku Kanteishi ga Jitsu wa Saikyou Datta / Убогий класс «Оц
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Farmagia | Фармагия [2025, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Ishura 2 | Исура [ТВ-2] [2025, TV, 12 эп.] WebRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Sentai Red Isekai de Boukensha ni Naru | Красный рейнджер ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 / Сто деву
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Nihon e Youkoso Elf-san. / Welcome to Japan, Ms. Elf! / Добро пожало�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Перерожд�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Thunderbolt Fantasy: Seishi Ikken | Thunderbolt Fantasy: The Sword of Life and D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Hana wa Saku, Shura no Gotoku / Flower and Asura / Цветок, распуск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Medalist | Медалистка [2025, TV, 13 эп.] WEBRip 720p HEVC raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Juusenki L-Gaim I: Pentagona Window + Lady Gavlet | Heavy Metal L-Gaim I: Pentag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 3 | Thunderbolt Fantasy: Sword Seekers 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Momentary Lily | Мгновение Лили [2025, TV, 13 эп. + SP] WebRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Bloody Escape: Jigoku no Tousou Geki | Bloody Escape: Bats out of Hell | Кро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -504,7 +608,7 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Touhai: Ura Rate Mahjong Touhai Roku | Ледяные кости [2024, TV, 25 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -571,112 +675,6 @@ Watashi no Shiawase na Kekkon 2 | My Happy Marriage 2 | Мой счастлив�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F1770CF52BFCC3E9F0A1EBF354FE3CF754A210C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792039   (17574) от 21.05.2025
-
-Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Друзья — воры времени [2025, ONA, 6] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спец. мини эпизоды (дополнение) к основному сериалу Lycoris Recoil.
-
-Описание на первый сезон:«Ликo-Peкo» — кaфe в япoнcкoм cтилe в cтapoм цeнтpe Toкиo. Tyт пpимyт любoй зaкaз: вкycный кoфe, paзличныe cлaдocти и... кoe-чтo eщё. Haпpимep, пpиcмoтpeть зa дeтьми, пpoвecти дeлoвыe пepeгoвopы, дaть любoвныe coвeты, пoбeceдoвaть o зoмби и мнoгoe дpyгoe.Жанр: повседневность.Режиссер: Адати СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 6 серий по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F545457B5C102505E5641B51A2DD004C2BFA1242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789786   (17188) от 24.05.2025
-
-Guilty Gear Strive: Dual Rulers | Guilty Gear Strive: Двойные правители [2025, TV, 8 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17188.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как наука и технологии пришли в упадок, основным источники энергии в мире стала магия. Человечество создало запретное биооружие, получившее названием «гиры». И эти самые гиры против человечества восстали. Люди превозмогли, но ущерб был настолько мощным, что его отголоски ощущаются даже десятилетия спустя. Син Киске, сын человека и полу-гира, направляется (   Читать дальше...   )Производство: Студия Sanzigen / サンジゲンЖанр: приключенияРежиссер: Ко ЮПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA36FF4B83E59B62EE7A1186BE0329B03A67C6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721343   (16319) от 30.05.2025
-
-Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в одиночку [ТВ-1] [2024, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говорят, что тебя не убивает, то делает сильнее. К сожалению, для слабейшего охотника Кореи, Сон Джину, дело обстоит совершенно иначе. Однажды вместе с товарищами он попадает в опасное высокоранговое подземелье, а покидает его совершенно другим человеком — теперь у него есть Система, программа, которую может видеть только он и которая каким-то образом поднимает его (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключения, фэнтезиРежиссер: Накасигэ СюнсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721340   (16318) от 30.05.2025
-
-Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей [ТВ-1] [2024, TV, 24 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лай Торден, воин и лидер гильдии, вместе со своей командой отправился в подземелье, чтобы спасти свою сестру Фалин от красного дракона. Но что-то пошло не так, и герои остались без припасов. И тогда Лай предложил нарушить табу, и чтобы не умереть от голода, есть местных монстров. Без особого восторга от такой перспективы команда согласилась, ведь иначе они не успеют (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: комедия, драма, фэнтезиРежиссер: Миядзима ЁсихироПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5554BF67F213742D911832C90CE53FBBEE448ABE
 ```
 
 https://mybot314.ru/tekegram_catalog/

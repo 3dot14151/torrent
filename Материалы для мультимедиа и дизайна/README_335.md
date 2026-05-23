@@ -1,3 +1,345 @@
+###  Публикация: 1349263   (137768) от 31.12.2019
+
+Шаблоны - PSD исходник - Новый год нам дарит волшебство Part. 19-31, 33-37 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новогодние многослойные PSD исходники в высоком разрешении для творчества в фотошопе. Многие оценят их по достоинству.
+В данную раздачу вошли выпуски 19-31 и 33-37.
+Автор исходниковФормат: PSDРазрешение файлов: 7677х7677 | 7677- 5757 | 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF4F25B085BBD6DA16DABFEA339F9DAA2DE19D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970681   (137762) от 31.12.2015
+
+Рамки - Сборник рамок Маша и медведь [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+15 рамочек для детских фотографий.
+Автор: FireFly-zzzz1988Формат: PNGРазрешение файлов: 2480х3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0CEE3207A652515D4EAFD761DE8FF975593B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349237   (137667) от 31.12.2019
+
+Экшены - GraphicRiver - Artistic Sketch 3 Photoshop Action - 24778778 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Artistic Sketch - позволяет сделать ваши изображения похожими на профессиональные карандашные рисунки.  После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B843C8DCEE4E3A29E20A1DF5F2B439CC1987C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436357   (137598) от 31.12.2020
+
+Растровый клипарт - Pasta pepper tomatoes and cheese stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Паста с перцем, помидорами и сыром, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5480x7000-7000x5821
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F82B323846149D5BF5BCF033E49D20E3E48E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088659   (137575) от 31.12.2016
+
+Рамки - Рамки-календари на 2017 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рамки-календари на 2017, многослойные PSD для вашего творчества.
+Автор сборки: nikola120Формат: PSDРазрешение файлов: 4961х3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B492B8F9D8D0CD256B51C70E3AF01EA2798D3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195908   (137554) от 31.12.2017
+
+Клипарт - Creative Market - Snowflakes Collection. Vector - 2084969 [PSD, EPS, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сборник снежинок и красиво оформленным фоном из нихФормат: PSD, EPS, JPGРазрешение файлов: 3279x2488-7608x3825
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE6BD6DE060CF9433036898861C9EA83AA5D4EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436371   (137513) от 31.12.2020
+
+Растровый клипарт - Sushi sets on black table stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Наборы суши, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2592x3872-8000x5333
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065AA36A3D05DF665818E7E144B8480ED1176452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970562   (137508) от 31.12.2015
+
+3D сцены - GreyscaleGorilla - HDRI Studio Pack v1.9 для Cinema 4D [lib4d]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+HDRI Studio Pack - это коллекция более 70 студийных изображений, которые помогут сделать ваш продукт реалистичным. Все изображения были сняты профессионалами своего дела. Включает в себя видео инструкцию по установке.Формат: lib4d
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F837EF9FEE1F45A715BAFA76A46E530AB0FB2BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436393   (137488) от 31.12.2020
+
+Растровый клипарт - Baked chicken with a side dish stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Запеченная курица с гарниром, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3744x5616-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC775263764278BAD3D3ACFA19641A7D12C27D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436334   (137483) от 31.12.2020
+
+Растровый клипарт - Merry christmas and happy new holidays stock photo #2 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Новый год и рождество, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3000x2000-6720x4480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9EFCE66ED3C84AC765FB94DBC9C1028F9E5563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436372   (137471) от 31.12.2020
+
+Растровый клипарт - Fotolia - Sushi with ginger and soy sauce stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Суши с имбирем и соевым соусом с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 8000x5355
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66CA4278E32EF7D54F6D6AA4EF947C80312D8F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436377   (137462) от 31.12.2020
+
+Растровый клипарт - Wedding, bride and groom stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Свадьба, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3648x5472-10052x5644
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE4118D0C8091E614F616083F57A5DF8A2D455A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970522   (137449) от 31.12.2015
+
+3D сцены - GreyscaleGorilla - HDRI Light Kit Pro v2.0 для Cinema 4D [lib4d]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Light Kit Pro - это коллекция световых объектов и готовых студий. Этот продукт позволит вам очень быстро настроить вашу сцену для реалистичного рендера. Более 40 пресетов. Включает в себя видео инструкцию по установке.Формат: lib4d
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738E763430209D0272066035D6029FE16302179A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088404   (137446) от 31.12.2016
 
 Шаблоны - PSD исходник - Новый год нам дарит волшебство Part. 1-18 [PSD]
@@ -6,7 +348,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -332,348 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD959D978A55EF2C835E780E6F4CA3AD110115F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436362   (137323) от 31.12.2020
-
-Растровый клипарт - Road, track, highway stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорога, трасса, шоссе, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2204x2204-5616x5616
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17598683920B3D65CD0913D800017A1E54AE9205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436392   (137316) от 31.12.2020
-
-Растровый клипарт - Architecture and construction concept stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архитектурно-строительная концепция, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 7000x4541-7000x4679
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3E427DDA84DAEBF9126CF2ACF01CF9B1BA6131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436438   (137306) от 31.12.2020
-
-Растровый клипарт - Happy bride and groom, marriage stock photo #2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свадьба, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 7000x4667-7000x4700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC70F6EA6A408DB1E79121B869C931535637820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436391   (137303) от 31.12.2020
-
-Растровый клипарт - Adorable young girls stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательные девушки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5616x3744-7488x7488
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0105B953FA5A82F6A3B8F9A6344C981ECFC05AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436420   (137287) от 31.12.2020
-
-Растровый клипарт - Fashionable young women stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые девушки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3130x4696-7122x5144
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2F00EB0F076743FB9F1162F93CFD01E29A12AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436340   (137281) от 31.12.2020
-
-Векторный клипарт - Merry Christmas Santa Claus elements and themed painted flat illustrations [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-19 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBECEFE492A447AFF1062364454EA776795D7988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436418   (137276) от 31.12.2020
-
-Растровый клипарт - Fashion women hairstyles stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модные женские прически, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2334x3500-8000x8000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE95E01B718221CF45A70280275464D89A9407BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436413   (137273) от 31.12.2020
-
-Растровый клипарт - Coffee grinder and coffee beans stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кофе и кофейные зерна, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4140x2771-7677x5118
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C8E9101767451616687E7A4DC4E3BC1E0B83DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436424   (137267) от 31.12.2020
-
-Растровый клипарт - Girl with beautiful earrings stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые девушки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5412x5818-8706x6694
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EC515244AFD58904D2BBC14838FA31BB734AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436416   (137257) от 31.12.2020
-
-Растровый клипарт - Eye makeup stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макияж, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4724x4724-7394x7280
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B3E900FC04EE10E05942B75C8CB79983FA9D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436403   (137248) от 31.12.2020
-
-Растровый клипарт - Blonde with short hair stock photo [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая блондинка, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 4890x3117-8882x6258
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C435646A2A3627CE9F9041B98028B3E3CD7147DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349324   (137234) от 31.12.2019
-
-3D модели - Evermotion - Archmodels vol. 88 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137234.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту коллекцию входят 60 профессиональных моделей новогодних украшений со всеми фактурами, шейдерами и материалами. Вы найдете здесь большое разнообразие рождественских гаджетов, таких как елки, венки, носки, цепочки, подарки, подсвечники, ели, стеклянные шарики и сосновые шишки. Он готов к использованию, просто поместите его в вашу сцену. Представленные модели (   Читать дальше...   )Формат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2314098023A4080A20F37C8B3FD7F0B6EA18EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436341   (137227) от 31.12.2020
-
-Векторный клипарт - Merry Christmas Santa with gifts painted design [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год и рождество
-4 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA49EBDFD69FCF0CF403383A4E9F3DE0E76E2F65
 ```
 
 https://mybot314.ru/tekegram_catalog/

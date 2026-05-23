@@ -1,3 +1,188 @@
+###  Публикация: 1487979   (1002444) от 09.08.2021
+
+Отряд самоубийц: Миссия навылет / The Suicide Squad (2021) WEB-DLRip [H.264] [DVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Есть на земле одно гнилое место, откуда мечтают свалить даже самые отъявленные злодеи. Тюрьма Белль Рив — для преступников со сверхспособностями. Она же — ад. Она же — база рекрутов для суперсекретного проекта «Отряд самоубийц».Производство: США / Atlas Entertainment, DC Comics, DC Entertainment, Safran Company, The, Warner Bros.Жанр: Фантастика, комедия, боевик, приключения, фэнтезиРежиссер: Джеймс ГаннАктеры: Марго Робби, Идрис Эльба, Джон Сина, Юэль Киннаман, Джай Кортни, Питер Капальди, Давид Дастмалчян, Сильвестр Сталлоне, Майкл Рукер, Виола ДэвисПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full - без цензуры!), Английские (full, SDH)Продолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7472DA9C3A7A5C1D5DED2D6B68029AB70CD2145F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351154   (1002121) от 10.01.2020
+
+Возможность телепортации людей пояснил «квантовый гуру»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Физики успешно передали информацию от одного процессора к другому, полностью уничтожив первоначальный источник.Ученые совершили телепортацию - нет, пока не предмета, и уж тем более не человека, а молекулы света, фотона - от одного микропроцессора к другому. О развитии подобных технологий, а также о том, научимся ли мы в будущем так же успешно телепортировать человека, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351345   (1001836) от 11.01.2020
+
+Micron пообещала, что новые DDR5 будут на 85% быстрее предшественника
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+На днях Micron объявила о том, что стартовало производство тестовых образцов регистровых модулей оперативной памяти DDR5 для использования в серверах. Они будут построены на микросхемах 10-нм класса (1Znm) и, как заявили в компании, обеспечат прирост производительности подсистемы памяти более чем на 85% по сравнению с существующими DDR4.
+Ожидается, что DDR5 будут (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351691   (1001808) от 11.01.2020
+
+Tom Clancy's Ghost Recon: Wildlands (2017) [Ru/En] (Build 4073014/dlc) UplayRip =nemos= [Ultimate Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем прекрасная Боливия, живописный уголок Южной Америки, становится крупнейшим в мире производителем кокаина. Наркокартель Санта-Бланка подчинил себе правительство этой страны, в которой отныне процветает беззаконие, а жителей преследует постоянный страх.Тип издания: UplayRipРазработчик: Ubisoft ParisЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E66361B2441F9CADB423487ADF1092047720F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351638   (1001807) от 11.01.2020
+
+FxSound Enhancer 13.028 RePack by KpoJIuK [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+FxSound Enhancer (бывший DFX Audio Enhancer) — звуковой плагин для улучшения звучания плееров AIMP3, Winamp. Качество звучания значительно улучшается за счет совершенствования частотных характеристик, для чего и предназначен этот плагин. С помощью FxSound Enhancer устраняются два главных недостатка — срез высоких частот и недостаточное разделение стереобазы и ее (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D47F9C8F650CA8396DB50D322317D290F2F2533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351713   (1001498) от 12.01.2020
+
+Kodachi Linux 6.2 [анонимный доступ в сети] [08.26.2019] [amd64] 1xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Операционная система Linux
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3189CC9DBE444AF9A88018F54B656B381AC1ACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351994   (1001487) от 12.01.2020
+
+Parallels Desktop for Mac Business Edition 15.1.2 + Toolbox 3.7.0 CR2 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop для Mac Business Edition — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение, такое как Microsoft Office, без какого-либо ущерба для быстродействия.
+
+Parallels Desktop (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2020Разработчик: Parallels Holdings LtdПоддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AB41BAFB8570EB6AC62D804640B0EDFAA43FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240177   (1001329) от 13.08.2021
 
 Lauge (with Baba Gnohm, Rütz, Matt Tondut) - Discography 63 Releases (2008-2021) Fallen Metropolis [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Psybient, IDM, House, Psychill, Ambient>
@@ -6,7 +191,7 @@ Lauge (with Baba Gnohm, Rütz, Matt Tondut) - Discography 63 Releases (2008-2021
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +246,7 @@ TeamViewer 15.1.3937 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +272,7 @@ Total Commander 9.22a Podarok Edition + Lite [Ru/Uk]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +324,7 @@ SCUM (2018) [Ru/Multi] (0.3.67.19766/dlc) Repack Mr_Weegley [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +350,7 @@ Adobe Photoshop 2020 21.0.2.57 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +402,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +428,7 @@ Halo: Dilogy [En/Ru] (Rip) 2002 - 2007 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +456,7 @@ Severance: Blade of Darkness [En/Ru] (RePack/1.01) 2001 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +483,7 @@ Medal of Honor Warfighter: Limited Edition [Ru/En] (RePack/1.0.0.3) 2012 l R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +513,7 @@ Medal Of Honor. Warfighter: Digital Deluxe [Ru] (Repack/1.0.0.3/3 DLC) 2012 | Fe
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -358,7 +543,7 @@ Shadow Defender 1.2.0.355 [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +571,7 @@ ABBYY Lingvo x5 «20 языков» Professional 15.0.779.0 RePack [MULTi / Ру
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +597,7 @@ Doom 3 BFG Edition [Ru/En] (L/1.0.0.1u1) 2012
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -438,7 +623,7 @@ NVIDIA GeForce Desktop 310.90 WHQL + For Notebooks [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +655,7 @@ Skins kaspersky internet security 2013 3.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -496,7 +681,7 @@ Recovery Partition for ASUS K56 CM / Windows 8 (х64)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,199 +694,6 @@ Recovery Partition for ASUS K56 CM / Windows 8 (х64)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599649   (998991) от 07.01.2013
-
-[Автомагнитола Masushita NSDN-W59] (2009) файл для SD карты
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папка PRIVATE закидывается на отформатированную sd-карту, затем вставляется в слот в нижней части дисплея. И магнитола считав файл загружается в рабочий режим.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2215C942C2D97FF9F9DA4F2E7130F0738EE8FA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600223   (998736) от 08.01.2013
-
-Stop SMS Uni Boot v.3.1.7 [Русский и английский]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия Stop SMS Uni Boot - Загрузочный диск, основанный на Windows 7 PE, включающий комплекс инструментов для восстановления системы после блокирования SMS баннером. Предназначен для борьбы с Trojan-Ransom.Win32 blocker, MBRLock и другими разновидностями блокираторов.Сборка имеет достаточное количество установленного софта для работы с разделами HDD, восстановления системы, утерянной информации , подключения к сети и для решения других проблем.
-boot.wim можно использовать в качестве модифицированного загрузчика Windows 7 х86/x64 .Основное отличие от оригинального - наличие дополнительных возможностей и утилит. Отсутствует установка из под Windows !Название программы: Stop SMS Uni BootЯзык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600210   (998722) от 08.01.2013
-
-Артем Каменистый | Боевая единица [2013] [MP3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практикантка, а ныне выпускница Алина покидает Монастырь. Это необычный Монастырь. Сюда попадают девочки в возрасте семи лет. Их будни - жёсткая дисциплина и суровые тренировки. Они сражаются со Злом, проникающим на Землю. Оставаясь верной себе, Алина оказывается совершенно одна против целого, малознакомого мира. Странный магистр, тайные спецслужбы, пришествие Тринадцатого (   Читать дальше...   )Жанр: Фантастический боевик, научная фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBC899D2E69133F0EB0340F410E3F10E6147E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600371   (998708) от 08.01.2013
-
-Driver: San Francisco [Ru/En] (RePack/1.0.04.1114) 2012 l R.G.Games
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Над солнечным Сан-Франциско нависла страшная угроза в лице таинственного и коварного преступника Чарльза Джерико. Противостоять этому злодею способен только один человек по имени Джон Таннер, который за свою жизнь исколесил дороги сотен городов и упрятал за решетку целую армию головорезов всех мастей. Однако, одержать верх в схватке с Джерико не так-то просто. Джон, отправляясь на поиски своего нового врага, прекрасно осознает, что эта миссия может стать для него последней. Но он не из тех, кто привык отступать. Врагу, каким бы он ни был сильным и хитрым, не уйти от такого опытного преследователя. Тем более, что Таннер в совершенстве обладает навыками экстремального вождения автомобилей.  (   Читать дальше...   )Тип издания: RePackРазработчик: Ubisoft ReflectionsЖанр: Arcade / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39957033F4EA0A7C1C6A4CBFEAA0C3D3003FB041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600039   (998705) от 08.01.2013
-
-Принц Персии - Антология / Prince of Persia - Anthology [Ru/En] (RePack) 2003 - 2010 | R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prince of Persia Anthology (Антология) - это собрание всех игр из серии Prince of Persia для PC-платформы. Фантастический мир - мир полный чарующих историй и захватывающих поединков. Окунитесь в сказку.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6EF1D18CAC24F143FFF0ACB06A841AF948F91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600788   (998449) от 09.01.2013
-
-Adobe Acrobat XI (v11.0.1) Professional Multilingual
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Acrobat XI Pro — это не просто популярный конвертер PDF. Он содержит множество интеллектуальных функций, которые предоставляют дополнительные возможности для взаимодействия. Легко, быстро, профессионально. Это идеальный инструмент для технических и маркетинговых специалистов.
-
-Adobe Acrobat XI Pro можно использовать для следующих целей:
-
-• Редактирование файлов PDF
-С помощью Adobe Acrobat XI Pro можно вносить небольшие изменения в текст и изображения непосредственно в файле PDF — исходный документ или графический объект не требуются.
-
-• Экспорт из файлов PDF
-Сокращайте время, необходимое на повторный набор текста в файлах PDF. Преобразование файлов PDF в редактируемые документы Microsoft Office. С сохранением шрифтов, форматирования и всего проекта.
-(   Читать дальше...   )Язык интерфейса: Английский / Венгерский / Голландский / Датский / Испанский / Итальянский / Китайский (упрощенный) / Китайский (традиционный) / Корейский / Немецкий / Норвежский / Польский / Португальский /
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601025   (998438) от 09.01.2013
-
-Pirates of the Caribbean / Корсары 2: Пираты Карибского Моря [Ru] (RePack/1.03) 2003 | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие эпического ролевого экшена "Pirates of the Caribbean" происходит на островах Карибского Архипелага - в золотой век пиратства и эпоху великих открытий. Командуя кораблём и ватагой отчаянных парней со всего архипелага, вы будете пробивать себе дорогу огнём и мечом, сражаясь с другими, не менее амбициозными и смелыми капитанами. Десятки увлекательных заданий только и ждут, чтобы вы взялись за их выполнение! Слухи о сокровищах, покоящихся на дне океана, не дадут вам расслабиться - пополнив запасы у местных торговцев, вы вновь отправитесь на поиски.
-Вы сможете менять характеристики своего капитана и команды, повышать их умения и выбирать личные предпочтения. На любом из островов, куда забросит вас судьба, ничто не помешает вам обмолвиться парой слов с горожанами и доверху наполнить трюмы. Возможно, вам встретятся мрачные личности, чей разум давно покинула надежда разбогатеть, но в кармане всё ещё лежит старинная карта... (   Читать дальше...   )Тип издания: RePackЖанр: Action / Naval / RPG / 3D / 3rd Person / Privateer/ TraderЯзык озвучки: РусскиеЯзык субтитров: -/-Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DA29EAADCCB8682EEE0B1D7402E65953A2C121
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,187 @@
+###  Публикация: 980059   (955451) от 29.01.2016
+
+Грешник (2014) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда Владу было 5 лет, его мать убили, и в ее смерти всю последующие годы он винит отца. На 20-ую годовщину трагедии юноша решает расставить точки над «i» и собрать всех родственников. В процессе поиска и встреч с ними Влад выясняет факты, которые меняют все…Производство: РоссияЖанр: ДрамаРежиссер: Дмитрий КонстантиновАктеры: Андрей Смоляков, Евгений Антропов, Любовь Новикова (II), Дмитрий Куличков, Дарья Урсуляк, Дмитрий Мухамадеев, Мария Болонкина, Владимир Капустин, Владимир Виноградов, Иван Дремач, Александр ГородискийПеревод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28532F030CF32A4E62FD517731AE474BD41FFFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361265   (955308) от 19.02.2020
+
+Очередное достижение: 1000 релизов от Lancelof!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+
+ Очередное достижение: 1000 релизов от Lancelof !!!Дорогие Друзья!
+Выражаем огромную благодарность и искренне поздравляем нашего ответственного Релизёра, Трудягу,(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361074   (955295) от 19.02.2020
+
+Китайское «облако» над миром
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+7 февраля 2020 г. стартовавшая с Байконура ракета «Союз-2.1б» вывела очередные 34 спутника связи международной корпорации OneWeb. Это был второй старт из запланированных по договору между Роскосмосом и OneWeb двадцати одного пуска, которые построят основу группировки глобального широкополосного космического интернета. Для России это просто услуга коммерческого запуска (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361137   (955128) от 19.02.2020
+
+Kerio Control Software Appliance 9.3.4 build 3795 [i386] 1xCD [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Kerio Control — это комплексное решение в области безопасности, объединяющее несколько функций нового поколения (next generation) — в том числе межсетевой экран (файервол) и маршрутизатор, систему обнаружения и предотвращения вторжений (IPS), антивирус, VPN, фильтр веб-содержимого и фильтрациюприложений. Эти широкие возможности и непревзойденная гибкость в развертывании (   Читать дальше...   )Язык интерфейса: Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4681F82772A837052403087C62DF0358322AC2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346117   (955122) от 19.02.2020
+
+Текст (2019)  WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — 27-летний Илья Горюнов, семь лет отсидевший в тюрьме по ложному обвинению в распространении наркотиков. Когда Илья выходит на свободу, он понимает, что прежняя жизнь, по которой он тосковал, разрушена, и вернуться к ней он больше не сможет. Хотя он не собирался мстить человеку, который отправил его в тюрьму, другого выхода теперь нет. Встретившись (   Читать дальше...   )Производство: Россия / Central Partnership Productions, StartFilmЖанр: Драма, триллерРежиссер: Клим ШипенкоАктеры: Александр Петров, Кристина Асмус, Иван Янковский, Софья Озерова, Максим Виноградов, Виталий Хаев, Дмитрий Глуховский, Кирилл Нагиев, Елена ФиногееваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95DB9A8CCD64062A1254F80D46D2A4F46B46B630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 279311   (955091) от 07.01.2011
+
+Эта батарея работает в течение 60 лет.
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на потуги ученых, современные батареи и аккумуляторы имеют весьма непродолжительный срок жизни, они "умирают" значительно быстрей, чем выходит из строя устройство, для которого они предназначаются. Но представленный на снимке источник энергии, называемый "батарейка Карпена" (Karpen's Pile), проработал безостановочно с 1950-х годов, а это составляет целых 60 лет!(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088753   (954717) от 01.01.2017
+
+Миссия: Неадекватна / Army of One (2016) BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма - безработный бывший заключенный. К нему является Бог и просит отправиться в Пакистан - найти и убить Осаму бен Ладена.Производство: СШАЖанр: КомедияРежиссер: Ларри ЧарльзАктеры: Николас Кейдж, Дэнис О’Хэр, Венди МакЛендон-Кови, Рэйн Уилсон, Расселл Брэнд, Фиона Врум, Уилл Сассо, Пол Шеер, Хилари Джардин, Адриан Мартинес, Тоби Харгрейв, Грэм ДаффиПеревод: Дублированный (iTunes)Продолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAAC102FD5A41FA768D5C2EA90557CA516F275D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980714   (954371) от 30.01.2016
 
 В Госдуму внесен законопроект, отменяющий «налог на болванки»
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +425,7 @@ Windows 10 x64 Pro for Workstations v1909 build 18363.657 by Zosma [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +481,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) RePack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +507,7 @@ Grand Theft Auto: Anthology / Антология Grand Theft Auto [Ru/En/Multi7]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +641,7 @@ Subsistence (2016) [En] (020117) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +667,7 @@ Unreal Tournament 2004 (2004) [En] (3369-128.29/dlc) License GOG [Editor's Choic
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -494,191 +678,6 @@ Unreal Tournament 2004 - культовая компьютерная игра в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DC82873181C6DB0ED60842A5C884D406821790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088243   (951375) от 03.01.2017
-
-Windows XP SP3 RUS VL+ Быстрая установка из ESD v1 [Ru] by yahoo00
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951375.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче загрузочный образ диска с WinPE 7 и сжатый в ESD образ системы Windows XP SP3 RUS VL. Windows XP SP3 RUS VL основан на оригинальном образе MSDN и обновлен по декабрь так как применён твик от Windows Embedded POSReady 2009 и возможно дальнейшее обновление. Инегрированы популярные драйверы SATA/SCSI/RAID и в WinPE и в Windows XP что позволяет работать с широким (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301BF359135E053A7E73E41F9CE4F194E6836D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089313   (951374) от 03.01.2017
-
-Ведьма из Блэр: Новая глава / Blair Witch (2016) BDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951374.jpg" />
-</div>
-
-
-###  Подробнее
-
-После обнаружения загадочной видеозаписи у Джеймса появляется надежда найти свою пропавшую сестру. Вместе с группой друзей он решается отправиться в лес Блэк Хиллз, известный по легенде о ведьме из Блэр. Но никакая самая страшная легенда не сравнится с тем кошмаром, который ждет их в реальности.Производство: США, Lionsgate, Room 101, Snoot Entertainment, Vertigo EntertainmentЖанр: Ужасы, ТриллерРежиссер: Адам ВингардАктеры: Джеймс Аллен МакКьюн, Калли Эрнандес, Корбин Рейд, Брэндон Скотт, Уэс Робинсон, Вэлори КерриПеревод: Дублированный (iTunes)Продолжительность: 01:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4B3EC6AD480E3FFADE049C1BE9AA223B5D3F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981175   (951216) от 01.02.2016
-
-Огромный "виртуальный" телескоп сделал самый высококачественный на сегодняшний день снимок
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые из Института радиоастрономии Макса Планка, используя технологию дальней радиоволновой интерферометрии, объединили 15 наземных телескопов и российский космический радиотелескоп Спектр-Р в один огромный "виртуальный" радиотелескоп, диаметр которого в восемь раз превышает диаметр Земли. Все эти усилия были направлены на то, чтобы получить возможность (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981642   (951004) от 01.02.2016
-
-Reg Organizer 7.30 Final + Portable [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C9416FA7BAC2BBB5A0C0D54BABCB87A1022611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981238   (950847) от 01.02.2016
-
-American Truck Simulator (2016) [Ru/Multi] (0.9.1.3s/dlc) License SKIDROW
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение легендарной серии Truck Simulator от SCS Software, на этот раз нас ждёт увлекательное путешествие по солнечным штатам Америки, где вы можете насладится прекрасными дорогами, управляя многотонным монстром! Есть люди, чьим призванием является дорога.Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Simulator, IndieЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E55F1942AAF9A7169495C4BE310FB18A352C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981845   (950833) от 01.02.2016
-
-Reg Organizer 7.30 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FA92421A3A47A4FAB8D678AC8D79CA8A804300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981375   (950821) от 01.02.2016
-
-Xelius Groupe | Трейдинг на миллион - углубленный курс по трейдингу (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробное Описание:
-
-ОБУЧЕНИЕ ТРЕЙДИНГУ ДО РЕЗУЛЬТАТА
-ПЕРВЫЙ 1,000,000 РУБЛЕЙ ОТ 3 ДО 6 МЕСЯЦЕВ(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 40:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81AD31F4FE7B2517FF027F031110DCAE52956A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

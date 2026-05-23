@@ -1,3 +1,29 @@
+###  Публикация: 1557809   (213245) от 18.06.2022
+
+Please Fix The Road (2022) [Ru/Multi] (1.1.4) License GOG
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Please Fix The Road - это красочная, минималистичная, расслабленная и казуальная игра-головоломка, в которой вы... как понятно из названия, ремонтируете дороги. На каждом уровне у вас есть ограниченный набор инструментов, с помощью которых вы сможете транспортировать все автомобили, лодки, животных или поезда из пункта А в пункт Б. Среди животных конечно же, вы встретите (   Читать дальше...   )Тип издания: LicenseРазработчик: Ariel JurkowskiЖанр: Simulation, Turn-based, PuzzleЯзык субтитров: Русский, Английский, Немецкий, Датский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Датский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C170B66DC698F58C42D819343BF423F2B002902A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830946   (212660) от 27.10.2025
 
 PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack Necros
@@ -6,7 +32,7 @@ PowerWash Simulator 2 (2025) [Ru/Multi] (1.1.0.59) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +58,7 @@ MechWarrior 3 (1999) [Ru/En] (1.2.22.0/1.0/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +84,7 @@ MechWarrior 2 (1995) [En] (2.3.0.6) Repack Necros [Titanium Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ MechWarrior 4 (2000) [Ru/En] (2.1.0.5/dlc) Repack Necros [Compilation]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +136,7 @@ MechWarrior (1989) [En] (2.1.0.4) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Best Forklift Operator (2022) [Multi] (1.0) License DARKSiDERS [VR]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Are You Smarter than a 5th Grader? (2022) [Multi] (1.13/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Silent Hunter 5: Battle of the Atlantic (2010) [En] (1.2) License ViTALiTY
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +240,7 @@ King of Retail (2022) [Ru/Multi] (1.0.0.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Ultimate Fishing Simulator (2018) [Ru/Multi] (2.20.9500/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.11.0.0/dlc) Scene Skidrow
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Search & Rescue 4: Coastal Heroes / Служба Спасения: Берего�
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Coffee Talk Episode 2: Hibiscus & Butterfly (2023) [Multi] (1.11) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +370,7 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Last Call BBS (2022) [En] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Autobahn Police Simulator 3 (2022) [Ru/Multi] (1.0.0) License FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Bus Simulator 21 (2021) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Niche - a genetics survival game (2016) [Ru/Multi] (1.2.12) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +526,7 @@ My Dream Setup (2023) [Multi] (20230224) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Not For Broadcast (2022) [Ru/Multi] (2023.03.24a/dlc) Repack Chovka [Deluxe Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Pets Hotel (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Panzer War: Definitive Edition (Cry of War) (2018) [Ru/Multi] (1.0) Scene TiNYiS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Bum Simulator (2023) [Ru/Multi] (3.5.09.a) Scene DOGE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -630,7 +656,7 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -641,32 +667,6 @@ We. The Refugees: Ticket to Europe (2023) [Multi] (1.0) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62818A234B38A48D669EB027F2D9555EF5E4C4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637902   (197401) от 06.06.2023
-
-Summer Trip Cruise (2023) [Ru/Multi] (05.29.23.1/dlc) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Summer Trip Cruise - это сложная аркада, где вам предстоит взять на себя обязанности капитана круизного лайнера. Ваша задача с одной стороны предельно проста, а с другой требует повышенного внимания и ответственности: управляйте кораблем и проплывайте мимо местных достопримечательностей и постарайтесь на разбиться о скалы или проплывающие мимо суда. Лавируйте между (   Читать дальше...   )Тип издания: SceneРазработчик: Gius CaminitiЖанр: Экшены, Казуальные игры, Инди, Гонки, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628421328D169AEA5B510BC59FDB4D89166991A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

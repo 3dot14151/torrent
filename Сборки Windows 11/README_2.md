@@ -1,3 +1,81 @@
+###  Публикация: 1786836   (23793) от 23.03.2025
+
+Windows 11, 23H2 (22631.5039) 36in1 (x64) by adguard (v25.03.12) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных файлов UUP. Были интегрированы обновления по 11 марта 2025 года. В ней нет никаких косметических изменений и ничего не вырезано.Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BE9C7FBD14F93EE3CD5A450F4857759F28D591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791477   (21503) от 14.04.2025
+
+Windows 11, 24H2 [26100.3775] 38in1 (x64) by adguard (v25.04.09) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных файлов UUP. Были интегрированы обновления по 8 апреля 2025 года. В ней нет никаких косметических изменений и ничего не вырезано.Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E205351A94520EFE10866E322C17EDD065851C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791484   (21474) от 14.04.2025
+
+Windows 11, 23H2 (22631.5189) 36in1 (x64) by adguard (v25.04.09) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных файлов UUP. Были интегрированы обновления по 8 апреля 2025 года. В ней нет никаких косметических изменений и ничего не вырезано.Язык интерфейса: русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957784FFB49B130EB33C72A2834C1A5FDF84104B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798180   (17469) от 22.05.2025
 
 Windows 11 PRO 23H2 22631.5335 Update 19 by Ghost Spectre [En]
@@ -6,7 +84,7 @@ Windows 11 PRO 23H2 22631.5335 Update 19 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +113,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.4652) by ivandubskoj 09.07.2025 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +139,7 @@ Windows 11 (v24h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +168,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -119,7 +197,7 @@ Microsoft® Windows® 11 x64 Ru 24H2 4in1 Upd 08.2025 by OVGorskiy [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -145,7 +223,7 @@ Windows 11 24H2 Lite (26100.4946) x64 by Bruxer [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -171,7 +249,7 @@ Windows 11 PRO 24H2 26100.4946 Update 18 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -200,7 +278,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6584 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -229,7 +307,7 @@ Windows 11 PRO 24H2 26100.6584 Update 19 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -258,7 +336,7 @@ Windows 11 Pro х64 Version 24H2 Build 26100.6584 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

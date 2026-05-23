@@ -1,3 +1,186 @@
+###  Публикация: 1647224   (195485) от 18.07.2023
+
+«Ваша защита превратилась в шутку»: Empress взломала Dead Island 2 и обратилась к разработчикам Denuvo
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+За окном — июльский зной, а на улице игровых пиратов — новый праздник. «Полностью русская» хакер под псевдонимом Empress сообщила о взломе ещё одного крупного релиза 2023 года, оснащённого защитой Denuvo.Как стало известно, вслед за Hogwarts Legacy (февраль) и ремейком Resident Evil 4 (май) усилиями Empress пала защита жестокого зомби-боевика Dead Island 2 от Deep (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648470   (195217) от 24.07.2023
+
+В США построят первое в мире крупномасштабное производство перовскитных солнечных панелей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Американская компания Revkor и немецкая H2 Gemini сообщили о планах в течение года создать в США крупнейшее в мире производство перовскитных солнечных панелей. Первый комплекс мощностью 5 ГВт в год начнёт выпускать продукцию во втором квартале 2024 года. На полную мощность предприятие выйдет к концу 2025 года с объёмом 20 ГВт панелей в год. Это будет самое передовое (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648829   (195180) от 25.07.2023
+
+Во всех чипах AMD на Zen 2 нашли уязвимость, которая позволяет удалённо воровать пароли и другую информацию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Тэвис Орманди (Tavis Ormandy), исследователь из Google Information Security, сообщил сегодня о новой уязвимости, которую он обнаружил в процессорах AMD с архитектурой Zen 2. Уязвимость Zenbleed охватывает весь ассортимент чипов на Zen 2 и позволяет украсть защищённую информацию, включая ключи шифрования и логины пользователей. Атака не требует физического доступа (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650725   (194691) от 05.08.2023
+
+Рынок заполонила б/у память для ПК, которую продают как новую
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Аналитики предупреждают о появлении на глобальном спотовом рынке большого количество бывшей в употреблении серверной памяти, которую предприимчивые бизнесмены приспособили к работе в составе персональных компьютеров и потребительской электроники и выдают за новую. Стоит она примерно столько же, сколько и новая, а выйдет из строя, вероятно, быстрее. Кроме того, продукция (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648314   (194673) от 05.08.2023
+
+SolidWorks 2023 SP3.0 Premium RePack by xetrin [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
+SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8995081730B444CF1F7968E482077E083D71679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651180   (194666) от 07.08.2023
+
+Зрелища подорожали. Российские онлайн-кинотеатры взвинтили цены в эпоху расцвета пиратства
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Крупнейшие российские онлайн-кинотеатры повысили свои расценки на 25-50% всего за год, хотя лишились значительной части западного контента, наиболее интересного для зрителя. Они пытаются завлечь его азиатскими кино и сериалами, а также фильмами, снятыми в России. Тем временем россияне все чаще скачивают пиратский контент, который отныне недоступен в легальном поле.Все (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651382   (194622) от 06.08.2023
+
+RedShift Render 3.0.45 (x64) [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+RedShift – невероятно быстрое и функциональное решение для 3D-рендеринга. Обладает гибкостью и бескомпромиссным качеством CPU рендера, используя скорости GPU.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E38DF1560B7E301F99265CB808E9B1D278AAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652290   (194515) от 11.08.2023
 
 Virgin Galactic впервые успешно отправила туристов в космос
@@ -6,7 +189,7 @@ Virgin Galactic впервые успешно отправила туристо�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +241,7 @@ SKIDROW ответили EMPRESS: прошлись по личности хак�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_194002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +293,7 @@ Apple и Intel нажаловались на Индию в правительс�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +502,7 @@ VPN и мобильные сети. Почему операторы легче �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_193316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -398,7 +581,7 @@ A.L. Weber / T. Rice - Jesus Christ Superstar. Различные вариант
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -424,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -450,7 +633,7 @@ Gotham Knights (2022) [Multi] (9794860/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -476,7 +659,7 @@ NASA профинансировало создание гигантского н
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -487,194 +670,6 @@ NASA профинансировало создание гигантского н
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587114   (192737) от 30.10.2022
-
-YouTube Vanced (Extended) 17.33.42 Mod by Number one' [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192737.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Vanced (Extended) - это неофициальное продолжение проекта YouTube Vanced. Модификация базируется на оригинальном образе последней версии Vanced'а, а значит, имеет его полный функционал. Vanced Extended также является проектом, нацеленным на добавление новых, авторских функций, а так же новых функций из оригинального YouTube.Тип издания: ModРелиз состоялся: 30.08.2022Разработчик: inotia00Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F91BA31783E5A6B418C6FC45F0897C3064B9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657568   (192512) от 03.09.2023
-
-Назад в будущее 3 / Back to the Future Part III (1990) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из газет 1955 года Марти узнает, что доктор Браун погиб еще сто лет назад. Несмотря на просьбы Дока не навещать его в XIX веке, Марти вновь хочет вмешаться в ход событий и на машине времени уносится в 1885 год, навстречу Дикому Западу.
-Это путешествие, как и все прежние, не обходится без опасных приключений, но смелый Марти, рискуя жизнью, предотвращает трагедию (   Читать дальше...   )Производство: США / Amblin Entertainment, U-Drive Productions, Universal PicturesЖанр: фантастика, комедия, приключения, вестернРежиссер: Роберт ЗемекисАктеры: Майкл Дж. Фокс, Кристофер Ллойд, Мэри Стинберген, Томас Ф. Уилсон, Лиа Томпсон, Элизабет Шу, Мэтт Кларк, Ричард А. Дайсарт, Пэт Баттрем, Гарри Кэри млПеревод: Дублированный (Пифагор)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68779436B0929E479E72C920DBA58AD48E68DF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587116   (192426) от 31.10.2022
-
-Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.28.10.22) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN:
-ru_windows_10_enterprise_2016_ltsb_x64_dvd_9057886.iso
-
-   Интегрированы важные и рекомендуемые обновления по Октябрь 2022 года.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97770C31C2FF8635C01D407E08880FB153BDECDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216425   (192422) от 31.10.2022
-
-Холодное лето пятьдесят третьего... (1987) WEB-DL [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое бывших политзаключённых, недавно вышедших из лагеря, вступают в схватку с бандой амнистированных уголовников. Победу приходится оплатить дорогой ценой...Производство: СССРЖанр: драма, криминал, боевик, триллерРежиссер: Александр ПрошкинАктеры: Валерий Приёмыхов, Анатолий Папанов, Виктор Степанов, Нина Усатова, Зоя Буряк, Юрий Кузнецов, Владимир Кашпур, Сергей Власов, Борис Плотников, Виктор КосыхСубтитры: ОтсутствуютПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66A4DD5C71F0B1450C60282D888E02F824DA06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471984   (192419) от 31.10.2022
-
-Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192419.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Full Package Remastered — благодаря улучшенной графике, переработанному освещению, дополненным картам и новым спецэффектам Стилпорт и Святые с Третьей улицы смотрятся еще более впечатляюще, чем раньше.Тип издания: LicenseРазработчик: Deep Silver Volition, SperasoftЖанр: Экшн, От третьего лица, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F0CD4B6878A60FBA71D666DBFAC13B6743E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656545   (192327) от 04.09.2023
-
-Intel грозит судебный иск из-за уязвимости Downfall — патч чрезмерно уронил производительность
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192327.jpg" />
-</div>
-
-
-###  Подробнее
-
-После раскрытия информации об уязвимости Downfall компания Intel может столкнуться с коллективным иском, сообщает ресурс Tom’s Hardware со ссылкой на данные агрегатора коллективных исков. Это неудивительно, поскольку проблема коснулась миллиардов процессоров, а патч в отдельных рабочих нагрузках может снижать их производительность на 39 %.Коллективный иск инициирован (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586783   (192177) от 01.11.2022
-
-Zorin OS 16.2 Pro/Pro Lite [64-bit] 2xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zorin OS - дистрибутив на базе Ubuntu, разработанный для новичков мира Linux.
-Система обладает схожим с Windows графическим интерфейсом и включает многие аналоги приложений Windows. Zorin OS поставляется с приложениями, которые позволяют запускать обычные программы Windows.
-Основная цель дистрибутива - обеспечить пользователей Windows альтернативной системой на Linux, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1600F070AE78E0DF993E48934143847FDFDE7924
 ```
 
 https://mybot314.ru/tekegram_catalog/

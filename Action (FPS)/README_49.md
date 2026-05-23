@@ -1,3 +1,107 @@
+###  Публикация: 1177682   (38028) от 07.11.2024
+
+Exhumed (1996) [En] (1.0) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит в конце XX века в окрестностях древнего египетского города Карнак. Город захвачен неизвестными силами. На разведку в долину Карнак отправлена специальная группа солдат. По пути туда вертолёт с главным героем сбивают, герой едва спасается. Под руководством духа Короля Рамзеса, мумия которого была извлечена из гробницы злыми созданиями, герой (   Читать дальше...   )Тип издания: RepackРазработчик: Lobotomy SoftwareЖанр: Шутеры, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED464DA6D76EE249A40875F2906D86E9D0D18928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759181   (38020) от 07.11.2024
+
+Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Crysis: Warhead - продолжение приключенческого шутера с видом от первого лица в научно-фантастическом сеттинге. В этот раз вам предстоит наблюдать за историей оригинального Crysis от лица сержанта Сайкса. Вас ожидает похорошевшая графика, всё тот же динамичный геймплей. Вы снова посетите тропические джунгли небывалой красоты, сможете использовать способности нанокостюма (   Читать дальше...   )Тип издания: RepackРазработчик: Crytek Budapest, CrytekЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB5374964F46B39086ABA513D3FE18454955183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714565   (38012) от 07.11.2024
+
+Necrodome (1996) [En] (1.0) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Маниакальные гладиаторские бои без правил с участием тяжёлой техники и пешеходов на равных - лишь через восемь лет эта фраза станет относиться к Unreal Tournament 2004. Тогда же она относилась именно к этой игре. Нам как новичку гладиаторских боёв предстоит прорубиться через порядка тридцати уровней, каждый из которых является простой задачей "добраться до места (   Читать дальше...   )Тип издания: RepackРазработчик: Raven SoftwareЖанр: Action, RacingЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5CC85B89C7D6B0961C19BEB995A57B7B954A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759300   (38007) от 07.11.2024
+
+Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimate Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива.Тип издания: RepackРазработчик: TechlandЖанр: Action, Open World, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D6D5A4CF3891D5B4502B0AA11641875774F125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759552   (37845) от 09.11.2024
 
 Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] [VR]
@@ -6,7 +110,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.4.4b/dlc) Repack Let'sРlay [All Fronts]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Dece
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Far Cry (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack Other s [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack dixen18 [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) Repack Wanterlude 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Left 4 Dead (2008) [Ru/Multi] (1.0.4.5) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Roboquest (2020) [Ru/Multi] (1.5.0-280) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16557524/dlc) Repack Decepticon [20th Anniv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E1BBD5FC20D10D42F7F4ADDD814A0F74959073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764321   (35043) от 06.12.2024
-
-Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лица врачей и пациентов одинаково исчезают в этих кошмарных видениях мучительных воспоминаний. Эта реальность яичной скорлупы разрушена экспериментами, проводимыми в палате. Кровь, плоть и крики окружают вас, пока вы собираете воедино кусочки своей истории и сбегаете из лечебного центра «Яркий рассвет», а темный доктор с удовольствием наблюдает за вами. Вы - Уильям (   Читать дальше...   )Тип издания: RepackРазработчик: Memetic GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764418   (34950) от 07.12.2024
-
-Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество находится в осаде, орды Ментала распространяются по всему миру, уничтожая остатки сломленной и разбитой цивилизации. Последнее препятствие на пути захватчиков - Армия Обороны Земли, возглавляемая Сэмом Стоуном по прозвищу Крутой Сэм и его вооруженным до зубов отрядом солдат. Croteam возвращаются с мощнейшим приквелом к серии игр Крутой Сэм, увеличивая (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB3B463847349963B6FB3726E68A651333527E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764414   (34931) от 07.12.2024
-
-World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34931.jpg" />
-</div>
-
-
-###  Подробнее
-
-World War Z - это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z - наследнице одноименного блокбастера от Paramount Pictures - вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: Saber InteractiveЖанр: Action (Survival Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B836C6D81CF16DA93626CE66AF35F32ADE941A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756018   (34873) от 08.12.2024
-
-Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры Killing Time: Resurrected происходит в начале 1930-х годов. Студент, изучающий загадочный мир египтологии, оказывается в ловушке в поместье богатой наследницы Тесс Конвей. Обряд бессмертия, проведенный мисс Конвей, срывается, и ее друзья из высшего общества бесследно исчезают. Вам предстоит найти и уничтожить мистические египетские водяные часы, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, 3DOЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BE3C9E589FCC026178248BEC2109169D3DF922
 ```
 
 https://mybot314.ru/tekegram_catalog/

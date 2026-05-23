@@ -1,3 +1,116 @@
+###  Публикация: 980011   (957198) от 28.01.2016
+
+Mylene Farmer – Music Videos II & III (2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01.	Que Mon Coeur Lache (6:44)
+02.	XXL (4:34)
+03.	L'Instant X (4:22)
+04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8825368FFEE8DD10B56E6B084F9659F87EB4F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171590   (956547) от 02.02.2010
+
+Eruption - One Way Ticket (1979) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших песен группы - "One Way Ticket" (1978), более известной в СССР под названием "Синий иней" и исполнявшаяся многими ВИА. Автором песни был Нил Седака, который впервые издал эту песню в 1970 году. Однако помнят эту песню именно в исполнении Eruption.Жанр: PopПродолжительность: 2:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622402   (955877) от 26.02.2013
+
+"O2label"/Strannik (vol.2.) (2013) HDTV [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. City Of The Glimmered Fires
+02. Diamonds Sky (History Of Love)
+03. Expedition To The Sun
+04. Horizon On The Planet Thor(   Читать дальше...   )Жанр: Музыка, New Age, Electronic, Downtempo, Chillout, SpaceПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBE0383BDDD1EE0F57EB62372960D5DCDA0B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622984   (955675) от 26.02.2013
+
+"O2label"/Label O2 and...(vol.1) (2013) HDTV [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. LastEDEN - Sunrise
+02. Power Of Melody - Planet Enigma
+03. Power Of Melody - Cosmic Man
+04. Power Of Melody - The Poisoned Planet(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, ChilloutПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C509827579CC3DC51504F3AE7B246F701E5D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 623202   (955554) от 26.02.2013
 
 "O2label" / Label O2 and...(vol.2.) (2013) HDTV [H.264]
@@ -6,7 +119,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +232,7 @@ VA - Зимний марафон № 222: Праздничный Зимний Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -148,7 +261,7 @@ VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -177,7 +290,7 @@ Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music En
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +319,7 @@ Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +348,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -264,7 +377,7 @@ Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +432,7 @@ Sade – Life Promise Pride Love (1993) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +461,7 @@ Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +519,7 @@ VA - Зимний марафон № 223: Презент Новинок Росс
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +548,7 @@ The Beatles - A Day In The Life (1967) HDTV [1080i] [hand made clip]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +632,7 @@ VA-Коллекция клипов в авто (ZAP) (2DIN) (1980-2016) HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -549,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,7 +718,7 @@ VA – Реальная Музыка (2001) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,119 +732,6 @@ VA – Реальная Музыка (2001) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:788B0EE7733011043306534B0D1E9C170F3055AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625827   (940955) от 07.03.2013
-
-Сборник клипов - VA - Various Music part. 40 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940955.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2Elements - Tell Me Boy 1080p (3:24)
-2. Akcent feat. Anushka Manchanda - I'm Sorry 1080p (4:04)
-3. Alina Grosu - Let Go (Eurovision 2013) 1080p (3:10)
-4. Arty, Nadia Ali & BT - Must Be The Love 1080p (4:57)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D36F0EF9148FA4B3BD96D5FD9F402BC3FAC8D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984443   (938727) от 09.02.2016
-
-VA - Best of pop 2003 (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Kesici - Angel Of Berlin
-02. Pink - Family Portrait
-03. Christina Aguilera - Fighter
-04. Jennier Lopez feat Jadakis & Styles P - Jenny From The Block(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7103545647F681F1319E9CC9B81C638659A2BFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984563   (938388) от 09.02.2016
-
-VA - Танцевальный рай - The Best (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Pryzd vs. Floyd -  Proper Education
-02. Scooter - Shake That
-03. Holly Dolly - Dolly Song (leva's Pofka)
-04. Arash -  Boro Boro(   Читать дальше...   )Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF6BA17BAC160B2D978BB4BEC983E5A1DDEC7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859875   (937526) от 18.01.2015
-
-Настя Любимова ft. St1m - Мода На Любовь (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBE450A4E98870ED1CB42657CE39EB33CBFBB50
 ```
 
 https://mybot314.ru/tekegram_catalog/

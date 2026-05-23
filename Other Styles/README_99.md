@@ -1,3 +1,206 @@
+###  Публикация: 1312325   (530727) от 05.07.2019
+
+Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вдали от дома (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Far From Home Suite Home (08:28)
+02. It's Perfect (00:31)
+03. World's Worst Water Feature (07:31)
+04. Multiple Realities (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312712   (530719) от 05.07.2019
+
+Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change (3:14)
+02. Careless Whisper (3:09)
+03. Honesty (3:46)
+04. Michelle (3:30)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312212   (530711) от 05.07.2019
+
+Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Boys and Girls (01:49)
+02. I Like Presents Too (01:27)
+03. Starcourt (03:05)
+04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312403   (530708) от 05.07.2019
+
+Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Responsorios (6:19)
+02. Graduale (6:38)
+03. Cosmos (4:51)
+04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312201   (530694) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312207   (530614) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30AEDEB11C9F62527DE6B7F435F0B16CF13E822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927215   (529929) от 12.08.2015
+
+Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Fantastic Four Prelude
+02. The Garage
+03. The Unveiling
+04. Baxter(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AF5B133D712339D04EF0EBACA5FFD319FEBFCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240295   (529754) от 10.08.2018
 
 Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -6,7 +209,7 @@ Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -68,7 +271,7 @@ Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -97,7 +300,7 @@ Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -126,7 +329,7 @@ Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -155,7 +358,7 @@ Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|im
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -184,7 +387,7 @@ William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -213,7 +416,7 @@ Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +445,7 @@ Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenc
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +474,7 @@ Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +503,7 @@ Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +532,7 @@ Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -358,7 +561,7 @@ Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -387,7 +590,7 @@ VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -416,7 +619,7 @@ Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -445,7 +648,7 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +677,7 @@ VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +706,7 @@ David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +735,7 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,209 +749,6 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954553CF6FF7A11247668C604B5D445B2AD92F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053009   (525966) от 17.09.2016
-
-Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight From The City (06:31)
-02. A Song For Europa (02:34)
-03. The Drowned World (02:21)
-04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157258   (525820) от 10.08.2017
-
-Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525820.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon
-2. Spirit of the Sea
-3. Renaissance Faire
-4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157274   (525466) от 11.08.2017
-
-Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aesir (Ethnic Version) [04:49]
-02. Aesir (Orchestra) [04:50]
-03. Aesir (Instrumental) [04:51]
-04. Archangel (Instrumental) [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAACC363C457698011363A940A3CCDFD1CCA143D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370570   (525281) от 02.08.2011
-
-VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hava Nagila
-002. Israel
-003. Lamce Ram Ciam
-004. Ba Aretz(   Читать дальше...   )Жанр: FolkПродолжительность: 06:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157484   (525218) от 12.08.2017
-
-Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Better Than Myself
-2. Hellbent Hallelujah
-3. More Than Survival
-4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927331   (524848) от 13.08.2015
-
-Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix)
-02. Don't Go Away
-03. The Mass
-04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5001ACFBA474E11F7B4C8C43AFA35776B55C4C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927209   (524847) от 13.08.2015
-
-Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno (Remix)
-02. Don't Go Away
-03. The Mass
-04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

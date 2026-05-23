@@ -1,3 +1,55 @@
+###  Публикация: 1399376   (733430) от 31.07.2020
+
+Maison Ikkoku: Bangaihen Ikkokujima Nanpa Shimatsuki | Maison Ikkoku: Deserted Island | Доходный дом Иккоку: Кораблекрушение у необитаемого острова [1991, OVA, 1 из 1] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Во время жаркого полудня Ёцуя и Ичиносэ предаются воспоминаниям о том, как однажды все жильцы доходного дома Иккоку отправились в круиз на новенькой лодке Митаки. Но вечеринка, устроенная на борту, заканчивается отнюдь не всеобщим похмельем - в результате кораблекрушения веселая компания оказывается на необитаемом острове, где вспыхивает очередное сражение Годая (   Читать дальше...   )Производство: Kitty Films / キティ・フィルムЖанр: комедия, романтика, повседневностьРежиссер: Ямадзаки КадзуоПеревод: AtlantisЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 1 эп. на 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379FEE796446DF10624278E670DAC51B61FCFD6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399374   (733387) от 31.07.2020
+
+Maison Ikkoku: Shiki Utsuriyuku Kisetsu no Naka de | Maison Ikkoku: Through the Passing of the Seasons | Доходный дом Иккоку: Из сезона в сезон [1988, OVA, 1 из 1] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рекап сериала, фокусирующийся на отношениях Годая и Кёко.Производство: Kitty Films / キティ・フィルムЖанр: романтика, комедия, повседневностьПеревод: Near_Dark, Nimring, snipЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 1 эп. на 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B48E274BA77ECCFAF54250DD0FBB5E4F76B0CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 789655   (732741) от 25.05.2014
 
 Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, MV] HDTV 1080p raw
@@ -6,7 +58,7 @@ Kuro no Sumika -Chronus- / Чёрные сущности -Хронус- [2014, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +87,7 @@ Blade Runner: Black Lotus | Бегущий по лезвию: Чёрный ло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +115,7 @@ Bishoujo Senshi Sailor Moon R / Sailor Moon R Movie: Promise of the Rose + SP / 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +168,7 @@ Fate/Kaleid Liner Prisma Illya Zwei! | Судьба: Девочка-волшеб
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +194,7 @@ Classroom Crisis | Кризис в классе [2015, TV, 13 + 1sp] BDrip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +220,7 @@ Kuma miko | Kumamiko: Girl Meets Bear | Жрица и медведь [2016, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +246,7 @@ Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +272,7 @@ Hakkenden: Touhou Hakken Ibun | Hakkenden: Eight Dogs of the East | Хаккэн
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +298,7 @@ Mahou Shoujo Lyrical Nanoha Vivid | Magical Girl Lyrical Nanoha Vivid | Лири
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +324,7 @@ Ensemble Stars! | Звёзды ансамбля! [2019, TV, 24 эп.] WEBRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +350,7 @@ Kidou Senshi Gundam 00 | Mobile Suit Gundam 00 | Мобильный воин Г�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +376,7 @@ Goblin Slayer: Goblin's Crown | Убийца гоблинов (фильм) [2020
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ Angelic Layer / Арена Ангелов [2001, 26 эпизодов] BDrip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +428,7 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +454,7 @@ Tantei wa Mou, Shindeiru. | The Detective Is Already Dead | Детектив у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +480,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 из 12] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ M3: Sono Kuroki Hagane | M3 The Dark Metal | M3: Чёрная сталь [2014, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +533,7 @@ Jinsei Soudan TV Animation / Jinsei / La Bonne Vie / Советы по жизн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Valkyrie Drive: Mermaid | Сила Валькирии: Русалочка [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Gangsta. | Бандиты [2015, TV, 12 из 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Hakubo | Twilight | Сумерки [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Ore Monogatari!! | My Love Story!! | Моя история! [2015, TV, 24] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,58 +674,6 @@ Ore Monogatari!! | My Love Story!! | Моя история! [2015, TV, 24] BDrip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6288F16FEC4D90DC0E7D1A3D8A2632C76F206800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130041   (716332) от 01.05.2017
-
-Ookami Shoujo to Kuro Ouji | Wolf Girl and Black Prince | Волчица и Чёрный принц [2014, TV, 12] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716332.jpg" />
-</div>
-
-
-###  Подробнее
-
-У 16-летней Эрики Синохары, на ее беду, разыгралось воображение! Желая похвалиться перед новыми одноклассницами, она сделала мимоходом фото симпатичного юноши и заявила, что вот он – ее парень. А дальше вдруг оказалось, что блондин со снимка – личность в школе известная, звать его Кёя Сата, и до сего времени в романтических увлечениях красавчик замечен не был. Кто-то (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Касай Кэнъити / Kasai Kenichi / カサヰケンイチПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: русские (подключаемые); английские (вшитые, отключаемые)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A2AF4FCF0587D9117EFBA3C2C4C27022AEE0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129695   (714217) от 02.05.2017
-
-Gochuumon wa Usagi Desuka?? | Is the Order a Rabbit?? | Кролика заказывали? [ТВ-2] [2015, TV, 12] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714217.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некотором царстве, странном государстве, где в культурно-историческом экстазе неведомым образом слились Европа и Япония, на неторопливой речке по-прежнему стоит милый городок с фахверковыми домами и бульварами, поросшими сакурой. Недалеко от реки притаилось кафе «Кроличья нора» - и там усталых путников ждут не только говорящий кролик и чудесный кофе, но и настоящий (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Хасимото Хироюки / Hashimoto Hiroyuki / 橋本裕之Перевод: Усатый НяЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEFFFC0FA827833F9A703A65055B8EE944F0D04D
 ```
 
 https://mybot314.ru/tekegram_catalog/

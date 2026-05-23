@@ -1,3 +1,107 @@
+###  Публикация: 1287507   (702851) от 07.03.2019
+
+Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Криминальная сага Yakuza возрождается на PC! Полностью переработанный геймплей позволит вернуться к истокам саги Yakuza, чтобы вместе с главным героем Кадзумой Кирю пробиваться сквозь ряды Якудзы, защитить маленькую девочку, чья тетя и по совместительству возлюбленная Кирю с детства, исчезла… а вместе с ней и 10 миллиардов йен.Тип издания: RepackРазработчик: SEGAЖанр: Action, RPG (Open World), 3rd Person, 3DЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D6A97F3E63C2CF3C88F8774F5840E22884E780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220685   (702191) от 20.04.2018
+
+Mike was Сursed (2018) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В некогда тихом канадском городке с небольшим населением в 17 тысяч человек начинают пропадать люди, в частности молодые женщины и дети. Супруг одной из пропавших узнает о случившемся и спешно возвращается из командировки. По прибытии он понимает, что пострадала не только его семья. Весь город в панике. Городская власть и полиция штата в смятении. Добровольцы создают (   Читать дальше...   )Тип издания: LicenseРазработчик: Bogdan SychkovЖанр: Adventure (Horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274343CB348EC0563EAA5EC9471DDB88C1A5B4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132922   (698376) от 10.05.2017
+
+Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Inner Voices - сюрреалистическая приключенческая хоррор игра от первого лица с элементами rogue-like, в мире, вдохновленным рассказами о Ктулху Г. Ф. Лавкрафта, и работами Э. А. П, а также С. Кинга. Вы будете продвигаться по сюжету, разгадывая головоломки с разным уровнем сложности. Позвольте мистическому голосу направлять Вас через таинственные уголки жизни Джона (   Читать дальше...   )Тип издания: LicenseРазработчик: Sigma GamesЖанр: Adventure, Horror, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EB493C19F92B4E0B7D72FC76B732CF77708A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129076   (698244) от 10.05.2017
+
+Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Outlast 2 – это продолжение Outlast, популярной игры в жанре «хоррор». Ее события разворачиваются в той же вселенной, но уже с другими действующими лицами и в совершенно другом месте. Outlast 2 предоставляет уникальную возможность погрузиться в бездну человеческого разума, скрывающего по-настоящему страшные тайны. Ни одно противостояние нельзя разделить на «белых» (   Читать дальше...   )Тип издания: RepackРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F14587BAA2C15ADCE4696A061B62236A0981A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 793530   (695491) от 09.06.2014
 
 Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
@@ -6,7 +110,7 @@ Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Umbrella Corps / Biohazard Umbrella Corps (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Containment Initiative (2018) [En] (1.45) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Prey (2017) [Ru/Multi] (1.0.2/dlc) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ STRAFE (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Reframed (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Apocryph: an old-school shooter (2018) [Ru/Multi] (1.0) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ DESOLATE (2019) [Ru/Multi] (1.2.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ CRIMSON METAL (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ DooM in the Dark (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Prey (2017) [Ru/Multi] (1.0/dlc) License CPY
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ SUPERHOT (2016) [Ru/Multi] (1.0/upd9) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Inner Chains (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Prey [Ru] (L) 2006
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_678861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +606,7 @@ I Am Alive (2012) [Ru/Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_676072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +632,7 @@ illWill (2023) [Ru/Multi] (1.11) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_676066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Wolfenstein 3D [En] (RePack) 1992 | RG Games (Pilotus)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1618ED1717C777CF152ACFF38FC590F0EF4E084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290649   (673724) от 22.03.2019
-
-Borderlands: Trilogy (2009-2014) [Ru/En] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G. Revenants
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673724.jpg" />
-</div>
-
-
-###  Подробнее
-
-С возвращением во вселенную Borderlands! Палите из всех стволов и хватайте все, что плохо лежит, в совершенно новом приключении, которое буквально отправит вас в космос – на поверхность спутника планеты Пандора. События Borderlands: The Pre-Sequel!Тип издания: RepackРазработчик: 2K Australia, Gearbox Software и Aspyr MediaЖанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EAD489F8448200F8560E7C4F335BB35B98CA3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004081   (673524) от 30.06.2016
-
-Solarix (2015) [En/Tu] (1.6) License RELOADED
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики игры поставили перед собой задачу объединить в своем проекте атмосферу фантастических фильмов ужасов старой школы с стилем и графикой современного поколения игр, заключив все это в обертку из стелс-экшена с открытой структурой уровней. Сюжетная завязка Solarix не самая оригинальная: в один прекрасный день инженер-электрик Уолтер обнаруживает, что на (   Читать дальше...   )Тип издания: LicenseРазработчик: Pulsetense GamesЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, ТурецкийЯзык интерфейса: Английский, Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A914D42031DE5F337B6F2CE91AD99F8A1A0C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136734   (672308) от 23.05.2017
-
-The Fidelio Incident (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672308.jpg" />
-</div>
-
-
-###  Подробнее
-
-От арт-директора God of War 3, Fidelio Incident - однопользовательский триллер от первого лица о человеке, который отправился в тяжелое приключение к берегам Исландии. После жестокой авиакатастрофы Стэнли должен искать пустынный замерзший остров в поисках своей жены Леоноры, скрывая следы своей идентичности. Спасательная помощь уже в пути, прошлое должно оставаться (   Читать дальше...   )Тип издания: LicenseРазработчик: Act 3 Games, LLCЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7073B9A770F3D7309DC0123A554D62480DF73459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291086   (671930) от 23.03.2019
-
-Agent 9 (2019) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agent 9 — инди-игра с видом от первого лица. Вы будете пробираться через толпы противников. Будьте бесшумны или же выбирайте другой путь прохождения, идя напролом. Испытайте оживленную жизнь Агента 9 и покончите с самыми опасными злодеями в мире. Agent 9 - это хардкорный FPS, созданный независимым  разработчиком: Noodle Games.Тип издания: LicenseРазработчик: Noodle GamesЖанр: Action, Indie, 3DЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A302067712DA6F90C9142168E3ABD84D79CFE711
 ```
 
 https://mybot314.ru/tekegram_catalog/

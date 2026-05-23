@@ -1,3 +1,87 @@
+###  Публикация: 1821636   (63853) от 03.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1245 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane – Wherever I Go
+02. DIM3NSION & Kadett – Turning (Progressive Pick)
+03. Kevin de Vries & Add-us – Nami
+04. Hausman – This Is Not A Drill(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9590CB2AE637AD736F0298B319DDFBE8E33A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713746   (59946) от 12.04.2024
+
+VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, Techno, Melodic HouseПродолжительность: 39:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A14150E7E6D596CB89AB47C801288514F926FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717785   (58977) от 21.04.2024
+
+Korolova - Live @ Tulum Jungle, Mexico (2024-04-04) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Jonas Saalbach & Guzy - Take Me Away
+02. TH;EN & Carlo Whale - Say It
+03. Monastetiq - Dnipro
+04. Anyma - Pictures Of You(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D99B35FEE7DE97E7728CCB3304F7B11FB6F0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707961   (56060) от 19.05.2024
 
 VA - A State Of Trance Festival, Ahoy Rotterdam, Netherlands (2024) [MP3|320 Kbps] <Trance, Techno, Melodic House>
@@ -6,7 +90,7 @@ VA - A State Of Trance Festival, Ahoy Rotterdam, Netherlands (2024) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +119,7 @@ VA - Armin van Buuren - A State Of Trance 1182 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +148,7 @@ VA - Armin van Buuren - A State Of Trance 1185 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +177,7 @@ Two Friends - Big Bootie Mix Vol. 25 (2024-08-29) [MP3|320 Kbps] <Dance, Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -120,7 +204,7 @@ Steve Angello & AN21 - Size Sound System (01-26) (2023-2024) [MP3|192 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -149,7 +233,7 @@ VA - Armin van Buuren - A State Of Trance 1191 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -178,7 +262,7 @@ VA - Armin van Buuren - A State Of Trance 1192 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -207,7 +291,7 @@ Yotto - Odd One Out Radio (001-017) (2024) [MP3|320 Kbps] <Progressive House, Me
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -236,7 +320,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -265,7 +349,7 @@ VA - Armin van Buuren - A State Of Trance 1195 (Ade Special) (2024) [MP3|192 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +378,7 @@ VA - Armin van Buuren - A State Of Trance 1196 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +407,7 @@ Markus Schulz - Global DJ Broadcast Afterdark 2024 (4 Hour Techno Mix) (2024-10-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +436,7 @@ VA - Armin van Buuren - A State Of Trance 1198 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +465,7 @@ Markus Schulz - Global DJ Broadcast World Tour: ADE 2024 in Amsterdam (2024-11-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -410,7 +494,7 @@ Tiesto - Live @ PRISMATIC, Forest Hills Stadium New York, United States (2024-10
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -439,7 +523,7 @@ VA - Armin van Buuren - A State Of Trance 1199 (2024) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -468,7 +552,7 @@ Alesso - Tomorrowland Friendship Mix (2024-11-14) [MP3|320 Kbps] <Tech House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -497,7 +581,7 @@ HI-LO & Space 92 - Mixmag Crane Sessions, Amsterdam Dance Event, Netherlands (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +610,7 @@ Space 92 - Live @ Drumcode, Awakenings, Gashouder, ADE, Netherlands (2024-10-17)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +639,7 @@ Frank Walker - Live @ Mainstage, Veld Music Festival, Canada (2024-08-03) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +667,7 @@ RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +696,7 @@ VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +725,7 @@ VA - Tomorrowland Brasil (2024) [MP3|320 Kbps] <Techno, Melodic House, Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -655,90 +739,6 @@ VA - Tomorrowland Brasil (2024) [MP3|320 Kbps] <Techno, Melodic House, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52E0A46A7563D59A0EE59ECFD1AC6E94A12B5EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368231   (36084) от 26.11.2024
-
-CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (2020) [MP3|320 Kbps|image + .cue] <House, Disco House, Soulful House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CERERA - (Intro Speech)
-02. Birdee - Dinamo
-03. Birdee - Song for Francesca
-04. T.Markakis - We Call It Music(   Читать дальше...   )Жанр: House, Deep House, Disco House, Future House, Garage HouseПродолжительность: 02:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922A4B1381A36B9FFE8B4BD24B9EE5022BD07A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762626   (36031) от 26.11.2024
-
-Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RÜFÜS DU SOL - Pressure
-02. Argy & Omiki & Son Of Son - RITMO
-03. Rivo - Last Night
-04. Korolova & EYNKA - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2547BF00B17D64EA13CBB50B98DDE66E79B7A280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763813   (35319) от 03.12.2024
-
-VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP3|320 Kbps] <Progressive House, Hard Dance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive House, Hard Dance, TechnoПродолжительность: 08:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791920F9D9BCF48871ADEA2DC802F359A7B03316
 ```
 
 https://mybot314.ru/tekegram_catalog/

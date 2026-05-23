@@ -1,3 +1,82 @@
+###  Публикация: 1547172   (603300) от 27.04.2022
+
+SideFX, Delano Athias | Character Animation in Houdini (2020) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой презентации мы рассмотрим инструменты анимации в Houdini. Вы узнаете, как настроить интерполяцию f-кривой для блокинга методом от позы к позе, как отполировать анимацию, а также как быстро и удобно имитировать съемку с рук с помощью Motion FX.
+У Делано Атиаса более чем 15-летний опыт, он работал аниматором и TD по персонажам в различных проектах, от фильмов-блокбастеров (   Читать дальше...   )Производство: SideFXЖанр: Анимация персонажейЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249A17BD4698F2BB27B938332C230E51EC270122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547765   (602384) от 29.04.2022
+
+3DMotive, Emiel Sleegers | Terrain In World Machine. Volume 1-3 (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+рамках этого курса Emiel Sleegers разъяснит, как моделировать ландшафт, используя Mudbox совместно с World Machine. Сначала он создает основную плоскость в Maya, после этого формирует ландшафт в Mudbox. Затем получившееся экспортируется в world machine, где к ландшафту добавляются дополнительные детали, а в photoshop генерируются текстуры, которые планируется использовать. (   Читать дальше...   )Производство: 3DMotiveЖанр: Моделирование ландшафтаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F5B62D2E3378036DB189CA74BD38AE190A4FF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547720   (602373) от 29.04.2022
+
+CGcircuit, Steven Knipping​ | Applied Houdini Rigids I version 2.0 (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звёздные войны: Скайуокер. Восход, Звёздные войны: Последние джедаи, Аквамен, Изгой-один. Звёздные (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65BA7B395307D25171ED9BB7A6E301C17673FF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548277   (600125) от 02.05.2022
 
 3DMotive, Matt Tardiff | Quicktime Events in UE4 Volume 1 (2015) PCRec [EN, RU]
@@ -6,7 +85,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Artstation, Tyler Smith | Intro to UE4 VFX: Smoke and Dust (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ ArtStation, Tyler Smith | Intro to UE4 VFX: Waterfall (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +165,7 @@ Artstation, Jonas Ronnegard | Substance Masters Vol.1 (2020) Blu-ray [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +191,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create old realistic cannon (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +218,7 @@ FlippedNormals | Sculpting a Realistic Female Face in ZBrush (2019) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +245,7 @@ Artstation, Henry Chervenka | Hard Surface ZBrush Tutorial / Modeling A UH-60 Ro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +273,7 @@ Allegorithmic, Wes McDermott | Substance with Unity (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +300,7 @@ Allegorithmic, Wes McDermott | Substance Designer Intermediate-Advanced Tutorial
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +327,7 @@ Andrew Smith | DOTA 2 Workshop (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +353,7 @@ CGcircuit, Steven Knipping | Applied Houdini Volumes IV (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +379,7 @@ ArtStation, Maria Yue | Lighting Theory for Games (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +405,7 @@ Allegorithmic, Wes McDermott | Substance for Unity 5 Creating PBR textures (2016
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +434,7 @@ CGcircuit, David Adan | Total Destruction: Volume 3 Particles (2020) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +462,7 @@ CGcircuit, David Adan | Total Destruction: Volume 2 RBD Simulations (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +490,7 @@ CG Forge, Tyler Bay | Vex - Foundations I (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +516,7 @@ Skillshare, Aniket Rawat | Creating A Moroccan Riad Environment In Unreal Engine
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +543,7 @@ ArtStation, Milad Kambari | McLaren 650S GT3 Tutorial (Modeling, Texturing, Ligh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +569,7 @@ ArtStation, Sam Carr | Blender for 2D Artists (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +596,7 @@ Udemy, Sime Bugarija | Cinematic look with Blender 3.0 - 8+ hours MASTER tutoria
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +622,7 @@ Udemy, Sime Bugarija | Blender 3+ Reality Capture 5h, futuristic movie scence, f
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,7 +675,7 @@ Udemy, Mrawan Hussain | Blender: Tesla Cybertruck Forge (2022) PCRec [EN / EN Su
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,87 +686,6 @@ Udemy, Mrawan Hussain | Blender: Tesla Cybertruck Forge (2022) PCRec [EN / EN Su
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA4DE50CE8EAD6DA0D1278CE82E2E1A662BB7BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915582   (591710) от 06.07.2015
-
-Роман Стеблянский | Уроки Adobe InDesign CS5. Верстка печатных и электронных изданий. (2011) PCRec [H.264]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс включает в себя 12 уроков и рассматриваются как теоретические, так и практические вопросы макетирования и верстки с использованием программы Adobe InDesign CS5. Слушатели выполняют различные задания – от воспроизведения готовых макетов до самостоятельной разработки новых макетов публикаций. Рассматриваются особенности взаимодействия Adobe InDesign с графическими (   Читать дальше...   )Производство: СпециалистЖанр: Обучающее, графика, видеокурсыПродолжительность: 33:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF69C38C6E891A32DCA2571E044E69C77A1D61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550773   (591500) от 12.05.2022
-
-Виктория Чёрная | Курс по моушн-дизайну IN MOTION: анимация с нуля. Тариф "Умею анимировать" (2022) PCRec [RU] [AD]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кому подойдёт курс?
-начинающим дизайнерам
-дизайнерам без навыка анимирования
-смм-специалистам, таргетологам и сторисмейкерам(   Читать дальше...   )Производство: chernayastudioЖанр: моушн, дизайнЯзык озвучки: РусскийПродолжительность: 14:00:00Реклама: присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C79C159F28B0E2EF2E30E54A50A4E2DB6676702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550657   (591498) от 12.05.2022
-
-3D Concept Artist, Pablo Munoz Gomez | The Extra Mile (2021) PCRec [RU, EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс представляет и проводит Pablo Munoz Gomez, автор покажет и расскажет Всё, что он знает о скульптинге, текстурировании, освещении, рендере и композитинге. Наша цель проста и однозначна: выйти на новый профессиональный уровень, как 3D художнику. После успешного прохождения вы будете владеть всеми средствами и методами для создания удивительного и уникального (   Читать дальше...   )Производство: 3D Concept ArtistЖанр: Обучающий курсЯзык озвучки: Русский, АнглийскийПродолжительность: 66:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3E76BAA7E38E538F93882DF034EC5AC24EE6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

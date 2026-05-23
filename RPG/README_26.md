@@ -1,3 +1,81 @@
+###  Публикация: 927058   (529390) от 12.08.2015
+
+Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новая игра под названием Fairy Fencer F, продолжает славную традицию, пусть и не пытаясь соперничать с высокобюджетными проектами в жанре, но, тем не менее, оставаясь на голову выше среднего. История этой игры рассказывает нам о простом парнишке, которому для полного счастья всего-то нужен крепкий сон и вкусная еда. Больше его ничего особо не интересует.Тип издания: LicenseРазработчик: Idea Factory, Compile HeartЖанр: RPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2266B69EF5F1E14DF95B850E1865979C8411877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312641   (528957) от 06.07.2019
+
+Underhero (2018) [En] (4.0) License PLAZA
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вдохновлённая Paper Mario играми и RPG в целом, рассказывает историю о мире, где избранный герой провалился в своём задании и подчинённый главного злодея занимает его место в роли нового "героя". Присоединитесь к Элизабет IV и маленькому парню в маске, в путешествии через Королевство Честнат (Chestnut Kingdom), чтобы победить злого Мистера Стичеса (Mr. (   Читать дальше...   )Тип издания: LicenseРазработчик: Paper Castle GamesЖанр: RPG, Adventure, IndieЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DCDE764A0B0D0C4472DE09853408BD3D87CFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214980   (528470) от 11.08.2018
+
+Pyre (2017) [Ru/Multi] (1.50427) Repack R.G. Механики
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Pyre - ролевая игра, в которой вы становитесь предводителем банды изгоев, путешествующим вместе со своими спутниками через бескрайнее мистическое чистилище. Кто вернет себе былую славу, а кто навеки останется в забвении? Окажитесь в самой большой и невероятной игровой вселенной, созданной студией Supergiant, и проделайте полный опасностей путь через богом забытое (   Читать дальше...   )Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB99676EA79225E3E5501C5CF020CF76AC9BB1C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558783   (528433) от 22.06.2022
 
 Acting Lessons (2018) [En] (1.0.2.1) License GOG [18+]
@@ -6,7 +84,7 @@ Acting Lessons (2018) [En] (1.0.2.1) License GOG [18+]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Avadon 3: The Warborn (2016) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6421.30108/dlc) R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Kyn (2015) [En/De] (4.6.6.11209528/dlc) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Envy the Dead (2016) [Ru/En] (1.0b) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) SteamRip Let'sPlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Guild of Dungeoneering (2015) [En] (1.02) Repack CPY
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Royal Bounty HD (2015) [Ru/Multi] (1.0.0.210) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Fairy Fencer F (2015) [En] (1.0/dlc/u2) Repack R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) SteamRip 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.4.2b/dlc) SteamRip
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Fallen A2P Protocol (2015) [Multi] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Incredible Adventures of Van Helsing III (2015) [En/Multi] (1.0.6) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Might and Magic / Меч и Магия (1998-2002) [Ru/En] Repack nelex [Classic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Final Fantasy Type-0 HD (2015) [En/Multi] (1.0/upd1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Risen 3 Titan Lords (2014) [Ru/Multi] (1.?0/dlc) SteamRip Let'sPlay [Enhanced Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Overlord: Fellowship of Evil (2015) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Torchlight II (2012) [Ru/Multi] (1.25.9.5b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Rebel Galaxy (2015) [Ru/Multi] (1.08a HotFix 2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Iron Danger (2020) [Ru/Multi] (1.03.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Gothic 3 (2006) [Ru/Multi] (1.75.14L) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ Gothic 3 - продолжение серии классических ролев
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05172F55C251AE6959C9EF24108D15199964FDE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537321   (512002) от 20.08.2012
-
-Dungeon Siege 3 Limited Edition + 5 DLC [Ru] (Repack/Upd2) 2011 | R.G. Packers
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая серия ролевых игр Dungeon Siege, полюбившаяся миллионам поклонников жанра, обретает долгожданное продолжение. Разработка третьей части игры была возложена на студию Obsidian Entertainment – творцов потрясающих фантастических вселенных Neverwinter Nights 2 и Star Wars: Knights of the Old Republic 2, а контролировал процесс создатель и вдохновитель серии Крис Тейлор. Вас ожидают невероятные приключения в древнем королевстве Эб, погрязшем в хаосе и анархии. Вместе с одним из четырех героев вам предстоит совершить отчаянные подвиги, уничтожить бесчисленные орды чудовищ и вернуть жителям страны надежду на счастливое будущее. Предусмотрены не только одиночные странствия и приключения в мире, где сошлись в сражении острые клинки и могущественные заклинания, но и совместное прохождение игры по сети!(   Читать дальше...   )Тип издания: RepackЖанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274C365260EBB42B90E7C4029C2987B550460FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931327   (511548) от 26.08.2015
-
-COPS 2170: The Power of Law / Власть Закона: Золотая коллекция (2003) [Ru] (1.64.00) License Reality 4.13 [Remastered]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра является приквелом к игре Код доступа: Рай. Точное время действия не указывается, однако можно предположить, что до событий, описанных в игре «Код доступа „Рай“», где-то 5-10 лет. Сюжет начинается с того что Катрин, персонаж из первой части игры, только начинает свою карьеру в полиции Верхнего города. Кроме неё, игрок может взять в свою команду ещё 5 человек, (   Читать дальше...   )Тип издания: Лицензия (remastered)Разработчик: МиСТ ленд-ЮГЖанр: Strategy (Turn-based / Tactical) / RPG / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A9EB05B49EBE8F9973F9560AF7ABE62208FD24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562311   (511387) от 08.07.2022
-
-Disgaea 6: Defiance of Destiny (2022) [Multi] (8848380/dlc) License SKIDROW [Complete]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зед (Zed) - горделивый зомби, который застрял на самой нижней ступеньке лестницы Преисподней (Netherworld) вместе со своей сестрой Биеко (Bieko). Когда Бог Разрушения угрожает их (не)жизни, Зед (Zed) должен использовать свою уникальную способность Супер-Реинкарнации (Super Reincarnation), чтобы противостоять приближающейся угрозе. По ходу игры он будет объединяться (   Читать дальше...   )Тип издания: LicenseРазработчик: Nippon Ichi Software, Inc.Жанр: Ролевые игры, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Китайский, Японский и другиеЯзык интерфейса: Английский, Французский, Китайский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0124530D1D4A792D0EAEB95A7B7DBF3AD776DA76
 ```
 
 https://mybot314.ru/tekegram_catalog/

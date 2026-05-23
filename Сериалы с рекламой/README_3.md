@@ -1,3 +1,55 @@
+###  Публикация: 1468443   (1017020) от 08.05.2021
+
+Наследие Юпитера / Jupiter's Legacy (2021) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) Gears Media [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Первое поколение супергероев получило невероятные способности в 1930-х и с тех пор стало символом надежды и порядка. Спустя десятилетия их по-прежнему уважают и почитают, но вот их потомков, которые стали суперзвездами, больше волнует слава, нежели спасение мира.Производство: США / Di Bonaventura Pictures, Image Comics, NetflixЖанр: фантастика, фэнтези, боевик, драма, приключенияРежиссер: Шарлотта Брандстром, Крис Бирн, Марк ЙобстАктеры: Джош Дюамель, Бен Дэниелс, Лесли Бибб, Эндрю Хортон, Елена Кампурис, Мэтт Лантер, Майк Вэйд, Теника Дэвис, Анна Акана, Тайрон БенскинПеревод: Двуголосый профессиональный (Gears Media)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A701EA4B59A51F7E113444E71F5ACD8E193E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428812   (1015825) от 15.05.2021
+
+Детство Шелдона / Молодой Шелдон / Young Sheldon (2020)  WEBRip (сезон 4, серии 1-18 из 18) Baibako  [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+История о непростом детстве вундеркинда Шелдона Купера. Родители юного гения не разделяют увлечения сына наукой: его мать очень религиозна, а отец, бывший футбольный тренер, предпочитает проводить вечера в компании пива и телевизора. Со сверстниками тоже не ладится, ведь Шелдона куда больше детских игрушек интересует, где можно взять обогащённый уран для научных (   Читать дальше...   )Производство: США / Chuck Lorre Productions, Warner Bros. TelevisionЖанр: КомедияРежиссер: Джаффар Махмуд, Алекс Рейд, Крис Кох,Актеры: Иэн Армитедж, Зои Перри, Лэнс Барбер, Монтана Джордан, Реган Реворд, Джим Парсонс, Энни Поттс, Уоллес Шоун, Ryan Phuong, Уайатт МакКлюр, и др.Перевод: Многоголосый закадровый (Baibako)Продолжительность: ~00:18:00 серияРеклама: баннер, аудио вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE2EC43CF27C2E0B12328D778E14CD129FC36B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429208   (1015415) от 18.05.2021
 
 Селена / Selena: The Series (2020) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-9 из 9) OMSKBIRD [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB30D30AFB5A12F45C887EE1EBDA1D698C722082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339056   (1000914) от 14.01.2020
-
-Ради всего человечества / For All Mankind (2019) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-10 из 10) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это увлекательная альтернативная версия истории о космической гонке, в которой человечество все еще одержимо мечтами о покорении космоса. Представьте себе мир, в котором космическая гонка так и не закончилась. С первых минут нам демонстрируют альтернативную историю, в которой СССР первой высадилась на Луну, а американцы проиграли, но не сдаются. Главные герои драматического (   Читать дальше...   )Производство: США / Sony Pictures Television, Tall Ship ProductionsЖанр: фантастика, драмаРежиссер: Аллен Култер, Сет Гордон, Мира МенонАктеры: Юэль Киннаман, Майкл Дорман, Джоди Бальфур, Ренн Шмидт, Сара Джонс, Шантель Ван Сантен, Кристофер Бауэр, Артуро дель Пуэрто, Соня Уолгер, Крис Маршалл и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: Русские, английскиеПродолжительность: ~01:05:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE5A7129C6EC7B7515B80B636FE329232558530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354189   (988877) от 21.01.2020
-
-Ведьмак / The Witcher (2019) WEBRip [H.264/2160p] [4K] (сезон 1, серии 1-8 из 8) AMS [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все события в этом телесериале происходят в придуманном мире, в котором обитают всевозможные чудовищные существа, а также очень опасные монстры. Наш главный герой -- ведьмак, охотившийся за кровожадными оборотнями, представляющих угрозу для жизни людей. В раннем детстве он пережил мутацию, в результате чего получил лучшие боевые навыки: повышенную силу, быструю реакцию. (   Читать дальше...   )Производство: Польша, США / NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: ужасы, фэнтези, боевик, драма, детектив, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Алла, Аня Чалотра, Мими Дивени, Имон Фэррен, МайАнна Бёринг, Уилсон Раджу-Пухальте, Адам Леви, Джои Бэти, Ларс Миккельсен и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: русские, английскиеПродолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C76734D068E334E3D640875B048B5633697F5FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1756432   (39667) от 21.10.2024
-
-VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
-02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
-03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
-04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757017   (39306) от 25.10.2024
-
-VA - The Intrigue Of Jazz (2024) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luther Allison - I Owe It All To You
-002. Nubya Garcia - Clarity
-003. Dan Pugach & Nicole Zuraitis - Little Fears
-004. Myele Manzanza - Universal Language(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 12:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20A35DDCFA134330C549D6E8AD218182DC7579F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757207   (39174) от 26.10.2024
-
-VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halloween Jazz Vibes - Halloween Jazz [01:16]
-02. Maisy Kay - I Put a Spell On You [03:22]
-03. Trick or Treat!, Spooky Halloween, Halloween Sounds!, Spooky Halloween Sounds - Midnight Witch Swing [03:17]
-04. Prairie Ramblers - Ghost in the Graveyard [02:47](   Читать дальше...   )Жанр: JazzПродолжительность: 03:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6380355C0FBEA92CCAEF88DBBCDDDE0720D2E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758066   (38716) от 31.10.2024
 
 VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
@@ -93,7 +6,7 @@ VA - Blues for Autumn Time (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +35,7 @@ VA - Blues And Rock Blues Fusion (2024) [MP3|320 Kbps] <Blues, Rock Folk, Rock B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - Hot and Erotic (2024) [MP3|320 Kbps] <Jazz, Electro, Nu Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +93,7 @@ VA - Melancholic Rock Blues (2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - Watercolor Melodies (2024) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +151,7 @@ VA - Rocking The Blues (2024) [MP3|320 Kbps] <Blues, Rock, Folk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - Christmas Blues Santa's Secret (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - The Ultimate Jazz Collection (2024) [MP3|320 Kbps] <Jazz, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - Jazz Improvisations (2024) [MP3|320 Kbps] <Jazz, Instrumental, Improvisatio
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +267,7 @@ VA - Jazz Sexiest Ladies Top 100 (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +296,7 @@ JJ Cale - Compilation (1971-2019) [MP3|320 Kbps] <Blues, Country rock, Tulsa sou
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +325,7 @@ VA - Watercolor Jazz Inspiration (2024) [MP3|320 Kbps] <Jazz, Instrumental, Impr
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -441,7 +354,7 @@ VA - All About Blues Music (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -470,7 +383,7 @@ Gary Tunes, Eric Blues, Red Whiskey - Save My Soul (Compilation) (2025) [MP3|320
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -499,7 +412,7 @@ VA - The Eternal Blues  part 20 (2019) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -528,7 +441,7 @@ VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -557,7 +470,7 @@ Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +499,7 @@ Rag'n'Bone Man - Compilation (2012-2024) [MP3|320 Kbps] <Neo blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +528,7 @@ Gary Moore - Compilation (1973-2021) [MP3|320 Kbps] <Blues rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -644,7 +557,7 @@ Acker Bilk - Compilation (2025) [MP3|320 Kbps] <Jazz, Instrumental, Clarnet>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -673,7 +586,7 @@ Alexandra Ilieva - Sax Remix Compilation (2025) [MP3|320 Kbps] <Jazz, Instrument
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -702,7 +615,7 @@ Gary Moore - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -731,7 +644,7 @@ Tony Joe White - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Blues Rock)>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -745,6 +658,93 @@ Tony Joe White - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Blues Rock)>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC6BAF807587C838A01F0A01CBEB534C2543B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797548   (17973) от 17.05.2025
+
+VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Carlton, Robben Ford - Burnable [11:19]
+02. Michael Falkenstein - Cry! Until You're Feeling Good (Mayday in Space) [04:16]
+03. Tony Monaco - Acid Wash / The Tony Monaco Trio [07:08]
+04. George & the Highlanders - The Hawk [03:06](   Читать дальше...   )Жанр: Jazz, Blues, HammondПродолжительность: 08:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C746F2B500D50FE329D5C5B5E91E22695420D0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798163   (17578) от 21.05.2025
+
+VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Bonamassa - Going Down (Live) [06:13]
+002. Blues Company - Red Blood [04:43]
+003. Dire Straits - Calling Elvis [06:24]
+004. Marty Friedman - Undertow [04:22](   Читать дальше...   )Жанр: Blues, Slow Blues, InstrumentalПродолжительность: 07:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805984   (12032) от 09.07.2025
+
+VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Bell 100% Blues - Elevator to Heaven (9:00)
+02. D-Man, Manuel Grimaldi - Ain't Enough Whiskey (8:34)
+03. Billy Branch & The Sons of Blues, Carl Weathersby - As The Years Go Passing By (7:42)
+04. Gene Deer - Midnight Healing (7:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03127438A6AE4A13BF9EEE34A9308759B2BE57AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 978800   (961956) от 24.01.2016
+
+Право на наследие / Freeheld  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет картины расскажет реальную историю девушки по имени Стейси Эндри, работающей автомобильным механиком в Нью-Джерси, и ее подруги - полицейского детектива Лорел Хестер. Обе героини пытаются найти способ передать по наследованию полицейские льготы Хестер после того как выясняется, что она больна смертельным заболеванием...Производство: США, Double Feature Films, Endgame Entertainment, High Frequency Entertainment, Head Gear Films, Metrol TechnologyЖанр: драма, мелодрама, биографияРежиссер: Питер СоллеттАктеры: Джулианна Мур, Эллен Пейдж, Майкл Шеннон, Стив Карелл, Джош Чарльз, Люк Граймс, Деннис Буцикарис, Мэри Бердсонг, Том МакГоуэн, Гэбриел Луна, Скипп Саддат, Келли ДэдмонПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F68FC03D153053B579AEB6ECF5BEC7651E75D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979184   (960686) от 25.01.2016
+
+Затмение / Regression (2015) BDRip [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В ходе расследования дела Анджелы Грей детектив Брюс Киннер вынужден обратиться к психологу для выявления ее подавленных воспоминаний. Сеанс регрессивного гипноза открывает ужасающие факты — по ночам с согласия отца над девушкой проводились сатанинские ритуалы. Желая защитить девушку от преследования зловещего тайного общества, детектив оказывается втянут в пугающий (   Читать дальше...   )Производство: Испания, Канада / First Generation Films, Himenptero, Mod Producciones, Telecinco Cinema, Telefnica StudiosЖанр: Ужасы, Триллер, ДетективРежиссер: Алехандро АменабарАктеры: Эмма Уотсон, Итан Хоук, Дэвид Тьюлис, Девон Бостик, Аарон Эшмор, Дейл Дикки, Давид Денсик, Кристиан Бруун, Адам Батчер, Аарон АбрамсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34341F577819E86201F61A70B6ECB69E6CC1D34E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979372   (959592) от 26.01.2016
+
+Макбет / Macbeth  (2015) BDRemux [H.264/1080p] [EN / EN, Ge Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Холодные поля Шотландии, военный лагерь, всегда готовый переместиться в другое место. Макбет всегда на войне, его жена, недавно потерявшая ребенка, боится потерять еще и мужа. Чтобы удержать его рядом, она начинает свой проект по устранению конкурентов в борьбе за королевскую корону.Производство: Великобритания, Франция, США, Anton Capital Entertainment (ACE), Creative Scotland, DMC Film, Film 4, See-Saw Films, Studio CanalЖанр: драма, военныйРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Пэдди Консидайн, Шон Харрис, Джек Рейнор, Элизабет Дебики, Дэвид Тьюлис, Росс Андерсон, Дэвид Хейман, Морис Роевз, Хилтон МакРэй, Сейлан БакстерПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, немецкийПродолжительность: 01:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DB0C203178511A33742DCD6CBB3D884261518E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 855080   (957333) от 05.01.2015
 
 Девять жизней Рождества / The Nine Lives of Christmas (2014) HDTVRip [H.264/720p-LQ] [EN]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -592,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE07AACBB4B86E0A306C80BC681447E17396C71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093410   (935360) от 14.01.2017
-
-Королева Катве / Queen of Katwe  (2016) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая девушка из Уганды тренируется, чтобы стать чемпионкой мира по шахматам.Производство: США, ЮАРЖанр: драма, биография, спортРежиссер: Мира НаирАктеры: Лупита Нионго, Дэвид Ойелоуо, Нтаре Мвине, Рассел Савадье, Мадина Налванга, Морис Кирйа, Чарити Роуз Пимер, Тэрин Кйазе, Эстер Табандеке, Питер ОдекеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83EE055E79ABB642414D8A7F25EAF60D826479C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985921   (933830) от 12.02.2016
-
-Крид: Наследие Рокки / Creed  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933830.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре внимания сын Аполло Крида - первого серьезного соперника Рокки Бальбоа на ринге, впоследствии ставшего лучшим другом героя. Талант отца в какой-то момент проявляется и в Криде-младшем, и юноша отправляется на поиски наставника, коим для него в итоге становится постаревший Рокки, тоже не слишком жаждущий возвращаться к старым делам. Даже в качестве тренера.Производство: США,	Chartoff-Winkler Productions, Metro-Goldwyn-Mayer, New Line Cinema, Warner Bros. PicturesЖанр: драма, спортРежиссер: Райан КуглерАктеры: Майкл Б. Джордан, Сильвестр Сталлоне, Тесса Томпсон, Филисия Рашад, Андре Уорд, Тони Белью, Ричи Костер, Джейкоб ’Стич’ Дюран, Грэм МакТавиш,  Габриэль РосадоПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, испанский, португальскийПродолжительность: 02:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7ABF6687CC29FAD19FA946713AC92F493B8CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093468   (933144) от 15.01.2017
-
-Операция «Лавина» / Operation Avalanche  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1967 год, самый разгар Холодной войны. Чтобы предотвратить возможный саботаж миссии «Аполлон» советскими шпионами, ЦРУ внедряет в NASA двух молодых агентов под прикрытием режиссеров-документалистов, которые должны запечатлеть подготовку к первой пилотируемой высадке на Луну. Кто бы мог подумать, что результат операции окажется куда более шокирующим, чем банальное (   Читать дальше...   )Производство: СШАЖанр: триллерРежиссер: Мэтт ДжонсонАктеры: Мэтт Джонсон,  Джаред Рааб,  Криста Мэдисон, Мадлен Симс-Фьюер, Джо Томас, Том Болтон, Шэрон Белль,  Джо АнастасиоПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C392812C43DF4D418CD7D9407148D30089C0CE0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

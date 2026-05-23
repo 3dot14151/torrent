@@ -1,3 +1,82 @@
+###  Публикация: 1544418   (621876) от 15.04.2022
+
+Levelup.Digital, Daniel Thiger | Plaster Wall with Parameter-driven Bullet Holes (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как работает эксперт Substance Designer Даниэль в этом полностью озвученном пошаговом уроке, который он сделал для Levelup.Digital. В данном уроке он создаст отштукатуренную стену с параметрическими отверстиями от пуль. Узнайте как работать с клетками, чтобы создавать разные типы эффекта повреждений и как использовать параметры для управления уровнем повреждений. (   Читать дальше...   )Производство: Levelup.DigitalЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DF1EF178C7D71FF9AC10F96DF7482F1DD42A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544410   (621747) от 15.04.2022
+
+Shane Hurlbut | Cinematography Starter Kit (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Искать качественные обучающие материалы в сети - задание не из легких. Данный курс от Шейна Хёрлбата, члена Американского общества кинооператоров, поможет начинающим создателям фильмов на их пути визуального повествования. Курс включает следующие темы - управление и лидерство, ответственность автора фильма, упорство и настойчивость в работе, начало карьеры, создание (   Читать дальше...   )Жанр: Курс для начинающих операторовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83CD4A4946B96D193C0E12EE85CF90B41D56F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544606   (619783) от 16.04.2022
+
+Udemy, Nexttut, Alejandro Aguilar | Making a Fantasy Axe in Blender 3.1 and Substance Painter (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Научитесь делать оружие для игр и фильмов. Смоделируйте и затекстурируйте фантазийный топор в Blender и Substance Painter.
+Мы начнем с блокинга, с использованием базовых инструментов моделирования, чтобы получить представление о том, как мы хотим, чтобы топор выглядел. Затем мы с помощью скульптинга создадим сетку с высокой детализацией. Затем мы сделаем ретопологию (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F751CC2DB5FCB541901937581D940065CE961E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632181   (617202) от 09.05.2023
 
 lectoroom, Елена Базанова | Этюд с гортензией акварелью (2023) WEB-DL [RU]
@@ -6,7 +85,7 @@ lectoroom, Елена Базанова | Этюд с гортензией акв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +197,7 @@ Scott Deardorff | Креативные техники художественно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +253,7 @@ Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -200,7 +279,7 @@ Mzed, Seth Worley | Writing 101 w/Seth Worley (2015) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +307,7 @@ CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -255,7 +334,7 @@ CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -281,7 +360,7 @@ Rohan Dalvi | Patterns and textures in Houdini (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +386,7 @@ Masterclass, Margaret Atwood | Margaret Atwood Teaches Creative Writing (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +412,7 @@ The Art of Aaron Blaise, Lyndon Ruddy | The Art of the Storyboard with Lyndon Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +438,7 @@ The Gnomon Workshop, Scott Robertson | How to Render Matte Surfaces Vol. 1-3 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +464,7 @@ Yiihuu, Han Yang | Creating A Sci-fi Short Film - The Lander (2018) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +491,7 @@ The Gnomon Workshop, Scott Robertson | Basic Perspective Form Drawing (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +544,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics II: Generative Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +571,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics I: Introduction to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +597,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +624,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +651,7 @@ ArtStation, Amir Kabiri | 8 Facade Material: Building Material + Tutorials (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,7 +678,7 @@ MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,85 +690,6 @@ MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0744F060B70C794CC061C992E16B380592041CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547172   (603300) от 27.04.2022
-
-SideFX, Delano Athias | Character Animation in Houdini (2020) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603300.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой презентации мы рассмотрим инструменты анимации в Houdini. Вы узнаете, как настроить интерполяцию f-кривой для блокинга методом от позы к позе, как отполировать анимацию, а также как быстро и удобно имитировать съемку с рук с помощью Motion FX.
-У Делано Атиаса более чем 15-летний опыт, он работал аниматором и TD по персонажам в различных проектах, от фильмов-блокбастеров (   Читать дальше...   )Производство: SideFXЖанр: Анимация персонажейЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249A17BD4698F2BB27B938332C230E51EC270122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547765   (602384) от 29.04.2022
-
-3DMotive, Emiel Sleegers | Terrain In World Machine. Volume 1-3 (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602384.jpg" />
-</div>
-
-
-###  Подробнее
-
-рамках этого курса Emiel Sleegers разъяснит, как моделировать ландшафт, используя Mudbox совместно с World Machine. Сначала он создает основную плоскость в Maya, после этого формирует ландшафт в Mudbox. Затем получившееся экспортируется в world machine, где к ландшафту добавляются дополнительные детали, а в photoshop генерируются текстуры, которые планируется использовать. (   Читать дальше...   )Производство: 3DMotiveЖанр: Моделирование ландшафтаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F5B62D2E3378036DB189CA74BD38AE190A4FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547720   (602373) от 29.04.2022
-
-CGcircuit, Steven Knipping​ | Applied Houdini Rigids I version 2.0 (2019) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Applied Houdini ("практический Houdini", "Houdini в практическом использовании") - это серия видеоуроков, заточенных под использование Houdini в продакшне, за авторством Стивена Ниппинга, старшего technical-директора по Rigid Body/FX в ILM (проекты: Звёздные войны: Скайуокер. Восход, Звёздные войны: Последние джедаи, Аквамен, Изгой-один. Звёздные (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BA7B395307D25171ED9BB7A6E301C17673FF60
 ```
 
 https://mybot314.ru/tekegram_catalog/

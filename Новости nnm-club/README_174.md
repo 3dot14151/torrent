@@ -1,3 +1,186 @@
+###  Публикация: 1569433   (450831) от 13.08.2022
+
+Дневная смена / Day Shift (2022) WEB-DL [H.265/1080p] [HDR, 10-bit] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История трудолюбивого отца, который пытается обеспечить лучшую жизнь 8-летней дочери. Вот только его дневная работа уборщиком бассейнов — лишь прикрытие. Он зарабатывает, выслеживая и убивая вампиров.Производство: США, 87Eleven Entertainment, Impossible Dream EntertainmentЖанр: ужасы, боевик, комедияРежиссер: Дж.Дж. ПерриАктеры: Джейми Фокс, Дэйв Франко, Наташа Лю Бордиццо, Миган Гуд, Карла Соуса, Стив Хоуи, Скотт Эдкинс, Оливер Мазуччи, Снуп Догг, Эрик ЛанжПеревод: Многоголосый профессиональный (NewComers)Субтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full, SDH), мультиязычныеПродолжительность: 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246E63CF2166C344AC5A153282518C944D639F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 827137   (450797) от 01.10.2014
+
+Autodesk AutoCAD 2015 for Mac [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов. Пришло время проектировать (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 30 сентября 2014Разработчик: Autodesk Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A581CD2BBD0A18F3B8252394296BC00E4099B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 826236   (450794) от 01.10.2014
+
+Profileschool | Adobe Premiere Pro.  Базовый уровень (2014) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В рамках онлайн курса вы познакомитесь с программой для видео-монтажа Adobe Premiere Pro CC 2014, которая удачно сочетает легкость изучения с мощностью инструментов и гибкостью системы. Преимущества курса в том, что он базируется на программе обучения, успешно проверенной на практике в течение последних трех лет и в то же время учитывающей все самые "свежие" (   Читать дальше...   )Жанр: Adobe Premiere ProПродолжительность: 10 видео по ~02:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2515C4D19E5BEE256FECCED7D8FD829E8FDF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408988   (450756) от 14.09.2020
+
+V-Ray 5.00.05 for 3ds Max 2016-2021 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+V-Ray — мощный инструмент визуализации, нацеленный в первую очередь на фото-реалистичность. Имеет собственные камеры со схожими параметрами как и у настоящих фото-камер. Имеет собственные источники освещения и шейдеры материалов.
+Является одним из основных плагинов для архитектурной визуализации. Под V-ray "заточено" множество готовых 3d моделей и материалов, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6F5C0ED9BB37AC3786B7094E3788EFFB088E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398342   (450751) от 14.09.2020
+
+Призраки войны / Ghosts of War (2020) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Последние месяцы Второй мировой войны. Французская провинция. Пятеро опытных американских солдат получают приказ охранять замок, в котором еще недавно располагалось нацистское верховное командование. Эта неожиданная передышка перерастает в безумие, когда они сталкиваются со сверхъестественными силами, гораздо более страшными, чем то, что творилось на поле боя.Производство: Великобритания / Miscellaneous EntertainmentЖанр: Ужасы, триллер, военныйРежиссер: Эрик БрессАктеры: Брентон Туэйтс, Тео Росси, Кайл Галлнер, Скайлар Эстин, Алан Ричсон, Билли Зейн, Шон Тоуб, Мэттью Риз, Лайла Банки, Нэйтан КуперПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00561BBAE9445F74A5DE1458241EA9F05652CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943100   (450663) от 02.10.2015
+
+Microsoft Office 2016 Install v4.2 by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Установщик Office 2016 позволяющий выбрать необходимые приложения и выполнить активацию.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B37001AF7ABCCD59DAF78E1FAF8B0007D7A993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942828   (450657) от 02.10.2015
+
+Скандальная леди У / The Scandalous Lady W (2015) HDTVRip [H.264/720p-LQ] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Драма про скандальную англичанку Сеймур Дороти Флеминг, которая потрясла общество XVIII века своей распущенностью, рекордным количеством измен мужу и громким бракоразводным процессом.Производство: ВеликобританияЖанр: ДрамаРежиссер: Шери ФоксонАктеры: Натали Дормер, Анейрин Барнард, Шон Эванс, Дэвид Колдер, Крэйг Паркинсон, Оливер Крис, Питер Салливан, Джессика Ганнинг, Элизабет Райдер, Ричард МакКейбПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: Project Web Money / notabenoidЯзык субтитров: АнглийскийПродолжительность: 01:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0313859E254F7DB40583AAE78D7FF8F90969E1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942829   (450648) от 02.10.2015
 
 Бумажные города / Paper Towns (2015) WEB-DL [H.264/1080p-LQ] [Line]
@@ -6,7 +189,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +215,7 @@ Microsoft Office 2016 Professional Plus VL 16.0.4266.1001 (x86/x64) RePack by D!
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_450530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +269,7 @@ Facebook начнет проверять фото и видео на досто�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_450454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +321,7 @@ Microsoft Windows Server 2016 Release Version 1607 build 14393.0 RS1 (Evaluation
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +347,7 @@ Dj Ikonnikov - E.x.c Version Vol.01-30 (2013-2016) [MP3|320 кб/с]<Spacesynth,
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +376,7 @@ Next Launcher 3D 3.7.3.2 [Ru/Multi] - Лончер
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -247,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -273,7 +456,7 @@ Tekken Tag Tournament 2 [PS3] [PAL] [RUS] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_449112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +535,7 @@ Registry First Aid Platinum 10.1.0 build 2297 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +639,7 @@ Malwarebytes Anti-Malware Corporate 1.80.0.1010 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,193 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D9D0FF7B22AB7680F1D204EBD67C6C732ED15B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942639   (448429) от 03.10.2015
-
-KMSAuto Net 2015 1.4.0 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448429.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Net - автоматический KMS-активатор для операционных систем
-Windows VL редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012,
-2012 R2 а также Office 2010, 2013, 2016.Язык интерфейса: Русский / Украинский / Английский / Французский / Испанский / Вьетнамский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4173EC69C058F3E283D5D69B57CF59A874CC69F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705847   (448114) от 30.09.2013
-
-Рай: Надежда / Paradies: Hoffnung (2013) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Её мать уезжает в Кению в поисках мальчиков, готовых предоставить ей любовные услуги. Её тетя — католик, с головой поглощённая проповедованием Евангелия. А 13-летняя Мелани проводит свои каникулы в диетическом лагере в Австрийских горах. В перерывах между физическими упражнениями и консультациями по вопросам питания, ночными боями подушками и тайными соревнованиями (   Читать дальше...   )Производство: Австрия, Франция, ГерманияЖанр: ДрамаРежиссер: Ульрих ЗайдльАктеры: Мелани Ленц, Верена Лебауэр, Йозеф Лоренц, Михаэль Томас, Вивиана Барч, Райнер Луттенбергер, Ханнес А. Пендль, Йоханна ШмидПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE1FF66C0F06E38CA7BE0C457B5CB773BAA7926A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496956   (448113) от 30.09.2013
-
-Мульт личности. Сезоны №1-4 + Мультконцерты  (2009-2013) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_448113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: ~ 00:01:23Жанр: ЮморПерсонажи: Владимир Путин, Дмитрий МедведевФормат: DivXПродолжительность: ~ 00:29:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241441   (447935) от 17.09.2018
-
-ReCore (2016) [Ru] (build 911) Repack Other s [Definitive Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте творение легендарного Кэйдзи Инафунэ и разработчиков Metroid Prime — экшен-приключение ReCore: Definitive Edition, созданное специально для нового поколения игроков. Вы — Джул Адамс, одна из последних уцелевших людей на загадочной и опасной планете Дальний Эдем, управляемой враждебными роботами, которые намерены вас уничтожить. Чтобы выжить, вам необходимо (   Читать дальше...   )Тип издания: RepackРазработчик: Comcept Inc., Armature Studio LLCЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B3E0F4B16F465303B976E7DA5036DDC6FFC84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088027   (447674) от 06.09.2017
-
-Force of Nature (2016) [Ru/Multi] (1.1.13) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Force of Nature – это игра в жанре Sandbox, которая сочетает в себе элементы Action, Adventure, RPG, Strategy и Management. Игроку предстоит исследовать более 10 локаций, каждая из которых имеет собственную уникальную флору и фауну. Вы сможете добывать и накапливать ресурсы, создавать оружия и одежду, строить различные тематические столы и лаборатории, воздвигать (   Читать дальше...   )Тип издания: RepackРазработчик: A.Y.stdЖанр: Strategy, RPG, Adventure (Top-down)Язык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9FCE6B119FEF2E14F5FFF388B60475F1CADB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162378   (447672) от 06.09.2017
-
-Телохранитель киллера / The Hitman's Bodyguard (2017) WEB-DLRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — телохранитель мирового уровня. Его новая работа — охранять киллера, которого все мечтают убить. Он и сам с удовольствием прикончил бы этого гада. Но работа есть работа: смертельные враги в прошлом, они вынуждены объединиться в настоящем, чтобы выжить. Однако их методы настолько различны, а принципы противоположны, что вопрос выживания — под большим вопросом.Производство: США, Китай, Болгария, НидерландыЖанр: Боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдс, Сэмюэл Л. Джексон, Элоди Юнг, Сальма Хайек, Гэри Олдман, Жоаки де Алмейда, Юрий Колокольников, Тине Жустра, Сэм Хэзелдайн, Ричард Э. Грант ...Перевод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: Английские, испанскиеПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9332A08AA3F3362587154945080D45E1083F164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437475   (447454) от 26.09.2012
-
-Manfred Mann's Earth Band - 40th Anniversary (1972-2011) 21CD Box Set, ремастер /2011, Creature Music Ltd / [FLAC|image+cue]<Progressive Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martha's Madman (10:22)
-02. Dancing In The Dark (8:38)
-03. For You (4:42)
-04. Father Of Day, Father Of Night (8:19)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 15:34:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,109 @@
+###  Публикация: 1012111   (795637) от 29.04.2016
+
+Гордей Щеглов | Отнятый крест (2013) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Издание посвящено памяти псаломщика Федора Юзефовина, убитого в 1863 году польскими повстанцами. В нем подробно описаны обстоятельства его гибели, а также история о том, как памятный крест, поставленный Юзефовину в 1911 году, во время польской оккупации Западной Белоруссии был демонтирован и установлен на могиле повстанцев.
+
+Издание рассчитано на широкий круг читателей, (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8730B57340BC99B4DB25C3149D49569149F737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200668   (795590) от 21.01.2018
+
+В.М. Лурье | Русское православие между Киевом и Москвой [2-е издание, дополненное] (2010) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге В.М.Лурье "Русское православие между Киевом и Москвой" представлены основные тенденции развития двух русских православных традиций, западной и восточной, от начала XV до середины XX века. Особое внимание уделяется развитию церковно-политической идеологии и канонического сознания, а также самим историческим обстоятельствам, в которых то и другое (   Читать дальше...   )Жанр: Монография, историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA164F1974EC5471F4AC1027B80F8AD1B31FEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509030   (795558) от 11.11.2021
+
+Протоиерей Иоанн Гончаров | Православие сегодня: Записки приходского священника (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вниманию читателя предлагается новая книга известного священника Самарской епархии протоиерея Иоанна Гончарова, которого за дар проповедничества называют Самарским златоустом. На страницах книги отец Иоанн размышляет над тем, что происходит с человеком в наши дни, какова сегодня церковная жизнь, как противостоять искушениям современного мира, как жить в простоте (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C680AEE0547881A88AD2C15D5DEFE54B50050FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011692   (795510) от 29.04.2016
+
+иеромонах Сергий (Ситиков) | Тайна Царствия Божия или забытый путь истинного богопознания (о внутреннем христианстве) [Из библиотеки старца Иоанна Журавского] (2009) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Тайна Царствия Божия» - вдохновенное песнопение благодарного сердца о великом даре Божием - Иисусовой молитве. Собранная из святоотеческих высказываний об «умном делании» и подкрепленная большим опытом служения, рукопись этой книги была поистине выстрадана иеромонахом Сергием Ситиковым (1889-1951). Промыслом Божиим она оказалась у старца, отца Иоанна Журавского (   Читать дальше...   )Жанр: Духовная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFE8AE16BFC1AE1319C6DF3D436203A48BEE64F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274173   (795069) от 05.01.2019
 
 В.Н. Ерохин | Английское католическое сообщество в XVI — первой половине XVII века в современной британской историографии (2012) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +352,7 @@ A. Стульцев | Учебный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,114 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:760E1C1EC01AA5DE7D7DF43562F9634365CE97E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201376   (792222) от 25.01.2018
-
-Свящ. Роман Бартницкий | Синоптические Евангелия. История возникновения и толкование (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792222.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге прослеживается история исследований, посвященных Евангелиям от Матфея, Марка и Луки, начиная с их анализа раннехристианскими писателями и заканчивая документом Папской библейской комиссии "Толкование Библии в Церкви", а также новейшими методами и способами изучения Библии.
-
-Издание дополнено разделом, посвященным последним исследованиям исторической (   Читать дальше...   )Жанр: История религии, теология, библеистикаПеревод: с польск. М. Касьяненко, С. Карпенка, А. ПавловойФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E2F8D5B97D9617D6FE4ED2F441BABFCE7F4A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510037   (792148) от 15.11.2021
-
-День (изд.) | Молитвы в душевных скорбях (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание содержит молитвы в душевных скорбях ко Господу, Пресвятой Богородице, Святым Угодникам Божиим.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF81D0C5EE80993BDA09F364192BA4AF3486C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510021   (791535) от 16.11.2021
-
-Типография Киево-Печерской Лавры (изд.) | Акафист святому апостолу Андрею Первозванному (2007) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святой апостол Андрей Первозванный, один из двенадцати апостолов, избранных Самим Господом для евангельской проповеди. Родился в городе Вифсаиде в Галилее, впоследствии жил вместе со своим братом Симоном (Петром) в Капернауме, на берегу Геннисаретского озера, доставляя себе средства к существованию ловлей рыбы.
-
-С юных лет апостол Андрей отличался молитвенной устремлённостью (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26122F2898DCC085C14133C26259F11F7E945E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202120   (791014) от 27.01.2018
-
-Томас Мертон | Семена созерцания (2005) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую вы держит в руках, примечательна тем, что только ее одну Томас Мертон писал в два приема. «Семена созерцания» были опубликованы в 1949году, а «Новые семена созерцания» - в 1962 – м. Первоначальный вариант был хорош и популярен. Его охотно переиздавали и переводили на разные языки. Однако сам Мертон был им недоволен. Он считал, что текст получился холодным, (   Читать дальше...   )Жанр: Духовная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881FB9F7E846D79ED20FEFF6C114243A899CD347
 ```
 
 https://mybot314.ru/tekegram_catalog/

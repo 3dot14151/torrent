@@ -1,3 +1,82 @@
+###  Публикация: 1662684   (187765) от 18.09.2023
+
+Ирина Шпакова | Подсолнухи (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+По мотивам художника Антона Горцевич.
+Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 00:34:45Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548E47C3B4A1F4F34553ED9E00D351169E3B41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662701   (187759) от 18.09.2023
+
+Ирина Шпакова | Грейпфрут (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 00:29:53Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2358EFEDEC48680B43FA4AAC3A4A9723E1E3BE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662688   (187754) от 18.09.2023
+
+Ирина Шпакова | Монастырь (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Данный мастер — класс по живописи рассчитан на начинающих, людей без каких либо художественных навыков.Жанр: РисованиеЯзык озвучки: РусскийПродолжительность: 00:45:49Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACEA155F91A83B13B7A56ECD480352B4049C377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662703   (187721) от 18.09.2023
 
 Designlectures, Ольга Косырева | Коллекционный дизайн: уникальность и идейность против тиражности и функциональности (2021) WEB-DL [AD] [RU]
@@ -6,7 +85,7 @@ Designlectures, Ольга Косырева | Коллекционный диз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +139,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -89,7 +168,7 @@ Domestika, Ruth Wilshaw | Fantasy Landscapes with Watercolor & Gouache (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -116,7 +195,7 @@ Skillbox, Роберт Кубус | 3D-моделирование в ZBrush с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -145,7 +224,7 @@ Wingfox, Milad Kambari | Hard Surface Modeling Foundation Tutorial (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -171,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -197,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -279,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -305,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -331,7 +410,7 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -357,7 +436,7 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -384,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -413,7 +492,7 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +520,7 @@ Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Pain
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -468,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -497,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -523,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -549,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,87 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1823F2FAEB1B2B3CB3A2460C347D0A933454823D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663210   (187117) от 20.09.2023
-
-Z-art school, Татьяна Зубова | Горная река (2020) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187117.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мастер-классе вы напишете пейзаж с рекой, проходящей сквозь мост, перекинутый над ней, и уходящей в горы. Вы научитесь работать с архитектурой, подбирать цвет зданий, прописывать горы на заднем плане, а также писать поверхность воды.Производство: Z-art schoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:18:28Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FDEACB98F7EBB6A7D2A57E9F242C4527D3106D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663239   (187042) от 20.09.2023
-
-Gumroad, Florian Bard | Houdini All combined Lightning Setups (2023) WEB-DL [AD] [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_187042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет ребята ! Я Флориан БАРД, старший внештатный FX TD. Я потратил некоторое время на улучшение настроек освещения, чтобы сделать его более эффективным в производстве. В целом я использовал ту же технику, когда работал над эффектами освещения в The Flash (с Weta Digital),
-
-Настройка позволяет контролировать все, что вам нужно: движение, возраст, скорость, шум и (   Читать дальше...   )Производство: GumroadЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 03:38:57Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391C2CD83313BCCF334BFAF459F0FD94B1F7DB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663235   (186999) от 20.09.2023
-
-Udemy, Tri Dimension Education | Complete Houdini FX 19.5 Course Beginner To Advanced (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186999.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Вы очарованы миром визуальных эффектов и компьютерных изображений? Погрузитесь в захватывающий мир Гудини с помощью нашего курса для начинающих!
-- В этом подробном вступлении мы раскроем тайну основ Houdini, мощного программного обеспечения для 3D-анимации и визуальных эффектов. Являетесь ли вы начинающим аниматором, разработчиком игр или просто интересуетесь волшебством (   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 08:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4BA3270FA92E6858969AB94CAAAC2CB0259DA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

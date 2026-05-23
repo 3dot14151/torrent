@@ -1,3 +1,107 @@
+###  Публикация: 1735513   (42775) от 22.09.2024
+
+VTuber Nanda ga Haishin Kiriwasuretara Densetsu ni Natteta / Легенда о витюбере: Как я завирусилась, забыв выключить стрим [2024, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Двадцатилетняя бывшая офисная служащая Юки Танака теперь работает среди своих кумиров – стримеров Live-On, одной из крупнейших витюберских компаний Японии. Изображая прекрасную и безупречно вежливую Аваюки Кокоронэ, она производит только самый изысканный великосветский контент. Который, правда, не приносит ни подписчиков, ни денег. Как-то вечером после стрима она (   Читать дальше...   )Жанр: комедия.Режиссер: Асаока ТакуяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DEBFA2189890EDCA1DE8794DB173693CD23797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734054   (42700) от 23.09.2024
+
+Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru. / Невероятный новичок средних лет, прошедший тренировки на грани смерти [2024, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Oбщeизвecтнo, чтo лyчшe вceгo cтaнoвитьcя aвaнтюpиcтoм, кoгдa вы мoлoды, и чeм paньшe, тeм лyчшe, пoтoмy чтo ypoвeнь мaгичecкoй cилы лyчшe вceгo pacтёт в юнocти. Oднaкo Pик Глaдиaтop peшил cтaть aвaнтюpиcтoм, кoгдa eмy былo yжe зa тpидцaть, и, чтo yдивитeльнo, oкaзaлcя нa ypoвнe aвaнтюpиcтoв S-paнгa, caмoгo выcoкoгo в миpe. Ha caмoм дeлe Pик пpoжил yдивитeльнyю жизнь (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Катагай СинЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45707C4EA8D7FBD6F71D6F1F6BFCB582B1EF0FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737806   (42679) от 23.09.2024
+
+Mayonaka Punch | Полуночный удар [2024, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Масаки трудилась в ньютуб-трио "Сёстры на хайпе" со школы, пока её не выгнали за лень, плохой контент и грубость в эфире. Потеряв аудиторию и напарниц, Масаки встречает настоящую вампиршу и решает вместе с ней собрать миллион подписчиков в обмен на свою жизнь.Производство: Студия P.A. Works / ピーエーワークスЖанр: комедияРежиссер: Хомма СюПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2649EFBC4745606BD30B66502CEAC13153244719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735782   (42599) от 24.09.2024
+
+Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evil Lieutenant Used to Be Archenemies | Девушка-волшебница и злой офицер [2024, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мира — правая рука злого короля и «мозг» организации злодеев, которая уничтожает всё на своем пути. Однажды девушка-волшебница Бьякуя Мимори решает покончить со всеми злодеями, но Мира влюбляется в свою противницу с первого взгляда.Производство: студия Bones / ボンズЖанр: романтика, фэнтезиРежиссер: Охаси АкиёПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; MultiSubПродолжительность: 12 эп. по 13 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532DE0FC199E30A53D6A73C100A630C90C2CF230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666082   (42583) от 24.09.2024
 
 Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
@@ -6,7 +110,7 @@ Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Koi wa Futago de Warikirenai / Love Is Indivisible by Twins / Любовь бл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Oshi no Ko 2 | Звёздное дитя [ТВ-2] [2024, TV, 13 из 13] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,110 +671,6 @@ Ani ni Tsukeru Kusuri wa Nai! 5 | В случае с братом медицин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2C66B2D4B289A7C80F24280B45FD53B5AFDAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757158   (39275) от 25.10.2024
-
-Dead Mount Death Play (2023) | Смертельная игра мёртвой горы [ТВ-2] [2023, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда легендарный герой близок к победе над некромантом, известным как Бог Трупов, события принимают неожиданный оборот с последним гамбитом темного колдуна — магией реинкарнации. Эта последняя отчаянная попытка застает храброго бойца врасплох, и теперь он мальчик по имени Полька Шинояма в совершенно новом мире! Противостояние добра и зла только что стало эпическим. (   Читать дальше...   )Производство: Студия Geek ToysЖанр: приключения, фэнтезиРежиссер: Сацума ЁсихироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59C55B607BBA71F30ECAE6D5E0650A2FB38E5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757128   (39271) от 25.10.2024
-
-Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда легендарный герой близок к победе над некромантом, известным как Бог Трупов, события принимают неожиданный оборот с последним гамбитом темного колдуна — магией реинкарнации. Эта последняя отчаянная попытка застает храброго бойца врасплох, и теперь он мальчик по имени Полька Шинояма в совершенно новом мире! Противостояние добра и зла только что стало эпическим. (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, комедияРежиссер: Исихира СиндзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA476CE9C5C5F6ABA379597BDB876A0E9BCC80D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754016   (39004) от 28.10.2024
-
-Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханако после школы 2 [2024, TV, 4] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение аниме: Ханако после школыПроизводство: студия Lerche / ラルケЖанр: комедияРежиссер: Китамура МасакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 4 эп. по 10 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B087B04FE9B24A9CB8BF965B46C00EAC599B4254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758265   (38587) от 01.11.2024
-
-Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое воплощение богини: Токийское откровение [1995, OVA, 2 из 2] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подростка Кобаяши Акито в детстве часто били, поэтому он вырос злым и мстительным, увлекся черной магией и в конце концов связался с нехорошими демонами, желающими уничтожить человечество. Из всех людей по нраву ему только друг детства - Сома Коджиро, по совместительству являющийся еще и последним воплощением божественного хранителя земель японских Тайры Масакадо, (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ямасаки ОсамуПеревод: RG GenshikenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C95EB4DEA001B7FB974BE5B87084E52FFC21E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

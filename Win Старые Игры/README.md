@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1870416   (1069135) от 
+
+True Crime: New York City (2006) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Нью-Йорк, где вас ждет почти безграничная власть над улицами большого яблока. Ведь вы — Маркус Рид, бывший преступник, а ныне полицейский, использующий свои полномочия, чтобы найти и уничтожить убийцу своего наставника, а заодно очистить от отбросов общества кварталы Нью-Йорка от Гарлема до Чайнатауна. Тайное расследование заведет Маркуса в паутину (   Читать дальше...   )Тип издания: LicenseРазработчик: Luxoflux Corp.Жанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B430B837D40A45687AB35C561A1ED6DC98F4579A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870418   (1069133) от 
+
+True Crime: Dilogy (2004-2006) [En] (1.0/1.0) License
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Нью-Йорк, где вас ждет почти безграничная власть над улицами большого яблока. Ведь вы - Маркус Рид, бывший преступник, а ныне полицейский, использующий свои полномочия, чтобы найти и уничтожить убийцу своего наставника, а заодно очистить от отбросов общества кварталы Нью-Йорка от Гарлема до Чайнатауна.Тип издания: LicenseРазработчик: Luxoflux Corp.Жанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A991D0BF7F54E4BB4FA46B58F86A25885AB121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869488   (1068407) от 06.05.2026
 
 Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
@@ -7,7 +59,7 @@ Desperados 2: Cooper's Revenge (2006) [Ru] (1.1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Mob Enforcer / Я, гангстер (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Just Cause (2006) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +137,7 @@ American McGee presents Bad Day L.A. / Bad Day L.A. (2006) [Ru/En] (1.1.0) Repac
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +163,7 @@ FlatOut (2004) [Multi] (1.01 Build 14940243) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ FlatOut 2 (2006) [Multi] (1.2) Scene TiNYiSO [Enhanced Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ FlatOut: Ultimate Carnage (2008) [Multi] (1.0) Scene TiNYiSO [Collector's Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Grand Theft Auto: Vice City (2003) [Multi] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Gangland: Trouble in Paradise (2004) [Ru] (1.4) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Scarface: The World Is Yours (2006) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Turok 2: Seeds of Evil (1998) [Multi] (3.0.1336) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Dune 2000 (1998) [Ru/En] (1.6.7) Repack dixen18 [GruntMods Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +371,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +397,7 @@ L.A. Street Racing / Overspeed: High Performance Street Racing (2007) [Ru] (1.4.
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Let Them Trade (2025) [Ru/Multi] (1.1.7.9) Repack Let'sРlay
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +449,7 @@ BioShock (2007) [Ru] (Build 11242) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +475,7 @@ Max Payne 2: The Fall of Max Payne (2003) [En] (1.01) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -449,7 +501,7 @@ Dune 2000: Long Live the Fighters! (1998) [Ru/En] (1.06) Repack 1nomok
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -475,7 +527,7 @@ Test Drive Unlimited (2007) [Ru] (1.45a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -501,7 +553,7 @@ Test Drive Unlimited (2007) [Multi] (1.66a) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -527,7 +579,7 @@ The Punisher (2005) [En] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -553,7 +605,7 @@ Max Payne (2001) [En] (1.05) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1059944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -579,7 +631,7 @@ The Last Express (1997) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +657,7 @@ Knights of Honor (2004) [En] (1.05) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,58 +668,6 @@ Knights of Honor (2004) [En] (1.05) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05B16CC7252FC49B387B6AAB2EA96C0326545D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857146   (1059332) от 04.03.2026
-
-Catwoman (2004) [En] (1.0) License
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем известно, что каждая кошка от рождения наделена девятью жизнями. Это утверждение вы сможете на деле проверить в игре от Electronic Arts, созданной по мотивам одноименного фильма. Став игровым персонажем, неподражаемая Хелли Берри ничуть не теряет своей привлекательности, и действие от этого становится еще более захватывающим - ведь теперь вы принимаете в нем (   Читать дальше...   )Тип издания: LicenseРазработчик: Electronic Arts UKЖанр: Экшены, АркадыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E23AD3DDC8228B5A5F39B1A7C7D532C4422AD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856470   (1059063) от 01.03.2026
-
-Hitman: Contracts (2004) [En] (1.74) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два выстрела, и в комнату отеля вваливается истекающий кровью Хитмен. Спецслужбам удалось его выследить и серьезно ранить, и теперь единственная надежда на спасение - врач, высланный Агентством для помощи 47-му. А пока жизнь киллера висит на волоске, перед его глазами пролетает вся его жизнь, заполненная до отказа кровью и страданиями его жертв. Воспоминания лишь (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA713C7DB3D3F6B0C719672541C3AD1684AB858C
 ```
 
 https://mybot314.ru/tekegram_catalog/

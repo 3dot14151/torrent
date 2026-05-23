@@ -1,3 +1,134 @@
+###  Публикация: 1788240   (68611) от 29.03.2025
+
+Dear Reality - Exoverb 1.3.0 VST 3, AAX (x64) + Additional Reverbs [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+EXOVERB предлагает 50 реалистично звучащих акустических сцен с неслыханной трехмерной глубиной и шириной.
+Добивайтесь стерео миксов с большим пространством для ваших треков, полагаясь на запатентованный механизм реверберации EXOVERB с синтезированными пространственными мульти-IR. Ускорьте процесс микширования с помощью интуитивно понятной треугольной панели и определите (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD82F26403D8C1D460BC63D9802C68F690F584D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788237   (68589) от 29.03.2025
+
+Dear Reality - dearVR MIX 1.17.0 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Плагин для мониторинга, который превращает любые студийные наушники в стереомикшерную студию мирового класса. Тщательно продуманная акустика для уверенного мониторинга вашей сессии в нескольких виртуальных эталонных помещениях. Пространственная компенсация наушников, поддерживающая 55 моделей профессиональных студийных наушников от разных производителей.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59034AC550A7EF91D4E05BD9F86D5D73C552CA27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788239   (68587) от 29.03.2025
+
+Dear Reality - dearVR PRO 2 2.1.0 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Выведите свою работу на новый уровень с помощью современного пространственного эффекта. Ощутите полный контроль при микшировании в многоканальных форматах до 7.1.4 и 9.1.6, бинауральном или амбизонном форматах. Встроенный в звуковую дорожку сверхточный механизм раннего отражения и реверберации dearVR PRO 2 добавляет еще один уровень пространственного восприятия, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A0866DB1414BDA4D96A1F9AB1FCD419384C6E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788867   (68445) от 01.04.2025
+
+Klevgrand - OneShot 1.0.3 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с вашим новым другом-барабанщиком OneShot! Это не просто драм-сэмплер, а ударная рабочая станция, специально разработанная для ваншотов/one-shots (сэмплов одиночных ударов). Каждая деталь в дизайне рабочего процесса и качестве звука была тщательно продумана, что делает OneShot мощной ударной установкой, в которую интересно играть, которая отлично звучит (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7DFAB7457883B9BFC628D563A9945D21375403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791393   (67866) от 13.04.2025
+
+LANDR - Synth X 1.0.38 VSTi 3 (x64) RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя мир творческой свободы и выразительных звуков с помощью современного таблично-волнового синтезатора для музыкальных продюсеров и звукорежиссёров.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF37B25982517FDA07DE2F58DC73317837949B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794328   (67348) от 28.04.2025
 
 Togu Audio Line - TAL-U-NO-LX-V2 5.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
@@ -6,7 +137,7 @@ Togu Audio Line - TAL-U-NO-LX-V2 5.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +164,7 @@ Togu Audio Line - TAL-J-8 2.0.0 VSTi, VSTi 3, AAX, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +190,7 @@ Wavesequencer - Theia 1.22 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +218,7 @@ Plugin Alliance & Brainworx - bx_glue 1.1.0 VST, VST 3, AAX (x64) RePack by TCD 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +244,7 @@ Sonic Academy & Slate Digital - ANA 2 Ultra Bundle 2.5.6 VSTi, VSTi 3, AAX (x64)
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +272,7 @@ BABY Audio - Smooth Operator Pro 1.1 VST, VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +299,7 @@ Soundtheory - Kraftur 1.2.3 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +325,7 @@ KORG - ARP 2600 1.1.5 Standalone, VSTi 3, AAX (x64) RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +351,7 @@ KORG - multi/poly native 1.0.4 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +377,7 @@ Waldorf - Microwave 1 Plugin 1.2.0 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +404,7 @@ Robotic Bean - Portatron 1.5.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +431,7 @@ MeldaProduction - MCompleteBundle 17.05 VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +458,7 @@ Valhalla DSP - Valhalla Room 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +485,7 @@ Valhalla DSP - Valhalla VintageVerb 4.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +512,7 @@ MAGIX SOUND FORGE Pro Suite 18.0.0.21 (x64) [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +538,7 @@ Pioneer DJ Rekordbox 6 Professional 6.8.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +564,7 @@ Atomix VirtualDJ 2023 Pro Infinity 8.5.7921 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +591,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 RePack by KpoJIuK [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -486,7 +617,7 @@ W.A. Production - Instacomposer 2 2.0.1.240325 VSTi, VSTi 3, AAX (x86/x64) RePac
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +643,7 @@ BABY Audio - Atoms 1.1.0 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +669,7 @@ Ashampoo Music Studio 10.0.2.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -550,138 +681,6 @@ Ashampoo Music Studio 10 - это Швейцарский армейский но
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A361E36DC506EF2B66B682D96044417E4AD8877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720771   (57631) от 04.05.2024
-
-Acoustica Mixcraft Pro Studio 9 9.0 Build 470 (x64) Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mixcraft, созданный музыкантами для музыкантов, не имеет себе равных в отрасли благодаря простоте использования и необузданной мощности. Записывайте и микшируйте свои треки до совершенства в рекордно короткие сроки с невероятно интуитивно понятным интерфейсом Mixcraft, молниеносным звуковым движком, бросающей вызов реальности технологией смещения высоты тона и растяжения (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA7323C46AA099CD1FE30044159F1AA0557FF89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722920   (56727) от 13.05.2024
-
-iZotope RX 11 Audio Editor Advanced 11.0.0.3858 (x64) Portable by 7997 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56727.jpg" />
-</div>
-
-
-###  Подробнее
-
-RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого.
-В RX 11 есть интеллектуальные способы поиска и устранения самых сложных проблем со звуком, независимо от того, являетесь ли вы создателем контента, музыкальным продюсером или профессионалом постпродакшна. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0AAEFA141E1F5871E9DCFE84F3469D61A6F7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723000   (56688) от 13.05.2024
-
-Streaming Audio Recorder 3.3.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несомненно, запись потокового аудио стала очень популярной в последние годы. Streaming Audio Recorder - это простая в использовании программа, которая позволяет пополнять музыкальную коллекцию неограниченным количеством бесплатной музыки. Программа поддерживает множество потоковых сервисов, таких как Spotify, YouTube, Pandora, Apple Music, Sirius Radio, Yahoo Music, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19AEC09D2F7D001AF3A6F34ABFCCF080869066E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726632   (55026) от 29.05.2024
-
-Steinberg Nuendo 13.0.40.251 (x64) Portable by 7997 [Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Nuendo — это самое передовое решение для обработки звука, которое доступно профессионалам киноиндустрии, телевидения, игр и иммерсивного звука во всем мире. С момента своего первого выпуска Nuendo был жизненно важным инструментом в создании саундтрека ко многим громким постановкам, продуктам и инсталляциям. Регулярные обновления с новыми функциями, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E8175634545A7D15842AC3081A7592DF3A42D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727180   (54665) от 01.06.2024
-
-Aberrant DSP - Lair 1.0.0 VST 3, AAX (x64) Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lair - это телепорт сквозь время и место, переделанный под эффект реверберации
-Сочетая в себе три изготовленных на заказ ревербератора с обширной коллекцией сложных параметров и хаотичных модификаторов, Lair - это ваша дверь в знакомые, отвратительные и чуждые миры..Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2373B75D9C87D236ACA20BE7FF6773BBC0AF25BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

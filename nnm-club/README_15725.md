@@ -1,22 +1,77 @@
-###  Публикация: 559018   (412054) от 11.10.2012
+###  Публикация: 1167652   (415204) от 21.09.2017
 
-Журнал | Computerworld [Россия] №24 (2012) [PDF]
+CoolUtils Total PDF Converter 6.1.0.138 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTML, Text, CSV или изображения (TIFF, JPEG, BMP, GIF, WMF, EMF, PNG).Преимущество этой утилиты в том, что Total PDF Сonverter преобразовывает как отдельный файл, так и множество PDF файлов одновременно. Вам больше не нужен дорогой Adobe Acrobat, наш конвертер сэкономит Ваши деньги. Зарегистрированные пользователи (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29BDFA61FD9A16F56AC045A6E498A0EDEBAEBA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167668   (415201) от 21.09.2017
+
+VA - Autumn Lounge 2017 Pitch [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Boring Sax - Under Cover (feat Man Of Leisure)
+02. Riddle Of Monogamy - Crossing Boundaries
+03. Oscar Stringz - Diversity
+04. Maniq Sounds - Back Home(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B83F1D52A16104C6D7935676C794D8A716E5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167702   (415198) от 21.09.2017
+
+Журнал | Мир садовода №6 (416) (август-сентябрь 2017) [DJVU]
 
 >>Журналы
->>Компьютерные журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-«Computerworld» - еженедельник, посвященный информационным технологиям: обзор важнейших событий ИТ-индустрии в России и в мире, материалы о новых технологиях.Формат: PDF
+Это издание для тех, кто хочет вырастить прекрасный сад и получать богатый урожай овощей и фруктов! Каждые 2 недели на страницах издания читатели получают много разнообразной, интересной и полезной информации, которую готовят известные специалисты – доктора и кандидаты сельскохозяйственных и биологических наук, агрономы, ведущие журналисты по садоводческой и огороднической (   Читать дальше...   )Жанр: Дача, сад, цветоводствоФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4CE70D574667C26BC24B020C93059384FC4A1BB
+magnet:?xt=urn:btih:D0BDEC1BC761E107945EB8A20EC72F9B74032ACD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559019   (412052) от 11.10.2012
+###  Публикация: 1167670   (415196) от 21.09.2017
 
-[Wallpapers] Нравятся! Сотня № 060 (1920х1080-2560х1600)
+М. Д. Каммари | Марксизм-ленинизм о роли личности в истории (1953) [DJVU]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...
+Руководствуясь указаниями классиков марксизма-ленинизма, автор книги рассматривает вопрос о роли масс и личности в революционном рабочем движении, в социалистическом обществе и с точки зрения опыта строительства социализма в СССР подвергает критике различные реакционные буржуазные теории по этому вопросу.Жанр: История, политология, философия, социология, науковедениеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:080793732433E308E6B3C28CB2CBD4F875BDB726
+magnet:?xt=urn:btih:C8504EC31FF1CBA4BA99DF01A875594F919B171E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,27 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559014   (412048) от 11.10.2012
+###  Публикация: 1167701   (415194) от 21.09.2017
 
-[Wallpapers] Нравятся! Сотня № 057 (1920х1080-2560х1600)
+Tony Bennett & Count Basie - The Jazz Collector Edition (1958) 1990, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...
+01. Chicago [02:06]
+02. Poor Little Rich Girl [03:28]
+03. I've Grown Accustomed To Her Face [03:00]
+04. Jeepers Creepers [02:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:31:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50BB7673C5ECD59F97B4920AA9DB69DB70899114
+magnet:?xt=urn:btih:F29DAD95AE07A5156B6ACFD390AC9278702907D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,282 +134,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 559131   (412044) от 11.10.2012
+###  Публикация: 1167761   (415192) от 21.09.2017
 
-Журнал | Атлас. Целый мир в твоих руках №139, 140 (2012) [PDF]
+VA - Donnie Brasco (1997) [MP3|320 Kbps] <Soundtrack>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-«Атлас. Целый мир в твоих руках» - коллекция издательства «Де Агостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C14D7F16D1533ACBE487D60661FBCA4C899C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711278   (412043) от 16.10.2013
-
-Свистать всех наверх (1970) SATRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький мальчик Женька, которого, как и других малышей, терроризирует хулиган Борис с двумя своими дружками, ждет приезда родного дяди, бывалого морского волка. Дядя, дескать, приедет, заступится, наведет порядок, отомстит обидчикам. Выясняется однако, что дядя – тоже мальчик, Миша Ерохин, всего на год-другой старше своего затюканного племянничка. Хотя к морю дядя (   Читать дальше...   )Жанр: Детский, Приключения, СемейныйРежиссер: Исаак МагитонАктеры: Алексей Сапарев, Александр Елистратов, Дая Смирнова, Ольга Маркина, Лариса Данилина, Виталий Чижиков, Василий Михалин, Сергей Михалин, Александр ЯсеневПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5585D9CC96E8E456190C7A7884F53E15523FD379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559144   (412042) от 11.10.2012
-
-Подборка журналов | Звукомания №№1 - 8, 10 [январь...октябрь 2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412042.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Звукомания» - журнал про звук, кино, аудиоустройства, хоум синема и аудио-видео технике. Журнал о звуке, о том, что же такое музыка. В нашей стране не умеют слушать музыку, и речь не о мощной громкости и всеобщей попсе на улицах, а о нормальной качественной музыке дома (причем при малых затратах). От которой при правильном её применении вы будете в полном восторге.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E386692D879383ACE76F418265DECC28974A988F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559202   (412039) от 11.10.2012
-
-Журнал | Загадки истории №14 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D0DFCAF2EC0C64300303AB3955F14147CEB40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559016   (412038) от 11.10.2012
-
-[Wallpapers] Нравятся! Сотня № 059 (1920х1080-2560х1600)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F04BD357A400B48D465B92BF55A50540521513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559011   (412036) от 11.10.2012
-
-[Wallpapers] Нравятся! Сотня № 056 (1920х1080-2560х1600)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3E50E4CBA81E1B91EEF852058B08088C1AA485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559160   (412035) от 11.10.2012
-
-Memphis May Fire - Challenger (2012) [MP3|320 кб/с]<Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412035.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Without Walls
-2. Alive In the Lights
-3. Prove Me Right
-4. Red In Tooth And Claw
-5. Vices
-6. Legacy
-7. Miles Away (feat. Kellin Quinn)
-8. Jezebel
-9. Losing Sight (feat. Danny Worsnop)
-10. Generation Hate(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884BB0378003026033D244387E500382EC33392C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559007   (412034) от 11.10.2012
-
-[Wallpapers] Нравятся! Сотня № 055 (1920х1080-2560х1600)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A80D077D30B409F3B0248574320B7C0C8691C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559125   (412033) от 11.10.2012
-
-[Wallpapers] Nice Wallpapers Pack №1 [840 шт.]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412033.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nice Wallpapers Pack №1Название:  Nice Wallpapers Pack №1
-Разрешение файлов: 1280x1024 - 9380x6016
-Количество: 840 шт.
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B33CF4EE404EEE0860553678232C78BA5431931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558856   (412029) от 11.10.2012
-
-Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmospheric Rock / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersion   (1:57)
-02. Knowledge   (4:45)
-03. Chains   (6:50)
-04. Senseless   (8:03)
-05. Alone   (4:23)
-06. Ophelia   (6:36)
-07. Oppression   (5:08)
-08. Remember Me  (6:55)
-09. Wonderland   (8:29)
-10. Insomnia   (4:37)Жанр: Death Doom Metal / Atmospheric Rock / Progressive MetalПродолжительность: 00:57:43
+01 - Dinah Washington - A Stranger On Earth
+02 - Lou Monte - Heart Of My Heart (The Gang That Sang)
+03 - The Pointer Sisters - Happiness
+04 - Bobby Caldwell - What You Won't Do For Love(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:59:11
 
 ## Скачать торент
 ```bash
@@ -367,27 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412980   (412028) от 02.10.2020
+###  Публикация: 248646   (415191) от 22.10.2010
 
-Echolot - Destrudo (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Frozen Dead Star [00:09:38]
-02. Orbital [00:09:23]
-03. Wind up North [00:19:33]Жанр: Doom MetalПродолжительность: 00:38:34
+01. Peppermint Jack
+02. In The Heat Of A Disco Night
+03. Rock Me After Midnight
+04. Lucifer's Lover(   Читать дальше...   )Жанр: Disco |Продолжительность: 01:10:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DD5D489A4D9DBA8BE3C105E0E8F8BE8A04D5DF9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413203   (412027) от 02.10.2020
+###  Публикация: 1167269   (415190) от 21.09.2017
 
-DubVision - Live @ Madurodam, Netherlands 2020-09-30 [MP3|320 Kbps] <Big Room>
+VA - Blue Streak (1999) [MP3|320 Kbps] <Soundtrack>
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. DubVision - Into You
-02. Claptone & Mylo - Drop The Pressure
-03. DubVision - ID w/ MEDUZA ft. GOODBOYS - Piece Of Your Heart (Acappella)
-04. Martin Garrix ft. John Martin - Higher Ground (DubVision Remix)(   Читать дальше...   )Жанр: Big RoomПродолжительность: 00:46:52
+01 - Jay-Z - Girl's Best Friend
+02 - Tyrese - Criminal Mind (feat. Heavy D)
+03 - So Plush - Damn (Should've Treated You Right) (feat. Ja-Rule)
+04 - Kelly Price - While You Were Gone(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8C702113E9FE51952DBA551BB7062983CCB0601
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +221,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413097   (412026) от 02.10.2020
+###  Публикация: 1166880   (415188) от 21.09.2017
 
-Methodica - Clockworks (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+В. В. Витюк | Под чужими знаменами: Лицемерие и самообман «левого» терроризма (1985) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. A Trick (extended Version) (07:45)
- 02. When I Fell Out Of The Sky (07:07)
- 03. The Door To You (07:42)
- 04. Shooting Stars (03:33)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 01:05:14
+В книге освещаются проблемы, связанные с таким социально-политическим феноменом, как «левый» терроризм. Разоблачаются попытки буржуазных идеологов отождествить с терроризмом освободительную борьбу масс, показывается противоположность теорий и практики «левого» терроризма марксистско-ленинскому учению о классовой борьбе и освободительных революциях.Жанр: История, политология, экономика, социологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD429385D6D6ED270142EA5D71C9D0624FFA6CCE
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,143 +247,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413069   (412025) от 02.10.2020
+###  Публикация: 1167588   (415186) от 21.09.2017
 
-Chris Otchy - Recursive (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Drone, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Imperfect Replica 07:33
-2. Infinity Room 04:10
-3. Data Breach 03:41
-4. Maitreya 04:18(   Читать дальше...   )Жанр: Ambient, IDM, Drone, MinimalПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2580A9D62725DB5C15829DF5E22AA07278FFC0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413104   (412024) от 02.10.2020
-
-Denis A - DAR Sessions #52 (2020) WEB-DL [MP3|320 Kbps] <Techno, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kosmas - Pan Metron Ariston
-02. Jos & Eli - Atomica
-03. Greg Ignatovich & Aleandros Djkevingr - Mr.Robot
-04. Marcus Meinhardt - Masada(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE8715817508FAFB4F4A79886900FC438F5A9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413126   (412023) от 02.10.2020
-
-Legion Of The Damned - Slaves Of The Shadow Realm (2019) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Widows Breed
-02. Nocturnal Commando
-03. Charnel Confession
-04. Slaves Of The Southern Cross(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE439F88A481E3819FDAD95DB7EC8CB8A5C5F959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413061   (412022) от 02.10.2020
-
-Islands, Pt. 1 - Jupi/ter (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Neoclassic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412022.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Select 04:59
-2. 19 12 19 05:16
-3. Lagoon 05:20
-4. RedInk 05:55Жанр: Ambient, Drone, Minimal, NeoclassicПродолжительность: 00:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97C8C42334A64EE82893E6315EF97EDD71A9BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413111   (412021) от 02.10.2020
-
-М.В. Иванова | Всё для детского сада. Лошади и пони (2016) [PDF]
+Морис Фомич Поцхишвили | Хохотун и хохотунья (1985) [PDF, DJVU]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Изящные лошади и милые пони, нарядные зебры и упрямые ослы, загадочная лошадь Пржевальского и очаровательная фалабелла - со всеми ними и многими другими маленький читатель познакомится на страницах книги "Лошади и пони" серии "Всё для детского сада". Для подготовительной группы детского сада.
-
-Рекомендовано для воспитателей детского сада и родителей.Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+Автор этой книжки Морис Поцхишвили — большой друг детворы. Мальчики и девочки, совсем крошечные и уже почти взрослые, читают наизусть его стихи, поют его песни, играют в придуманных им героев. Вырастая, они поступают в институты, начинают трудиться на фабриках и заводах,— словом, становятся серьезными занятыми людьми, но не расстаются с книжками своего поэта. Ведь (   Читать дальше...   )Жанр: Детская литература, поэзияПеревод: В. РавичФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E603C6A95BC02E6A5CFE15BC0E2CF99CFB944AE3
+magnet:?xt=urn:btih:2264E4098C6F2D0D919DB523E03804EE76E3FF2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,28 +273,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413064   (412020) от 02.10.2020
+###  Публикация: 1167673   (415184) от 21.09.2017
 
-Marco Bernard and Kimmo Porsti (The Samurai Of Prog ) - Gulliver (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+М. Рубинштейн | Экономическое соревнование двух систем (1939) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Overture XI
-02. Lilliput Suite
-03. The Giants
-04. The Land Of The Fools(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:17
+Удивительно, насколько похожи Российская Империя и нынешняя Российская Федерация. Проблемы одни и те же: "насквозь прогнившее царское самодержавие, прочно укоренившиеся остатки крепостничества, крайняя отсталость сельского хозяйства, политическое бесправие народных масс, полнейшая зависимость русского капитализма от западноевропейского капитала" - все то (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8027E031047C0CD6C896774A61DCFD4D9C33547
+magnet:?xt=urn:btih:6BB08949839D3A28E170A32FBACE0DD93F47D71B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413019   (412019) от 02.10.2020
+###  Публикация: 1167612   (415182) от 21.09.2017
 
-Marco Bernard and Kimmo Porsti (The Samurai Of Prog) - La Tierra (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+Т. А. Жирмунская | "Ум ищет Божества". Библия и русская поэзия XVIII - XX веков (2006) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Vuelo Sagrado
-02. El Error
-03. Voz De Estrella Que Muere
-04. Ansia De Sonar(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:09:49
+Три века отечественной поэзии и Священное Писание... Вместе с автором, известным поэтом, читатели смогут проследить, как библейские откровения, сюжеты и образы, неожиданно и всякий раз по-новому, преломлялись в творчестве крупнейших поэтов, от Тредиаковского до Есенина. Взгляд автора сквозь боговдохновенную Книгу книг на стихи, порой хрестоматийные, порой малоизвестные, (   Читать дальше...   )Жанр: Литературоведение, христиннствоФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C44DB830777FAE1B01B8828980E3C778F5F6186F
+magnet:?xt=urn:btih:7A4DD9C79891853E37B7DF09C8542FD5A90F9C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +325,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413078   (412018) от 02.10.2020
+###  Публикация: 1167558   (415180) от 21.09.2017
 
-Fossil Hunting Collective - Vacancy (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Minimal, Neoclassical>
+Dario Marianelli - Pride & Prejudice (2005) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 - Dawn
+02 - Stars and Butterflies
+03 - The Living Sculptures of Pemberly
+04 - Meryton Townhall(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7C1FFECC3918145C38EF003F02284A27343A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167533   (415179) от 21.09.2017
+
+Вечерний Ургант (2017.09.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:41Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7AE902AE51376C2C9FE65BBD54FE4FC4FA6DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167686   (415178) от 21.09.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 514 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. The Wicked Shores We Breathe 07:44
-2. Hallow 05:02
-3. A Tale of Two Endings (Pt. 1) 05:54
-4. One Morning Star 07:04(   Читать дальше...   )Жанр: Ambient, Drone, Minimal, NeoclassicalПродолжительность: 00:53:32
+01. Nicolas Rada - Cumulonimbus (Original Mix)
+02. Jerome Isma-Ae & Tone Depth - Kiera (Original Mix)
+03. Inertia - The System (Mir Omar Bootleg)
+04. Artbat - Tabu (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A412894618A1EA164B2497C5182B140ACC5B8897
+magnet:?xt=urn:btih:213684D6C47571D01157A1E5F8992756DB7783BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412974   (412017) от 02.10.2020
+###  Публикация: 1167421   (415177) от 21.09.2017
 
-Corey Taylor - CMFT (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative>
+VA - Ibiza Closing Trance (2017) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. HWY 666 (4:09)
-02. Black Eyes Blue (3:22)
-03. Samantha's Gone (3:12)
-04. Meine Lux (3:13)(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 00:47:41
+01.  Stoneface & Terminal - North Cape (Original Mix)  4:12
+02.  Maximal - Easy To Say, Hard To Do (Original Mix)  7:36
+03.  Roman Messer - For You (feat. Clare Stagg) (Extended Mix)  6:30
+04.  Temple One - Ocean Paradise (Extended Mix)  6:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5E4F7D8F30DC7E32FD0E764C11B36C24B24D5E
+magnet:?xt=urn:btih:33B8DBA6F0D84D8AED670963302C79C24885CC64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +438,271 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 832444   (412016) от 18.10.2014
+###  Публикация: 1167345   (415176) от 21.09.2017
 
-Как приручить дракона 2 / How to Train Your Dragon 2 (2014) Blu-ray [1080p]
+VA - Kickboxer (The Deluxe Edition) (2014) [MP3|320 Kbps] <Soundtrack, Score>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-С момента примирения викингов и драконов прошло пять лет. Пока Астрид, Сморкала и остальные ребята проводят время,
-соревнуясь друг с другом в популярных на острове драконьих гонках, Иккинг и Беззубик путешествуют по небу, составляя карту неизвестных мест.
-Когда одно из их приключений приводит к открытию тайной ледяной пещеры, которая является домом для сотен ранее (   Читать дальше...   )Производство: США, DreamWorks Animation, Mad Hatter EntertainmentЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Дин ДеБлуаПерсонажи: Джей Барушель, Кейт Бланшетт, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл,
-Кристофер Минц-Плассе, ТиДжей Миллер Кристен Уиг, Джимон ХонсуПеревод: Дублированный (Лицензия)Язык субтитров: Английский, датский, финский, норвежский, русский , шведский, китайский, эстонский, латвийский, литовский, украинскийПродолжительность: 01:41:55
+01 - Stan Bush - Streets of Siam
+02 - Paul Hertzog - To The Hospital-We'll See
+03 - Paul Hertzog - Groceries
+04 - Paul Hertzog - Very Stupid(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE415790D520F7E9C8F08AD4218634DEE33B46F5
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167760   (415175) от 21.09.2017
+
+VA - Uplifting Only Top 15: September (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  4 Seas - Ergaticus (Intro Mix)  5:31
+02.  Afternova - The One (Original Mix)  8:25
+03.  Ikerya Project - Kingdom (feat. Robin Vane) (Original Mix)  5:18
+04.  Etasonic - Farewell Forever (Original Mix)  9:27(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:45:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167291   (415174) от 21.09.2017
+
+VA - Higher Forces Volume One (Mixed by Craig Connelly) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01.  Joel Hirsch - Heart Of Stone (feat. Christina Novelli) (Club Mix)  4:08
+02.  Orjan Nilsen - The Hardest Part (feat. Rykka)  4:00
+03.  Craig Connelly - Small Box For A Big Man (Craig's Higher Forces Mix)  4:00
+04.  Alex M.O.R.P.H. - It Is Full Of Stars (Original Mix)  3:25(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 02:59:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167677   (415173) от 21.09.2017
+
+П. Н. Поспелов | Программа курса «основы марксизма-ленинизма» для высших учебных заведений СССР (1952) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Полезность данного материала может заключаться в систематизации материала, в выстраивании системы обучения, а также приведенных ссылках на работы Ленина и Сталина.
+
+Также интересно взять на заметку, что Поспелов в дальнейшем будет одним из ярых разоблачителей "культа личности", и в хрущевской "Истории КПСС" под его же редакцией Сталин почти не (   Читать дальше...   )Жанр: История, политология, философия, экономика, социология, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8CAC5182B61F5F60CB3734B85B9B03A22A459D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167617   (415172) от 21.09.2017
+
+Вечерний Ургант (2017.09.20) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:27Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F53FF571DF31CE3B86508D9100AB2AA790FF0C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251285   (415171) от 02.10.2018
+
+Приключения Йеллоустоун / Adventure Yellowstone (2013) BDRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Национальный парк Йеллоустоун - старейший национальный парк в мире. На его территории наибольшее количество гейзеров и горячих источников. Парк известен разнообразием видов: здесь обитают стада бизонов, медведей, оленей и многие другие уникальные виды. Наряду с его удивительной фауной и флорой, национальный парк дает представление об истории формирования Земли.Производство: США, 4K-ULTRA-HD-MOVIESЖанр: Документальный, фауна, флора, заповедникиРежиссер: Чарльз БауэрсПеревод: Дублированный (СВ Студия)Субтитры: русскиеПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9041AA0571049796F5607E09873CF73CA9173A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251615   (415170) от 02.10.2018
+
+3D модели - TurboSquid - Dodge Durango SRT 2018 (Low Interior) - 1279682 [MAX, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Dodge. Текстуры отстутствуют.
+Материал предоставлен исключительно в учебно-ознакомительных целях.Формат: MAX, 3DS, C4D, FBX, LWO, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2DA050D9C1271512592EC229503FCA088771DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251684   (415169) от 02.10.2018
+
+Юрий Уленгов | S-T-I-K-S. Трейсер (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бывший наемник Айвэн в Улье уже полгода. Сколотив собственный отряд охотников на зараженных, трейсеров, как их здесь называют, он продолжает борьбу за выживание в кошмарном мире, населенном живыми мертвецами и отпетыми головорезами. При этом он ни на миг не забывает о своей главной цели – мести. Ведь где-то на Внешке расположилась основная база «Группы Феникс», и (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 12:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC2325B58570F2E011600194CB9A39086542E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251621   (415168) от 02.10.2018
+
+RogueKiller Free 12.13.3.0 + Portable [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+RogueKiller - небольшая антивирусная утилита, основное назначение которой удаление и очистка системы компьютера от вредоносных программ, таких как черви, руткиты, трояны и др. После запуска этой программы и сканирования ПК она прекращает действия найденных вредоносных процессов и предлагает пользователю самостоятельно решить дальнейшие методы устранения вредоносного (   Читать дальше...   )Язык интерфейса: Русский частично, Английский, и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251722   (415167) от 02.10.2018
+
+WinRAR 5.61 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+WinRAR - один из самых известных архиваторов. То, что он поддерживает архивацию в формате RAR, объяснять не надо. Кроме того, программа умеет работать с архивами ZIP, CAB, ARJ, LZH, TAR, GZ, ACE 2.0, BZIP, JAR, UUE, GZIP, BZIP2 и 7-Zip, при этом она обладает многочисленными очень полезными возможностями - шифрование, поддержка непрерывных (solid) архивов, в которых (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

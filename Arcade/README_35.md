@@ -1,3 +1,29 @@
+###  Публикация: 1514549   (214604) от 04.12.2021
+
+Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Выберите любимого персонажа Nickelodeon и сразитесь в крутейших битвах на платформах! Выбирайте из могучих героев из вселенной Nickelodeon: сражайтесь со звездами из таких шоу, как «Губка Боб Квадратные Штаны», «Черепашки-ниндзя», «Мой шумный дом», «Дэнни-призрак», «Настоящие монстры», «Дикая семейка Торнберри», «Эй, Арнольд!», «Ох уж эти детки» и многих других! (   Читать дальше...   )Тип издания: LicenseРазработчик: Ludosity, Fair Play LabsЖанр: Файтинг (Аркада)Язык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E30A3C736A2E32B8100815481B3024558932CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586872   (214220) от 28.10.2022
 
 Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License GOG
@@ -6,7 +32,7 @@ Asterix & Obelix XXXL: The Ram From Hibernia (2022) [Ru/Multi] (1.03.2) License 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Black Skylands (2021) [Ru/Multi] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Mari and Bayu - The Road Home (2022) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shing! (2020) [Ru/Multi] (2.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Edge Of Galaxy (2021) [Ru/En] (1.29) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +162,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Rhythm Sprout: Sick Beats & Bad Sweets (2023) [Ru/Multi] (1.005b) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Koa and the Five Pirates of Mara (2023) [Multi] (1.2.1s) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Bandits: Phoenix Rising / Бандиты: Безумный Маркс (2002) [Ru
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Nobody Saves the World (2022) [Ru/Multi] (31300/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Starless (2022) [Ru/Multi] (1.051) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Secret Agent (1992) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Swordship (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Nitro Racers (2022) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack Necros [Ultima
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +448,7 @@ The friends of Ringo Ishikawa (2018) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Clone Drone in the Danger Zone (2021) [Ru/Multi] (1.1.0.56) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -474,7 +500,7 @@ SENRAN KAGURA SHINOVI VERSUS (2016) [Multi] (6) License GOG [18+]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Terminus: Zombie Survivors (2021) [Ru/Multi] (1.2.0.108/dlc) Repack FitGirl [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Void Scrappers (2022) [Multi] (1.32) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Grim Guardians: Demon Purge (2023) [Multi] (1.0) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Neon Abyss (2020) [Ru/Multi] (1.5.0.0src.1/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -604,7 +630,7 @@ RC Cars (2002) [Ru/Multi] (1.0.138) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Funtasia (2022) [Multi] (0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Funtasia погружает игрока в автомобильные поез�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9E1E5D7FB2099C9312C3EF91D57AC4295D8C8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620156   (201056) от 19.03.2023
-
-Cult of the Lamb (2022) [Ru/Multi] (1.1.5.208/dlc) Repack dixen18
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Cult of the Lamb игрок окажется в роли одержимого ягненка, спасенного от гибели жутким незнакомцем. Чтобы отплатить долг спасителю, вам придется найти ему верных последователей. Заложите основы собственного культа в землях лжепророков и совершайте вылазки в разнообразные таинственные регионы, создайте преданное сообщество лесных почитателей и несите свое Слово, (   Читать дальше...   )Тип издания: RepackРазработчик: Massive MonsterЖанр: Экшны, Приключение, МенеджментЯзык субтитров: Русский, Английский Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9651C20461CBF12453CFEB975702C25DC65A5E82
 ```
 
 https://mybot314.ru/tekegram_catalog/

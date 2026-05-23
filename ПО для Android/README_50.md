@@ -1,3 +1,81 @@
+###  Публикация: 1537386   (667671) от 16.03.2022
+
+Mobi Calculator PRO 1.4.2 Mod by andrey.utasco [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Mobi Калькулятор PRO приложение, которое будет полезно для всех, кто занимается математикой, инженерным делом и прочими работами связанными с вычислительными действиями. Приложение также будет полезно для студентов и преподавателей ВУЗов, которое значительно облегчит выполнение расчётов. Данный калькулятор работает с полными выражениями на основе RPN-алгоритмов. (   Читать дальше...   )Тип издания: ProРелиз состоялся: 01.02.2019Разработчик: IPПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99AE79D38CCB65CF0D50DBADD28097FD40D1698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301795   (664049) от 19.03.2022
+
+Пикабу v1.21.13 Mod [Ru/En/Uk] - Официальный клиент портала Pikabu.ru
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пикабу - это информационное сообщество, где любой желающий может разместить пост в постоянно обновляемую ленту и проголосовать за новости других, формируя список наиболее интересных и горячих записей. Если Вам есть, что рассказать - добавьте свою запись и ее увидят сотни тысяч. Хотите - украсьте фотографиями и видео, хотите - оставьте просто текстом. Здесь Вы - хозяин (   Читать дальше...   )Тип издания: Пиратка (Mod без рекламы)Релиз состоялся: 28.01.2022Разработчик: PikabuПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский и Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB0A5AC7AB0CFAC4CE258D7385A324B08AF2D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064388   (662635) от 13.05.2018
+
+Монеты стран бывшего СССР v2.5 [Ru] - Более 1000 юбилейных монет и монет регулярного чекана стран бывшего СССР
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приложение может использоваться как инструмент для работы с коллекцией, либо как справочник. Содержит перечень юбилейных монет и монет регулярного чекана стран бывшего СССР (Азербайджан, Армения, Казахстан, Киргизия, Молдавия, Таджикистан, Туркменистан, Узбекистан, Украина, Латвия, Литва, Эстония, Грузия, Приднестровье). Более 1000 монет!Тип издания: Маркет + кейгенРелиз состоялся: 11.05.2018Разработчик: TrionПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F388A62D29C1624186FF6583E63AA8AA258905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138644   (660787) от 01.06.2017
 
 Power VPN Premium 4.9.4 [En]
@@ -6,7 +84,7 @@ Power VPN Premium 4.9.4 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ RSS Reader v1.7.0 [Ru] - чтение RSS-лент
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Root Browser (File Manager) 2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ CAD Touch Pro v5.09 [Ru/En] - Редактор и просмотрщик фай�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Delta VPN v1.7 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ Battery Repair (Doctor Boost) 2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +271,7 @@ Akimbo Audiobook Player v1.6.1 (30.06.2014) <Ru>
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -226,7 +304,7 @@ MyPhoneExplorer 1.0.35 - Explorer для Android  [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -252,7 +330,7 @@ Star Walk 2 - Night Sky Guide 1.3.2.138 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +357,7 @@ CM (Cleanmaster) Security 2.6.2 - Антивирус [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +383,7 @@ Muscle Premium v4.1.13 Unlocked [En] - анатомия мышц человек�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +409,7 @@ Maths Formulas 9.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +435,7 @@ Runtastic GPS Бег 5.11 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +461,7 @@ Power Media Player Pro v6.1.1 Unlocked [Ru/Multi] - Android версия PowerDV
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +487,7 @@ Fotoo v2.3.7 Premium [En] - цифровая фоторамка и скринс�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +513,7 @@ Tasker 4.7u1m [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +620,7 @@ IELTS® Speaking Pro v4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +646,7 @@ Schematic v2.2.1 [Ru/Multi] - составление и редактирован
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F994B899611B816E16722C1F3213B686AA8109F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910858   (619376) от 21.06.2015
-
-AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиаконтента по DLNA протоколу
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите видео, картинки и слушайте музыку из компьютера на своем андроид устройстве (и наоборот)благодаря программе - AirPlay/DLNA Receiver. Довольная интересная программа, которая позволяет стримить фильмы или музыку на компьютере прямо на свое устройство. Вам не нужно засорять память устройства, можно все хранить на локальном сервере, а уже оттуда устроить передачу (   Читать дальше...   )Тип издания: Pro с МаркетаРелиз состоялся: 18.06.2015Разработчик: WaxRain Tech.Поддерживаемая ОС: Android 2.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2FA42187A2E43322C69FB690A6243BE4A4BC74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837980   (619362) от 26.06.2017
-
-ЭкоГид: Цветы v3.0.2 [Ru] - атлас-энциклопедия дикорастущих травянистых растений средней полосы России
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый в России ПОЛЕВОЙ определитель и атлас-энциклопедия дикорастущих травянистых растений средней полосы России, с помощью которого можно ОПРЕДЕЛИТЬ видовое название неизвестного растения по его внешнему виду, строению цветка, соцветия и листьев прямо в природе.Релиз состоялся: 12 мая 2016 гРазработчик: ЭкосистемаПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6853B4DDE821E862CBCA079ED5E9F6168784D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849128   (619307) от 26.06.2017
-
-ЭкоГид: Грибы v3.0.2 [Ru] - атлас-энциклопедия грибов России
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый в России ПОЛЕВОЙ определитель и атлас-энциклопедия грибов России, с помощью которого можно ОПРЕДЕЛИТЬ видовое (научное) название гриба по морфологическим и экологическим признакам!Тип издания: Вылечена / ПираткаРелиз состоялся: 5 июня 2016 гРазработчик: ЭкосистемаПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226D210FB810A5CAFA0DB175FA8F08024A0A54FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

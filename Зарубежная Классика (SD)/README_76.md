@@ -1,3 +1,113 @@
+###  Публикация: 999015   (452152) от 04.09.2017
+
+451 градус по Фаренгейту / Fahrenheit 451 (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация по одноимённому научно-фантастического роману-антиутопии Рэя Брэдбери.
+Мир будущего, в котором все письменные издания безжалостно уничтожаются спецотрядом пожарных-огнеметчиков, а интерес к книгам и их хранение преследуются по закону.
+Главный герой этой истории по имени Гай Монтэг – один из пожарных-уничтожителей и он всегда качественно выполнял свою (   Читать дальше...   )Производство: Великобритания. Anglo Enterprises, Vineyard Film Ltd.Жанр: Фантастика, Триллер, ДрамаРежиссер: Франсуа ТрюффоАктеры: Оскар Вернер, Джули Кристи, Сирил Кьюcак, Антон Диффринг, Джереми Спенсер, Би Даффелл, Ноэл Дэвис, Джиллиан Алдам, Майкл Бальфур, Энн БеллПеревод: Многоголосый закадровый профессиональный (СТС)Субтитры: Русские, АнглийскиеПродолжительность: 01:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB8F4D33FB04F32F71D56C5F3CD75B290AF633E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389586   (451865) от 20.09.2011
+
+Все ради Пита / For Pete's Sake (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+....Нельзя сказать, что Генриетта Роббинс — кладезь добродетели, но если бы за преданность мужьям отливали памятники у героини во дворе стоял бы монумент размером со Статую свободы. Ради своего дражайшего Пита водителя такси по профессии она готова на все.
+И когда амбициозный супруг посвящает ее в свои планы заработать горы денег, играя на фондовом рынке Генриетта немедленно занимает ему начальный капитал. Увы, биржевые таланты Пита не идут ни в какое сравнение с его умением крутить баранку, и герой быстро ставит себя на грань финансовой катастрофы Спасти бедняг может только какое-нибудь чудо К счастью на одном он как раз женат!............
+Сценарий написан специально для Барбары Стрейзанд..Жанр: комедияРежиссер: Питер ЙейтсПеревод: Профессиональный (двухголосый , закадровый)Формат: AVIПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FEEADA99A32C0C4CE7066AD092C9AA5DBD02BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940706   (451363) от 02.10.2015
+
+Жила-была... / C'era una volta (1967) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды красивая, но крайне взбалмошная неаполитанская крестьянка Изабелла встретила капризного испанского принца Родриго Ферранте. Король Испании приказал, чтобы Родриго выбрал себе жену среди семи итальянских принцесс, но он уже был сражен красотой скромной крестьянки. Не зная об этом, Изабелла с помощью ведьм и святых решает завоевать сердце своего принца…Производство: Италия, Франция / Cinecitt, Compagnia Cinematografica Champion, Les Films ConcordiaЖанр: Фэнтези, Мелодрама, КомедияРежиссер: Франческо РозиАктеры: Софи Лорен, Омар Шариф, Жорж Вильсон, Лесли Френч, Долорес дель Рио, Марина Малфатти, Анна Ногара, Рита Форзано, Карлотта Барилли, Роза Мария МартинПеревод: Многоголосый закадровыйЯзык субтитров: Русский, на непереведённые сценыПродолжительность: 01:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D385614D7D3F5B2032F4100CA2FEE925E4FDE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825690   (451314) от 01.10.2014
+
+Пирамида сынов Солнца / Die Pyramide des Sonnengottes / Pyramid of the Sun God (1965) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По роману Карла Мая "Замок Родригандов".
+В 1864 году в Мексике вопреки воле народа к власти пришел ставленник Наполеона III эрцгерцог Максимилиан Австрийский. Зреет революционное движение. Лидеру повстанцев Бенито Хуаресу через немецкого врача передает послание президент США Линкольн.
+Карл Стернау и его компаньоны отправляются на поиски древних сокровищ (   Читать дальше...   )Производство: Германия (ФРГ), Франция, Италия / Central Cinema Company Film (CCC), Avala Film, Franco London FilmsЖанр: Приключения, ВестернРежиссер: Роберт СьодмакАктеры: Лекс Баркер, Мишель Жирардон, Жерар Баррэ, Ганс Нилсен, Рик Батталья, Густаво Рохо, Тереза Лорка, Ральф Вольтер, Кело Хендерсон, Алессандра ПанароПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D2506488048795D78671A5FE96FCF457A74750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160580   (449996) от 05.09.2017
 
 Милая Чарити / Sweet Charity (1969) DVDRip [H.264]
@@ -6,7 +116,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A9666D28EE6CA84014D04B045E69D0212A07AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552225   (443167) от 28.09.2012
-
-Фантоцци против всех / Fantozzi contro tutti (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий фильм о злоключениях бухгалтера Уго Фантоцци. К унижениям на работе, опять добавляются личные проблемы. Ночи, проведенные перед телевизором в поисках какого-нибудь эротического фильма... Забавная слежка за женой, увлеченной брутальным булочником. Существование туповатого Фантоцци - настоящая одиссея грустных, и в тоже время, необычайно смешных событий.Жанр: КомедияРежиссер: Нери Паренти, Паоло ВилладжоАктеры: Паоло Вилладжио, Милена Вукотич, Джиджи Редер, Камилло Милли, Пол Мюллер, Плинио Фернандо, Гуэррино Кривелло, Анджело Пеллегрино, Пьетро Дзардини, Диего Абатантуоно, Джузеппе АнатреллиПеревод: Многоголосый закадровыйПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39ED6AB9B5C0A27F777814EF3077A3AC88C8ED8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404798   (442565) от 18.09.2020
-
-Мари-Октябрь / Marie-Octobre (1959) Screener [Советская прокатная копия]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестный предатель выдал нацистам участников французского Сопротивления. Уцелевшие члены группы собралась через 15 лет после окончания войны в доме Мари Дюмолен, чтобы разобраться, кто из них предатель. Эстафета подозрений передается от одного к другому, все оказываются припертыми к стенке, даже сама Мари-Октябрь не исключение. Восстанавливаются факты, слова, (   Читать дальше...   )Производство: Франция, Abbey Films, Doxa Films, Orex Films, Societe Française du Theatre et CinemaЖанр: Драма, детективРежиссер: Жюльен ДювивьеАктеры: Даниэль Даррьё, Лино Вентура, Бернар Блие, Робер Дальбан, Поль Франкёр, Поль Гуер, Даниэль Ивернель, Поль Мерисс, Серж Реджани, Ноэль РокверПеревод: Дублированный (Киностудия им. М. Горького)Субтитры: отсутствуютПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEA0E8E240514E2E0F7EF1F6A156D29FDCAF751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941481   (442522) от 06.10.2015
-
-Лицом к лицу / Faccia a faccia (1967) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Брэд Флетчер случайным образом оказался в компании отъявленного бандита Соломона «Боригарда» Беннета. Поначалу преступная натура невольного компаньона отталкивает Флетчера, воспитанного в уважении к закону, но истинная сущность профессора со временем раскрывается…Производство: Испания, Италия / Arturo Gonzlez Producciones Cinematogrficas S.A., Produzioni Europee Associati (PEA)Жанр: ВестернРежиссер: Серджо СоллимаАктеры: Томас Милиан, Джан Мария Волонте, Вильям Бергер, Йоланда Модио, Джанни Риццо, Кароль Андре, Анхель дель Позо, Альдо Самбрель, Нелло Паццафини, Хосе ТорресПеревод: Одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE48E31BE3F28A74FD40920DC0D739329851DF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942627   (442327) от 06.10.2015
-
-Старое ружье / Le vieux fusil (1975) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, 1944 год. Хирург местной больницы, помогающий Сопротивлению, отсылает жену и дочь в деревню, а когда приезжает их навестить, видит тела зверски убитых людей, среди которых его застреленная дочь и сожженная из огнемета жена. Эсэсовцы же все еще были на месте расправы, празднуя «победу» местного значения. Тогда хирург достает старое ружье, и начинается возмездие (   Читать дальше...   )Производство: Франция, Германия (ФРГ)Жанр: Триллер, драма, военныйРежиссер: Робер ЭнрикоАктеры: Филипп Нуаре, Роми Шнайдер, Жан Буиз, Йоахим Хансен, Роберт Хоффманн, Карл Михаэль Фоглер, Каролина Бономм, Катрин Делапорте, Мадлен Озерэ, Даниэль Бретон, Жан-Поль Сизиф, Антуан Сент-Джон, Морис Бес, Патрик Кайлар, Патрик Клементе, Жерар Дуза, Жан-Пьерр Гарригес, Жан Аш, Оливье Лефор, Мари-Франс МиньялПеревод: Дублированный, профессиональный многоголосыйПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C5F41B76359AF4CC5CCD3A7EEBC12F1327E106
 ```
 
 https://mybot314.ru/tekegram_catalog/

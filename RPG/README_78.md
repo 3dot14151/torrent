@@ -1,3 +1,81 @@
+###  Публикация: 1626578   (15419) от 07.06.2025
+
+Shardpunk: Verminfall (2023) [Multi] (1.1.9.0/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Shardpunk: Verminfall - изометрическая игра, геймплей которой представляет собой смесь XCOM и Darkest Dungeon. Сеттинг выполнен в стимпанк стилистике. В Капитолии Империи, в котором происходят действие, началась эпидемия чумы и улицы заполонили крысы. Вы берете под управление выжившего, пытающегося сбежать из города. На вашем пути повстречаются выжившие, которых (   Читать дальше...   )Тип издания: LicenseРазработчик: Clockwork PileЖанр: Ролевая игра, Пошаговая, ФантаcтикаЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357F21369E8671885063C7889F0A5931E1B9479B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801026   (15394) от 07.06.2025
+
+Yog-Sothoth’s Yard (2023) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Yog-Sothoth's Yard - это ролевой симулятор строительства в готическом сеттинге, где мистическое и макабрическое сходятся воедино, чтобы создать уникальный игровой опыт. Как наследник заброшенного особняка в стране, где сосуществуют драконы, эльфы и люди, вы должны ориентироваться во тьме, которая вас окружает. Ваша миссия: построить гостиничную империю, которая будет (   Читать дальше...   )Тип издания: LicenseРазработчик: Bone NailЖанр: Ролевые игры, СимуляторыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7152A8520D54A466085A6592610E1015E2F4469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801004   (15383) от 07.06.2025
+
+Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Scene Rune [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Lies Of P была вдохновлена знаменитой историей о Пиноккио, но демонстрирует более жестокую и мрачную версию сказки. Чтобы стать человеком недостаточно доброты и любви, ведь людская сущность обладает и кровожадными чертами, где каждый готов бороться за власть или место под солнцем любыми способами. Многое предстоит построить на лжи, главное не запутаться в ней, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: NEOWIZЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EED785EEF35C7A80D0AF0061E8BF02CC20E19F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750868   (15326) от 08.06.2025
 
 Starcom: Unknown Space (2022) [Multi] (21540-a) License GOG
@@ -6,7 +84,7 @@ Starcom: Unknown Space (2022) [Multi] (21540-a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack Other s [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.66) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Hellslave (2022) [Multi] (1.46) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Felvidek (2024) [Ru/Multi] (1.04) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Rune Factory: Guardians of Azuma (2025) [Multi] (1.0.3/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Dark Souls III (3) (2016) [Ru/Multi] (1.15.2/dlc) Repack seleZen [Game of the Ye
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ DELTARUNE (2025) [Multi] (1.01A) Unofficial
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack seleZen [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Lies of P (2023) [Ru/Multi] (1.8.0.0/dlc) Repack FitGirl [Overture Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57069/dlc) Repack seleZen [Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lost in Random: The Eternal Die (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Fort
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11166) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Heads Will Roll: Reforged (2023) [Ru/En] (2.07b/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Cryptmaster (2024) [Multi] (1.112) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Cryptmaster – здесь вы сможете говорить что угод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803213   (13930) от 21.06.2025
-
-Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Empire of Sin - стратегическая игра от Romero Games и Paradox Interactive, которая перенесет вас в сердце преступного мира Чикаго 1920-х годов, когда там царил сухой закон. Станьте одним из четырнадцати криминальных боссов, реальных или созданных на основе реального образа: например, Аль Капоне, Стефани Сент-Клер или Голди Гарно. Соберите разношерстную банду, постройте (   Читать дальше...   )Тип издания: RepackРазработчик: Romero GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE82CCDC140552713DCEBEBC0FEAFDEEC8F8648B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803071   (13921) от 21.06.2025
-
-Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulstone Survivors - это динамичный экшен-рогалик, где вы уничтожаете орды врагов и прокладываете путь к божественной силе. В роли охотника бездны используйте разрушительные навыки и открывайте разрушающие баланс синергии на пути к абсолютной власти. Сразитесь с Владыками бездны и их приспешниками, соберите камни души и станьте богом!Тип издания: RepackРазработчик: Game Smithing LimitedЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7063C0A3EADC8EC6CFD0A2C25339B885C0B7ADA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751969   (13861) от 22.06.2025
-
-Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры Shadows of Doubt происходит в 1980-х, в сверхиндустриализованной альтернативной реальности. Примерьте на себя роль сыщика: используйте специальные устройства, как настоящий детектив, ищите улики и получайте деньги за раскрытие преступлений, поиск и продажу полезной информации и так далее.Тип издания: LicenseРазработчик: ColePowered GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75D1F9FB1807ED0B2433CBAE7F23C3823FA4F6A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

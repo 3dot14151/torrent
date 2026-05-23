@@ -1,3 +1,108 @@
+###  Публикация: 675291   (688109) от 02.07.2013
+
+Sword Art Online / Мастера меча онлайн [2012, TV, 25] BDrip 720p Hi10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В начале XXI века случилась ожидаемая сенсация – некий японский гений создал ролевую игру с абсолютной виртуальной реальностью. Неудивительно, что «Искусство меча онлайн» обрело бешеную популярность, и 10 тысяч счастливчиков, кому достался первый тираж, в назначенный день и час разом оказались в игровом мире, собравшись в Городе Начал. Тут лукавый создатель, явившийся (   Читать дальше...   )Жанр: приключения, фэнтези, романтика, драмаРежиссер: Ито ТомохикоПродолжительность: 25 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7B0F9DBF4A927F2D26C4F8CBFF16C6C9E5EE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134668   (686957) от 16.05.2017
+
+Karasu Tengu Kabuto / Raven Tengu Kabuto / Кабуто [1992, OVA, 1 ep.] DVDRip Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Десять лет прошло с тех пор, как Кабуто Ворона Тенгу покинул город Садо. Теперь он возвращается, и выясняет что, местный феодал мертв, а царством управляемт злая волшебница по имени Тамамуши. Используя свои навыки и мистические силы, Кабуто сражается, чтобы спасти принцессу Ран и ее телохранителя Казуму. Борясь против машин и смертоносных ловушек, созданных Джиннаем, (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Watanabe TakashiПеревод: RedwolfЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 45 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6770DA6471F9013D8636DF1699C7ED4AF2EF17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540408   (686795) от 16.05.2017
+
+Marie and Gali / Мари и Гали (второй сезон) [2010, TV, 30 ep.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение первого сезона. Мораль и участнике те же, появляется новый персонаж - Ноика.
+У Кэрролла героиня бегает за белым кроликом, ну а здесь этакая готик-лоли догоняет ожившую чёрную пюшевую шраммированную игрушку, отдалённо напоминающую зайца. Там героине встречаются доведённые до абсурда английские стеротипы, а тут авторы поизвращались с именитых исторических (   Читать дальше...   )Жанр: комедия, приключенияРежиссер: Hiromasa KondouПеревод: МатадорЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: (30 эп.), 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8E7F20FB4410E76DAE76CDDD316E57FB2273E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403893   (686440) от 22.08.2020
+
+Youkai Apartment no Yuuga na Nichijou | Elegant Yokai Apartment Life | Весёлые деньки в общежитии монстров [2017, TV, 26 из 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Когда Юси Инаба учился в первом классе средней школы, у него умерли родители. Его приютила семья родственников. И хотя те искренне заботились о нем, он чувствовал, что его присутствие — бремя для них. Поэтому, когда пришла пора поступать в старшую школу, он выбрал ту, в которой было общежитие. Однако он даже переехать не успел, как здание общежития сгорело. Возвращаться (   Читать дальше...   )Производство: Shin-Ei Animation / シンエイ動画, SynergySP / シナジーSPЖанр: повседневность, мистикаРежиссер: Хасимото МицуоПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B71C2777F7000CA13CA45E69F8246180E6403C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535311   (686433) от 06.03.2022
 
 Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | Внеземные мальчики и девочки [2022, Web, 6 из 6] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +111,7 @@ Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Denei Shoujo Ai / Video Girl Ai / Ай - девyшка с кассеты [1992, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_684903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru | My Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дво�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Kanojo ga Flag o Oraretara | Gaworare | If Her Flag Breaks | Если бы я о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Kangoku Gakuen | Prison School | Школа-тюрьма [2015, TV, 12] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Terraformars: Revenge / Терраформеры [ТВ-2] [2016, TV, 13 ep] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +346,7 @@ Hakuouki: Shinsengumi Kitan / Hakuouki / Хакуоки [2010, 12 эп.] SDTV 72
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +372,7 @@ Kyuukyoku Choujin R | The Ultimate Esper "R" | Абсолютный Суперч
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +425,7 @@ Konosuba OVA | Kono Subarashii Sekai ni Shukufuku o! OVA | Этот замеча
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +451,7 @@ Denki-gai no Hon`ya-san | Denki-Gai no Honya-san | Книжный магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +477,7 @@ Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуда лучше
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +504,7 @@ Ojou-sama Sousamou | Debutante Detective Corps | Дебютный детекти
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +530,7 @@ Miyuki | Миюки [1983, TV, 37 из 37] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +556,7 @@ Tetsu no Otome Jun | Iron Virgin Jun | Железная дева Дзюн [1992,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +582,7 @@ Rokujouma no Shinryakusha!? | Invaders of the Rokujyoma!? | Захватчики
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +608,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +634,7 @@ Shin Kaitei Gunkan / Super Atragon / Супер Атрагон [1995, OVA, 2 и�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +661,7 @@ Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,111 +672,6 @@ Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D0B61E0255D057F1042D79137C624EFF2BD371A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008392   (677953) от 28.06.2016
-
-Kagewani: Shou [2016, TV, 13] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677953.jpg" />
-</div>
-
-
-###  Подробнее
-
-История про очередное нашествие ужасных монстров. Люди ничего не могут поделать и являются лишь игрушкой в лапах чудовищ. Откуда взялись эти монстры и почему нападют на людей? Соске Банда, учёный, пытается разгадать эту тайну, и единственная его зацепка - слово "Kagewani".Жанр: ужасыРежиссер: Такасима Томоя / Takashima Tomoya / 高嶋友也Продолжительность: каждый эпизод по 8 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF70209801D64D08E595B2D58266D5E9FCB9DE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006219   (677945) от 28.06.2016
-
-Kiznaiver [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие аниме развернётся в мире, где людей потихоньку связывают специальной системой, из-за которой любые раны, полученные одним человеком, равномерно распределяются по всем Связанным. В центре повествования окажутся восемь школьников, большая часть которых, судя по описаниям, будут либо замкнутыми, либо малоэмоциональными, либо просто расчётливыми. А ещё там будут (   Читать дальше...   )Жанр: приключенияРежиссер: Кобаяси Хироси / Kobayashi Hiroshi / 小林寛Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0D883579CBB67A06D6551170823DB4BAE89197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005065   (677933) от 28.06.2016
-
-Bungou Stray Dogs | Бродячие псы литературы [2016, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накадзиму Ацущи выгоняют из родного приюта, и теперь у него нет ни крыши над головой, ни пропитания. Стоит он на берегу реки и думает, как бы не сдохнуть от голода, и тут замечает человека, явно намеревающегося покончить с собой. Юноша спасает незнакомца, после чего выясняется, что тот — Дадзай Осаму, работающий вместе с напарником Куникидой в особом детективном (   Читать дальше...   )Жанр: приключения, комедияРежиссер: Игараси Такуя / Igarashi Takuya / 五十嵐卓哉Продолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948A331C295716AF9F68184724E518ABAE8A43FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645212   (677712) от 07.07.2013
-
-One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итак, одиннадцатый по счёту фильм One Piece.
-События происходят в новом мире, который находится на грани исчезновения. Ожесточенный бой между легендарным бывшим адмиралом военно-морского флота Зетто, который руководит группой, пытающейся уничтожить пиратов, и группой Мугивара во главе с Монки Д. Луффи.Жанр: приключенияРежиссер: Нагаминэ ТацуяСубтитры: •Продолжительность: 110 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF75C1C8C8AC418B574DE408545013121EDC491
 ```
 
 https://mybot314.ru/tekegram_catalog/

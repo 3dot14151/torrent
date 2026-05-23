@@ -1,3 +1,193 @@
+###  Публикация: 1280521   (754698) от 06.02.2019
+
+Phoenix OS 3.0.8.529 x86/x64 [En]
+
+>>Linux, Unix и другие ОС
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбукЯзык интерфейса: Английский (русский включается в настройках после установки)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC63E0E0EEFA2B46869E9D104C562ABF4E90C012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018710   (753546) от 21.05.2016
+
+Calculate Linux 15.17 [x86-64] 1xCD, 6xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На серверах размещена следующая версия российского дистрибутива Calculate Linux - 15.17. Calculate Linux 15.17, построен на основе Gentoo Linux, поддерживает непрерывный цикл выпуска обновлений и оптимизирован для быстрого развёртывания в корпоративной среде.
+
+Дистрибутив доступен в нескольких редакциях, собранных для архитектур i686 и x86_64: Calculate Linux Desktop (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01049717A7AB24746FEC30FE0F2817C712BCC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663342   (752897) от 01.06.2013
+
+ZevenOS 3.1 Neptune [x64] (1xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вышла Neptune-редакция дистрибутива ZevenOS 3.1. Этот Debian-based настольный дистрибутив для 64-битных компьютеров отличается использованием последней версии рабочей среды KDE.
+
+В Neptune 3.1 задействовано ядро Linux 3.9.2. Базовой системой релиза является стабильная версия Debian, 7.0 Wheezy. Версия KDE Plasma Desktop в этом выпуске Neptune – 4.10.3. В списке программного обеспечения – Chromium 26, Kdenlive 0.9.6, Amarok 2.7.1, LibreOffice 4.0.3, предустановлены медиакодеки и flashplayer. Для диагностики беспроводных сетей в состав Neptune включены Wireshark, Aircrack-ng и kismon.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664439   (749241) от 03.06.2013
+
+Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спустя месяц после предыдущего релиза вышел новый релиз -  Manjaro Linux 0.8.6 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутиве сохранено окружение рабочего стола openbox.
+
+В текущий релиз были включены некоторые новые пакеты, ядро версии Linux 3.9, исправлена ошибка установщика, Openbox требует меньше ресурсов и размещен на меньшем по размеру носителе; обновлен Pamac и проприетарные драйверы для AMD и NVIDIA; Installer переведен на арабский, каталанский, немецкий, греческий, английский, испанский, фарси, индонезийский, итальянский, португальский, румынский, словацкий и турецкий. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664566   (747243) от 04.06.2013
+
+Snowlinux 4.0 Frosty [Cinnamon, Mate] [i386 + amd64] (4xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+SnowLinux Frosty 4 базируется на Ubuntu 13.04 и использует ядро Linux 3.8. DE Cinnamon и Mate (MATE 1.6 and Cinnamon 1.8) являются средами рабочего стола по умолчанию, а LightDM - менеджером входа в систему. Дистрибутив дополнен новым функционалом:  Snowlinux Metal theme; Nemo 1.8; Caja 1.6; Firefox 21.0 and Thunderbird 17.0.5, а также произведено много других обновлений.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020004   (746485) от 25.05.2016
+
+OSGeo-Live 9.5 (Дистрибутив для географов, картографов, кризисного управления) [i386, amd64] 2xDVD, 1xVM
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлен очередной релиз OSGeo-Live — живого диска в виде DVD, образа для записи на USB-носитель и образа для виртуальной машины. Основан на Linux-дистрибутиве Lubuntu текущей LTS версии. Также может быть установлен на жесткий диск. Содержит обновленное до актуальных версий открытое/свободное ПО для работы с пространственными данными (ГИС, СУБД, веб-картография (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020008   (746244) от 25.05.2016
+
+Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
+
+Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5D9C1273A392742F71A699A691531DE62F5296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216690   (744360) от 03.04.2018
 
 BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i386, amd64]
@@ -6,7 +196,7 @@ BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +224,7 @@ DaVinci Resolve for Linux 17.4.3 Build 10 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +250,7 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [amd64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +278,7 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +306,7 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +332,7 @@ Sabayon 14.05 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +360,7 @@ Sabayon 14.05 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +388,7 @@ Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит б�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +414,7 @@ Edubuntu 14.04 LTS [x86, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -252,7 +442,7 @@ Lubuntu 14.04 LTS [x86, x86-64] 4xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -278,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -305,7 +495,7 @@ GeckoLinux "Rolling" edition 999.200729.0 [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +521,7 @@ ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +547,7 @@ Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +575,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +603,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +631,7 @@ Debian Edu - Skolelinux 10.5.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +657,7 @@ Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +683,7 @@ ArchBang 110418 beta[OpenRC] [x86-64] 1xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,190 +695,6 @@ ArchBang Linux — легковесный дистрибутив Linux с пла
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75295B566E4654EB2343A9E72582846F425F8968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892985   (714695) от 28.04.2015
-
-Mageia 5 RC [i586, x86-64] 7xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестой по популярности дистрибутив на сегодня по версии DistroWatch - форк Mandriva. Вчера вышел третий тестовый бета релиз следующего поколения Mageia - Mageia 5 RC.
-
-Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE. Также продолжена работа над дистрибутивом Live DVD различными рабочими окружениями, который впервые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3C969E9204556E61DE718FFADE6B027F3DEEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025259   (711957) от 11.06.2016
-
-Debian GNU/Linux 8.5.0 Jessie Live [i386] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711957.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате основного релиза, стали размещать пятое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BFA2D6F7A1AAA554E6470C96508C3AFFBCCF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025261   (711874) от 11.06.2016
-
-Debian GNU/Linux 8.5.0 Jessie Live [amd64] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711874.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73ED0F4F0F7F00B3F1DDCA6F1F742E9D13CD7DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025266   (711798) от 11.06.2016
-
-Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [i386] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711798.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате основного релиза, стали размещать пятое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9BAE42BA229E7B493233E4BE7D598C512C9DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025269   (711314) от 11.06.2016
-
-Debian GNU/Linux 8.5.0 Jessie Live (nonfree) [amd64] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711314.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате основного релиза, стали размещать пятое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583339EA4FBED88CC83B9F2462FDCF00486496C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095912   (700441) от 09.05.2017
-
-ZVVАнекдоты 0.2 [x86-x64] (deb)(обновляемая авторская раздача)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удобного чтения анекдотов и веселых историй онлайн с сайта:Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE5A57E54BC9329FDE485185876317B5FD55527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133027   (696876) от 11.05.2017
-
-Debian GNU/Linux 8.8 Jessie [i386] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Debian с радостью сообщает о восьмом обновлении своего стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются при необходимости.  Выпуск включает (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505F35AB676097D9912CB1A716000687B616C8CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

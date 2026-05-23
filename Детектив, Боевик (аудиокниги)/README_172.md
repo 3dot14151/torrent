@@ -1,3 +1,220 @@
+###  Публикация: 474961   (98001) от 29.03.2012
+
+Морис Леблан | Черная жемчужина [1995] [MP3, Галина Шумская]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рассказ
+Серия: Арсен Люпен - благородный грабитель / фр. Arsène Lupin gentleman cambrioleur (9 рассказов) 1907 год
+Оригинальное название:Жанр: ДетективИздательство: РДЗиП УОС
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35741E3512139DFCE96B24097AC65C599B1556FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474950   (97910) от 29.03.2012
+
+Мишель Лебрюн | Смерть молчит [2007] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Франсуа Малле ревнует свою жену к своему боссу и замышляет его убийство. А совершив задуманное, понимает, что убил кого-то другого, совершенно ему незнакомого. "Что я наделал? Это невероятно - я был способен убить человека? И вдобавок ещё ошибся! Убил кого-то, кого в жизни не видел, и только потому, что тот был одет в плащ из верблюжьей шерсти? Человека, который мог быть отцом семейства, который... Что за идиотизм! Не остается ничего, кроме как..."2007Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E3BA100261231C136874541A70289EB4A2FC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474298   (97898) от 28.03.2012
+
+Альфред Мейсон | Убийство в «Розовом павильоне» [2001] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Роман
+Оригинальное название:2001Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DC6674697496914D232C7DE9A983EEF202076D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473933   (97824) от 27.03.2012
+
+Ник Картер | Ужасная находка [1995] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия:  Ник Картер
+Ник Картер - американский Шерлок Холмс.
+Преступление должно быть раскрыто и преступники наказаны.
+ Американский преступный гений Доктор Кварц противостоит сыщику Нику Картеру в очередной схватке.1995Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58874F1B35A2B0C19E4B5DBFD86EFE3268F7197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473964   (97814) от 27.03.2012
+
+Джеймс Кейн | Двойная страховка [2005] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Повесть
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234160187C021330F6ED48A34F9ECDFC21338B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473945   (97802) от 27.03.2012
+
+Мария Ланг | Наследники Альберты [1983] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Оригинальное название:1983Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204E026CC24DC600D06891BF5FAD2008A5398569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473948   (97792) от 27.03.2012
+
+Мария Ланг | Шелк и бархат [2005] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Роман
+Оригинальное название:2005Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB70E9AA165F377C00FCC2BE97C30D687D599AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472972   (97677) от 25.03.2012
+
+Рекс Стаут | Пасхальный парад [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рассказ
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FB130DA8C5E260183D627404208FC078696751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471572   (97452) от 22.03.2012
 
 Раймонд Чандлер | Китайский жадеит [2001] [MP3]
@@ -6,7 +223,7 @@
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -466,220 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE46606572A039E4461FA3D2CEC3B9EF8149C594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469040   (96952) от 17.03.2012
-
-Эллери Квин | Тайна испанского мыса [2006] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2006Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D763B3B719AED8C9108C884F318269170B1F35DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469086   (96951) от 17.03.2012
-
-Росс МакДональд | Предсмертный взгляд [2002] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл  Лью Арчер / Lew Archer
-Оригинальное название:2002Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D9703F84F032A006E614CA87C3B33172FFBE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469091   (96950) от 17.03.2012
-
-Росс МакДональд | Человек в Кадиллаке [1995] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл  Лью Арчер / Lew Archer
-Оригинальное название:1995Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2079B9D4C29D04540E0A2FCEC922A3501B7568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469013   (96944) от 17.03.2012
-
-Эллери Квин | Застекленная деревня [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название: The Glass Village 1954 год.
-Роман «Застекленная деревня» занимает особое место среди детективов, написанных Эллери Квином. По сути дела, это психологический роман с криминальной подоплекой, в котором описывается своеобразная жизнь традиционной американской глубинки. Главный герой здесь — не хорошо известный сыщик, а Джонни, племянник судьи Шинна — одного из жителей деревни Шинн-Корнерс. Убита известная жительница деревни, а в её смерти обвинён бродяга, на свою беду посетивший в этот момент Шинн-Корнерс.2010Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CB14E66DBE7B3AFB1F4A52A6ADF05A07060F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469029   (96936) от 17.03.2012
-
-Эллери Квин | Тайна китайского апельсина [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:2007Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2711F665F4CF050AE0EE2B0E74642B3D4E5B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469023   (96918) от 17.03.2012
-
-Эллери Квин | Король умер [1995] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название:1995Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AAE770FB3016FCB328947373A22DD7F1EE671CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469035   (96912) от 17.03.2012
-
-Эллери Квин | Трагедия Игрек [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Друри Лейн
-Оригинальное название:2009Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72AD143D1820431FA3607559E848D400D8FB26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468139   (96721) от 15.03.2012
-
-Буало-Нарсежак | Смерть сказала: может быть. Вдовцы [2006] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский сборник
-- Смерть сказала: может быть, роман
-Оригинальное название:2006Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192E81A153B2D39038EC20EB86FE11F42260A526
 ```
 
 https://mybot314.ru/tekegram_catalog/

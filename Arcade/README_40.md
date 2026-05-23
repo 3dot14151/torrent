@@ -1,3 +1,29 @@
+###  Публикация: 1175082   (156208) от 24.12.2017
+
+Killer Instinct (2017) [Ru/Multi] (1.0/u3) Repack R.G. Catalyst
+
+>>След.
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Легендарная серия файтинг-игр возвращается, неся с собой обновленные визуальные эффекты, зашкаливающую динамику, потрясающий выбор бойцов, заводную музыку и ПР-Р-Р-РЕРЫВАТЕЛИ КОМБО!!! Выберите себе бойца по вкусу, ведь каждый из них — это классная анимация, уникальная тактика боя и захватывающие спецприемы.Тип издания: RepackРазработчик: Iron GalaxyЖанр: Action, Arcade (Fighting), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F806D8A730EA169FEEA1F878AC0F3422B631D5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588584   (155589) от 13.12.2012
 
 Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameWorks
@@ -6,7 +32,7 @@ Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Sundered (2017) [Ru/Multi] (911) Repack xatab [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves (2023) [Ru/Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +266,7 @@ FlashBack 2 (2023) [Multi] (1.00) Scene FAiRLIGHT
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Grand Theft Auto Mission Pack: London 1969 & 1961 (1999) [Ru/Multi] (1.0) Lossle
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Grand Theft Auto (1997) [Ru/Multi] (1.0) Lossless Repack R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Death's Gambit (2018) [Multi] (1.2) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Sundered (2017) [Ru/Multi] (17-12-2018) License GOG [Eldritch Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +500,7 @@ NotGTAV (2015) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Livelock (2016) [Ru/En] (1.0.25218) Repack Mizantrop1337
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +552,7 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Alien Shooter 2: Reloaded (2009) [Ru/En] (1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Sine Mora [En] (Repack) 2012 | R.G. Origami
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Valfaris: Mecha Therion (2023) [Ru/Multi] (1.0.3) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,34 +667,6 @@ Bad North (2018) [Ru/Multi] (1.05.1) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1A6B531472F57D5B14EA8CF6E9FE655F8CF8D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587979   (138605) от 18.12.2012
-
-Worms Revolution [Ru] (Repack/1.0/3DLC) 2012 | DiMoNFliX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вихри враждебные веют над ними — в новой игре из легендарной серии юморных походовых стратегий. Передовая 3D-графика делает любимых червячков еще очаровательнее, чем прежде. А еще смертоноснее их делает классический 2D-геймплей, обогащенный на сей раз поистине революционными возможностями. Безжалостные червячки-убийцы отныне способны перемещать предметы, обладающие всеми физическими свойствами, и даже высвобождать природную стихию, буквально смывая противника с уровня бурным потоком. Но самое главное — их индивидуальность. Бесшабашные кольчатые вояки наконец выучились по специальностям и теперь объединяются в отряды с оглядкой на личные качества. И — конечно, несомненно, разумеется — они раздобыли новое оружие!
-
-Червяки всех стран, вооружайтесь! Присоединяйтесь к великой кольчатой армии! Весь мир в труху! Во имя веселья!(   Читать дальше...   )Тип издания: RePackРазработчик: Team17 DigitalЖанр: Strategy / 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2CFE7A87F6938540630C167C1DCBC6B4A7B068
 ```
 
 https://mybot314.ru/tekegram_catalog/

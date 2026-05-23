@@ -1,3 +1,108 @@
+###  Публикация: 1542806   (635163) от 08.04.2022
+
+К востоку на Бикон / Walk East on Beacon! (1952) BDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм вдохновлён статьёй Дж. Эдгара Гувера под названием «Преступление века: дело шпионов атомной бомбы», которая была опубликована в «Ридерс Дайджест» в мае 1952 года. Снятый во времена "Красной Паники", фильм рассказывает о героических сотрудниках ФБР, разыскивающих группу шпионов, которые своими противоправными действиями подвергают опасности суверенитет (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: Драма, фильм-нуар, триллерРежиссер: Альфред Л. ВеркерАктеры: Джордж Мерфи, Финлэй Карри, Вирджиния Гилмор, Карел Степанек, Луиса Хортон, Питер Кэпелл, Бруно Уик, Джек Мэннинг, Карл Вебер, Роберт А. ДаннПеревод: Авторский (Андрей Дольский)Субтитры: отсутствуютПродолжительность: 01:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9431412247B5B2FC07F81B3F8E0C6C1FD5F49DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292561   (635093) от 04.04.2019
+
+Золото Калифорнии / Paint Your Wagon (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм о городке золотоискателей в Калифорнии 1840-х годов — до того, как Калифорния стала штатом, и до того, как на территории появилось много «порядочных и хороших» женщин.Производство: США / Alan Jay Lerner Productions, The Malpaso CompanyЖанр: Мюзикл, Драма, Мелодрама, Комедия, ВестернРежиссер: Джошуа ЛоганАктеры: Ли Марвин, Клинт Иствуд, Джин Сиберг, Харви Преснелл, Рей Уолстон, Том Лигон, Алан Декстер, Уильям О’Коннелл, Бенни Бэйкер, Алан БакстерПеревод: Профессиональный (многоголосый закадровый)Субтитры: Английские (Full, SDH)Продолжительность: 02:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F62F0A63D281CFC737DC881FDA579208879F824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537435   (634913) от 08.04.2022
+
+Поезд / Le train (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Француз Жюльен и молодая привлекательная немка еврейского происхождения Анна бегут от наступающей гитлеровской армии. Они оказываются в одном поезде, и с первого взгляда между ними возникает глубокое чувство.
+Но по прибытии к месту назначения они вынуждены расстаться, ведь у Жюльен есть семья. Через несколько лет судьба вновь сводит их вместе на допросе в гестапо…Производство: Франция, Италия / Capitolina Produzioni Cinematografiche, Lira FilmsЖанр: Драма, Мелодрама, ВоенныйРежиссер: Пьер Гранье-ДеферАктеры: Жан-Луи Трентиньян, Роми Шнайдер, Морис Биро, Поль Амио, Нике Арриги, Поль Ле Персон, Анна Вяземски, Роже Ибанез, Жан Лекот, Франко МацциериПеревод: Многоголосый профессиональныйСубтитры: Русские, французскиеПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5441F585947D53EDB5088CA4172C13BD8DBAC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519216   (634897) от 07.07.2012
+
+Сокровище Серебряного озера / Der Schatz im Silbersee (1962) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вождь Виннету и Шеттерхенд идут по следу полковника Бринкли — бессовестного негодяя, который во что бы то ни стало хочет заполучить легендарные сокровища Серебряного озера. Герои попадают в плен, и Бринкли первым добирается до пещеры с золотом. Он убивает стража и уже готов сбежать с заветным сокровищем, но умирающий страж приводит в действие секретный механизм, (   Читать дальше...   )Жанр: Вестерн, ПриключенияРежиссер: Харальд РайнльАктеры: Лекс Баркер,  Херберт Лом,  Пьер Брис,  Гёц Георге,  Карин Дор,  Ральф Вольтер,  Эдди Арент,  Марианне Хоппе,  Мирко Боман,  Сима Яничиевич...Перевод: Дублированный, многоголосый закадровыйЯзык субтитров: Немецкие, английскиеПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AAEEC5BDAC27FF5C4992806861C63CC47A3AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143314   (634853) от 18.06.2017
 
 Ведьмы / Le streghe (1967) DVDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6AC2375987C4446F61775F862425D031277655D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800563   (630497) от 04.07.2014
-
-Жандарм и жандарметки / Le Gendarme et les gendarmettes (1982) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630497.jpg" />
-</div>
-
-
-###  Подробнее
-
-К жандармам прислали суперстажеров – длинноногих красоток в мини-юбках. Жандармы в восторге – проводят учения с новенькими в три смены, 24 часа в сутки. А их жены в шоке – закатывают скандалы и требуют увольнения новых сотрудников. Через неделю всех девушек похитили: на черной машине увезли в неизвестном направлении и даже не потребовали выкупа. Если Крюшо не вернет (   Читать дальше...   )Производство: Франция, SNCЖанр: КомедияРежиссер: Тони Абоянц, Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Жан Лефевр, Мишель Модо, Женевьев Град, Жак Франсуа, Морис Риш, Клод Жансак, Катрин Сэр, Софи Мишо, Ги Гроссо, Франс Румийи, Бабет, Патрик ПрежанПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74180E438906AB444F93EC7DE645F128F6C2EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032814   (630298) от 15.07.2016
-
-Ганс Христиан Андерсен / Hans Christian Andersen (1952) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сапожник Ганс очень любит выдумывать сказки и рассказывать их детям, но в его родной деревне это приходится не всем по вкусу. Под влиянием своего подмастерья Питера Ганс решает отправиться на некоторое время в Копенгаген, где становится невольным свидетелем и участником непростых отношений между балериной и хореографом.Производство: США / Samuel Goldwyn CompanyЖанр: Мюзикл, Мелодрама, Семейный, БиографияРежиссер: Чарльз ВидорАктеры: Дэнни Кэй, Фарли Грейнджер, Зизи Жанмер, Джозеф Уолш, Филип Тонг, Эрик Брун, Ролан Пети, Джон Браун, Джон Кволен, Джинн Лафайетт, Роберт Малкольм, Джордж Чандлер, Фред Келси, Джил Перкинс, Питер Дж. Вотриан, Билли БеванПеревод: Профессиональный (двуголосый закадровый)Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1AC664D404C3BD522D133F0E1A35C1823B513F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680667   (629873) от 23.07.2013
-
-Крамер против Крамера / Kramer vs. Kramer (1979) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тед Крамер, целиком посвятив себя карьере, не замечает того, что происходит в собственной семье. Поэтому от него уходит жена, оставляя незадачливого отца заботиться о шестилетнем сыне. Теперь Крамер старший должен выступить в непривычной роли: ему предстоит ухаживать за Крамером младшим, проводить с ним больше времени и, наконец, попытаться проникнуть в хрупкий и (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Роберт БентонАктеры: Дастин Хоффман, Мэрил Стрип, Джейн Александр, Джастин Генри, Ховард Дафф, Джордж Коу, ДжоБет Уильямс, Билл Моор, Хоуланд Чемберлен, Джек Рэмэдж, Джесс Осуна, Николас ХорманнПеревод: Дублированный (Ленфильм), Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BA3E4A6C3E9730163B7CC8AF14FECDF838DF57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906512   (629621) от 16.06.2015
-
-Том Джонс / Tom Jones (1963) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жил когда-то на западе Англии сквайр Олворси. Однажды вечером он обнаружил в своей постели грудного ребенка. Разразился скандал. Мать незаконнорожденного малютки служанка Дженни была с позором изгнана прочь. А малыша сквайр решил оставить и воспитать как собственного сына. Мальчика назвали Том Джонс. Он рос веселым сорванцом, и по прошествии некоторого времени превратился (   Читать дальше...   )Производство: ВеликобританияЖанр: Комедия, приключения, история, мелодрамаРежиссер: Тони РичардсонАктеры: Альберт Финни, Сюзанна Йорк, Хью Гриффит, Эдит Эванс, Джоан Гринвуд, Дайан Чиленто, Джордж Дивайн, Дэвид Томлинсон, Розалинд Эткинсон, Анджела Бадделей, Эвис Баннейдж, Питер Булл, Джеймс Кэйрнкросс, Джордж А. Купер, Марк Дигнам, Джулиан Гловер, Фрида Джексон, Рэйчел Кемпсон, Розалинд Найт, Линн Редгрейв, Дэвид Уорнер, Джойс РедманПеревод: Профессиональный многоголосыйПродолжительность: 02:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39AFC3E9E6409CC102C9E4899A8B2476D5326B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

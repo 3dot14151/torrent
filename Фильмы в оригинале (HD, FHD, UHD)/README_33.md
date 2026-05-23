@@ -1,3 +1,81 @@
+###  Публикация: 1238100   (548710) от 27.07.2018
+
+Пусть трупы позагорают / Laissez bronzer les cadavres (2017) BDRip [H.264/1080p] [EN / EN, GER, POR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Где-то на Лазурном берегу в старом замке обосновалась компания грабителей. Удачно похитив 250 кг золота и скрываясь на автомобиле, по пути они подбирают двух женщин и мальчика. Оказывается, что одна из них — жена писателя, живущего в тех же развалинах. А когда к ним всё же заявляется полиция, начинается затяжная перестрелка, живыми из которой выберутся немногие.Производство: Франция, Бельгия / Anonymes Films, Tobina Film, Canal+Жанр: ТриллерРежиссер: Элен Катте, Бруно ФорцаниАктеры: Элина Ловенсон, Стефан Феррара, Берни Бонвуазен, Микеланджело Марчезе, Марк Барбе, Херв Сонь, Пьер Ниссе, Дорилия Калмел ...Перевод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Английские, немецкие, португальскиеПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1252700FACA96974595AD87B8400B9CC412A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047873   (548039) от 31.08.2016
+
+Налетчики / Marauders  (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История об агенте ФБР, который нападает на след преступников, ограбивших банк и отдавших все украденные деньги на благотворительные нужды. Чем дальше продвигается расследование, тем больше главный герой убеждается в том, что у владельца банка имеются собственные секреты.Производство: КанадаЖанр: боевик, триллер, криминалРежиссер: Стивен С. МиллерАктеры: Брюс Уиллис, Кристофер Мелони, Дэйв Батиста, Эдриан Гренье, Лидия Халл, Тайлер Джон Олсон, Кристофер Роб Бауэн, Ричи Чэнс, Крис Хилл, Дэнни А. Абекейзер, Тексас Бэттл, Тара ХолтПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3E6D9125B5F220E5E3F0B51E84CB663BD00022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047870   (547991) от 31.08.2016
+
+Призыв / The Call Up  (2016) BDRip [H.264/1080p] [EN]
+
+>>След.
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа элитных онлайн-игроков получает таинственное приглашение от корпорации Заибатцу, испытать в реальной жизни крутую видеоигру - это мечта, перед которой невозможно устоять. Прибыв на полигон, группа получает высокотехнологичную экипировку и готовится к революционной игре. Но то, что начинается как встреча с мечтой, уникальным и волнующим опытом, быстро превращается (   Читать дальше...   )Производство: ВеликобританияЖанр: фантастика, боевикРежиссер: Чарльз БаркерАктеры: Морфидд Кларк, Кристофер Оби, Макс Дикон, Том Бенедикт Найт, Паркер Сойерс, Малкольм Модель, Али Кук, Адриана Рэндолл, Дино Фаззани, Грег Колпакчи, Борис ЛерПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C892B4BBD58ABC5E7F390F218512BFB454FD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047816   (547987) от 31.08.2016
 
 Неоновый демон / The Neon Demon (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E72EC93BF60B041BF3C13C363BEBDA07D31A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819055   (533577) от 07.09.2014
-
-Книга Есфирь / The Book of Esther (2013) BDRip [1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Есфирь - извечное противостояние добра и зла. Которое происходит между Мардохеем, дядей Есфирь, и Аманом, первым министром царя Артаксеркса, который ведет двойную игру за спиной царя. Аман хочет уничтожить Мардохея и весь Еврейский народ. Жизнь Мардохея и судьба Еврейского народа находится в руках Есфирь. Сможет ли она завоевать любовь царя, разоблачить коварство (   Читать дальше...   )Производство: США, Pure Flix EnterteinmentЖанр: Драма, Исторический (библейский)Режиссер: Дэвид Э.Р. УайтАктеры: Джен Лиллей, Линда Бисести, Джон Клемент, Касс Коннорс, Энтони Л. Фернандес, Марк Ирвингсен, Кристофер Джек, Марко Хэнлиэн, Дженнифер ЛайонсПеревод: ОтсутствуетЯзык субтитров: АнглийскийЯзык: АнглийскийПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BB0BF0125E222FA151ACFE15F65D6FDE6A1E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819351   (533403) от 07.09.2014
-
-Книга Есфирь / The Book of Esther (2013) BDRip [720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Есфирь - извечное противостояние добра и зла. Которое происходит между Мардохеем, дядей Есфирь, и Аманом, первым министром царя Артаксеркса, который ведет двойную игру за спиной царя. Аман хочет уничтожить Мардохея и весь Еврейский народ. Жизнь Мардохея и судьба Еврейского народа находится в руках Есфирь. Сможет ли она завоевать любовь царя, разоблачить коварство (   Читать дальше...   )Производство: США, Pure Flix EnterteinmentЖанр: Драма, Исторический (библейский)Режиссер: Дэвид Э.Р. УайтАктеры: Джен Лиллей, Линда Бисести, Джон Клемент, Касс Коннорс, Энтони Л. Фернандес, Марк Ирвингсен, Кристофер Джек, Марко Хэнлиэн, Дженнифер ЛайонсПеревод: ОтсутствуетЯзык субтитров: АнглийскийЯзык: АнглийскийПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86199AC319CC46E710B4A4E4A50F4A25284CF53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155454   (532883) от 03.08.2017
-
-Чужой: Завет / Alien: Covenant (2017) Blu-ray [H.264/1080p] [EN, SP, FR, POR / EN, SP, FR, DAN, FIN, NOR, POR, SWE Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время обследования удаленной планеты, расположенной на другой стороне галактики, экипаж колониального корабля «Завет» обнаруживает, что то, что они изначально приняли за неизведанный рай, на самом деле — тёмный и опасный мир. Его единственный житель — синтетический андроид Дэвид, оставшийся в живых после обреченной экспедиционной миссии «Прометей».Производство: США, Великобритания, Австралия, Новая Зеландия, Канада / Twentieth Century Fox Film Corporation, Scott Free Productions, TSG EntertainmentЖанр: Ужасы, Фантастика, ТриллерРежиссер: Ридли СкоттАктеры: Майкл Фассбендер, Кэтрин Уотерстон, Билли Крудап, Дэнни МакБрайд, Демиан Бишир, Кармен Эджого, Джусси Смоллетт, Калли Эрнандес, Эми Саймец, Натаниель Дин ...Перевод: ОтсутствуетЯзык озвучки: Английский, Испанский, Французский, ПортугальскийСубтитры: Английские, Испанские, Французские, Датские, Финские, Норвежские, ШведскиеПродолжительность: 02:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0F27CE48184AF5FB6B464DAE9A8757CA3D689B
 ```
 
 https://mybot314.ru/tekegram_catalog/

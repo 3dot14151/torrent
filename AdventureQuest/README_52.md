@@ -1,3 +1,107 @@
+###  Публикация: 1340859   (263181) от 25.11.2019
+
+The Lift (2018) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Макс - хамоватый подросток и разгильдяй. Нехватка денег вынуждает его разносить пиццу. Во время доставки очередного заказа Макс ссорится с матерью. Квартира, куда нужно доставить заказ находится на 13 этаже.Тип издания: RepackРазработчик: Bulls BrosЖанр: Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341083   (262781) от 26.11.2019
+
+Heavy Rain (2019) [Ru/Multi] (1.0/build 362) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в напряженный психологический триллер, где ваш выбор и действия могут привести к драматическим последствиям... и определите, кто останется в живых, а кто умрет. Мастер Оригами терроризирует город, который получил такое прозвище из-за своей жуткой визитной карточки — манеры оставлять на месте преступления сложенные из бумаги фигурки, не оставляет полиции (   Читать дальше...   )Тип издания: RepackРазработчик: Quantic DreamЖанр: Adventure, Interactive, 3DЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE50354949DE0BD8CB8C9FE21D9B6524129357B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193330   (262198) от 20.12.2017
+
+Mind: Path to Thalamus (2015) [Ru/Multi] (1.1) License PLAZA [Enhanced Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Mind: Path to Thalamus – головоломка с видом от первого лица, действия которой развиваются в фантастическом сюрреалистическом мире. Для продвижения уровнями нужно буквально подчинять своей воле окружающую среду. Все это возможно благодаря тому, что протагонист путешествует по миру, созданному им самим в своем разуме, а локации во многом зависят от текущего эмоционального (   Читать дальше...   )Тип издания: LicenseРазработчик: Carlos Coronado, Dani Navarro, Luka NietoЖанр: Logic (Puzzle), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F2920DC68F62C428CE227B1259DEC4DDE48A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187535   (262154) от 20.12.2017
+
+Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Шотландия, 1926 год. После известия о самоубийстве отца Дэвид Гордон впервые приезжает в родовое поместье. Мрачные тайны этого места свели с ума немало Гордонов, и следующей жертвой может стать он сам. С самого детства Дэвида терзают кошмары и видения. Он живет в страхе, что ему суждено повторить судьбу отца и пойти дорогой, ведущей к безумию и смерти. Действительно (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FA14B1E7E7518451D0C6DC32F5395EC77F6AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158492   (262010) от 21.12.2017
 
 Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode 1-5]
@@ -6,7 +110,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Granny Remake (2023) [Ru/Multi] (3.6.3) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Phoenix Wright Ace Attorney Trilogy (2019) [Ru/Multi] (Build 20282248) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Radiolight (2025) [Multi] (0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Nostradamus: The Last Prophecy / Нострадамус: Последнее пр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Adventures of Maddog Williams in the Dungeons of Duridian [En] (RePack) 1992 | P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Syberia / Сибирь (2002) [Ru/Multi] (1.0.0hf4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +318,7 @@ TimeQuest [En] (RePack) 1991 | RG Games (Pilotus)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Still Life 1, 2 (2005-2009) [Ru/En] (1.00) Repack R.G. Catalyst [Dilogy / Дил
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Nancy Drew: Legend of the Crystal Skull / Нэнси Дрю: Легенда о �
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Escape from Duckov (2025) [Ru/Multi] (1.2.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +450,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Entomorph: Plague of the Darkfall [En] (RePack) 1995 | RG Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Shenmue III (3) (2020) [Multi] (1.06.01/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +528,7 @@ DE-EXIT - Eternal Matters (2023) [Ru/Multi] (1.0.23.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Agatha Christie - Death on the Nile / Агата Кристи - Смерть н�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Sushi Ben (2025) [Ru/Multi] (1.5.250918.5) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Knock On The Window (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Lumo (2016) [Ru/Multi] (2.4.0.6) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Lumo, волшебный платформер повышенной степен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560081   (256617) от 15.11.2025
-
-The Stillness of the Wind (2019) [Ru/Multi] (1.1.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один за другим все уехали из некогда людной деревни в город. Все, кроме Тальмы. На склоне лет она ведет простую уединенную жизнь, день за днем ухаживая за своим хозяйством и козами. Распоряжайтесь своим временем и решайте, как вы будете заботиться о ферме и животных. Ухаживайте за козами, варите сыр из их молока, собирайте яйца, готовьте еду, выращивайте овощи и (   Читать дальше...   )Тип издания: LicenseРазработчик: Memory of God, Lambic StudiosЖанр: ПриключениеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7824570115AECAA95523B9DA6BC81CF48CB5A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837028   (255904) от 14.11.2025
-
-Venba (2023) [En] (2025.10.06) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Venba рассказывает историю молодой мамы, которая иммигрировала в Канаду из Индии в 80-х годах прошлого века. Её любимое занятие - готовка, и она хочет восстановить как можно больше утерянных рецептов. Геймерам же предстоит принять непосредственное участие в этом процессе, параллельно раскрывая детали сюжета. В частности, можно получить больше информации о семье героини (   Читать дальше...   )Тип издания: LicenseРазработчик: Visai GamesЖанр: Приключение, Казуальная игра, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26C143ED6C798A7E0421A4AED89A6AEA8EBCDF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836883   (255620) от 13.11.2025
-
-Sarah 2 - Das Geheimnis der Einhornfohlen / Девочка и единорог (2007) [Ru] (1.0) License Новый Диск
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ласковый ветерок играет листьями огромных древних деревьев, над душистыми цветами порхают, смеясь, маленькие феи, а в тени загадочно светятся лесные духи… Какой чудесный день! Сейчас Софи соберет урожай фруктов и пойдет проведать трех маленьких единорогов, которые живут у нее на ферме… Но куда же они подевались?!Тип издания: LicenseРазработчик: Kritzelkratz 3000Жанр: Приключение, СимуляторЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA49F64552FDB45635177499A90FEA6A331892E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624349   (255496) от 05.04.2023
-
-Road 96: Mile 0 (2023) [Ru/Multi] (Build 10917954) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Road 96: Mile  (приквел к Road 96) — это сюжетная игра с акцентом на музыке. В Road 96: Mile  вы будете по очереди управлять двумя подростками по имени Зои и Кайто, которые живут и смотрят на мир совершенно по-разному. Добро пожаловать в роскошный Уайт-Сэндс, дом петрийской элиты, где работают родители Кайто. Зои знакома всем, кто играл в Road 96. Она живет в богатом (   Читать дальше...   )Тип издания: RepackРазработчик: DigixartЖанр: Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED80CA3831A59F5063847AA2552400501A4C9375
 ```
 
 https://mybot314.ru/tekegram_catalog/

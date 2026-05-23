@@ -1,3 +1,107 @@
+###  Публикация: 1753815   (7956) от 14.08.2025
+
+Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258.834/dlc) Repack Decepticon
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Изучайте новые здания и локации – в некоторые из них нельзя было попасть в оригинальной игре, а некоторые впервые появились в ремейке. Насладитесь знаменитым сюжетом, взглянув при этом на Сайлент Хилл по-новому благодаря расширенной карте.Тип издания: RepackРазработчик: Bloober Team SAЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F301152E03740EB4AD9F57BFEF708433C8B50495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799045   (7940) от 14.08.2025
+
+Kulebra and the Souls of Limbo (2025) [Multi] (1.1.5) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В роли Кулебры (Kulebra) вы исследуете Лимбо (Limbo, так же "Чистилище"), яркую загробную жизнь с латиноамериканским нотками, полную опасностей, интриг, юмора, коварства и глубоких, мрачных тайн. Вы будете использовать множество приемов и навыков, чтобы помочь разноцветным (в буквальном смысле) обитателям Лимбо принять их проблемы, связанные с потерями, (   Читать дальше...   )Тип издания: LicenseРазработчик: GallaЖанр: Приключенческие игры, ИндиЯзык интерфейса: Английский, Испанский (Латинская Америка)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72D87B63C9D602B6964BB3EA32B2F3181C30403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812335   (7931) от 14.08.2025
+
+BROK the InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сюжетная приключенческая игра, сочетающая в себе экшен и расследования так, как никогда ранее. Используешь ли ты свой острый ум или кулаки? В футуристичном мире, где животные заняли место людей, привилегированные горожане живут под Куполом, защищающим их от загрязненной окружающей среды, в то время как остальные изо всех сил борются за выживание.Тип издания: RepackРазработчик: COWCATЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80E9B4663D472151823D2BA95B30FD27E44F6B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812515   (7754) от 15.08.2025
+
+Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.12.09.11/dlc) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Из-за глобального катаклизма портовая служба решает расконсервировать старый маяк, чтобы сохранить судоходство. Герой отправляется на остров, чтобы стать смотрителем маяка. От его решений зависит судьба кораблей и города. Дома его ждут жена и дочь. С каждой ночью служба на маяке становится всё хуже.Тип издания: RepackРазработчик: solarsuit.gamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C560C51B13BE5023BF5E2E0D254C6E5B318C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804533   (7565) от 16.08.2025
 
 Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
@@ -6,7 +110,7 @@ Labyrinth of the Demon King (2025) [Ru/Multi] (1.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Night Loops (2023) [Ru/Multi] (1.4.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack Wante
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Boxville 2 (2025) [Ru/Multi] (2.17.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (Build 19131828) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Empyrion - Galactic Survival (2020) [Ru/Multi] (1.13/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ PEAK (2025) [Ru/Multi] (1.24a) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The End of the Sun (2025) [Ru/Multi] (2.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Beast Inside (2019) [Ru/Multi] (1.05) Repack Yaroslav98
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.5.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Primordia (2012) [Multi] (5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Blackwell Legacy (2006) [En] (4.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Blackwell Legacy – приключенческий квест о молод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814241   (6184) от 24.08.2025
-
-Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6184.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Bendy: Lone Wolf играешь за мультяшного волка Бориса, который бродит по старой анимационной студии. Студия эта, кстати, каждый раз по-новому выстраивается, так что никогда не знаешь, что за следующим поворотом. А ещё по всей студии разбросаны всякие полезные штуки и оружие, которые помогают выживать.Тип издания: RepackРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE8506652DC97424FA830FED8F9D18DEE7DD33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814370   (6145) от 24.08.2025
-
-Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6145.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Bendy: Lone Wolf играешь за мультяшного волка Бориса, который бродит по старой анимационной студии. Студия эта, кстати, каждый раз по-новому выстраивается, так что никогда не знаешь, что за следующим поворотом. А ещё по всей студии разбросаны всякие полезные штуки и оружие, которые помогают выживать.Тип издания: LicenseРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679256   (6052) от 25.08.2025
-
-Dave the Diver (2023) [Ru/Multi] (1.0.5.1674/dlc) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: SceneРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814439   (6042) от 25.08.2025
-
-Skully (2020) [Ru/Multi] (1.0.161.6416) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skully наделён силой волшебной глины и должен пройти через далёкий райский остров, чтобы помочь загадочному божеству положить конец угрожающей острову вражде. На далёком таинственном острове на берег выбросило череп, и местное божество пробудило его. Череп получил имя Skully, и теперь он должен остановить войну между тремя родственниками божества, потому что она (   Читать дальше...   )Тип издания: RepackРазработчик: Finish Line GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82B1E26B1688ABDA2CC51CB113C64910C9FBE79
 ```
 
 https://mybot314.ru/tekegram_catalog/

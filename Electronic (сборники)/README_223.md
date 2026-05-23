@@ -1,3 +1,146 @@
+###  Публикация: 1765790   (34076) от 15.12.2024
+
+VA - Musical kaleidoscope part 17 Electronic, Instrumental, Easy listening (2024) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Boychenko - Out of Time
+02. Sisco Le Voyageur - Enigma French 35
+03. Dj Polkovnik - Pro Sinus
+04. Dj Artur - Thundery Night(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD68077A1B3D604140B356AADE45DB3F66C0375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765798   (34063) от 15.12.2024
+
+VA - Compilation part 134 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Blind
+02. Dndm - Four Keys
+03. A-Sultan - Shock
+04. Davit Barqaia - The Fog is Coming(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F83EABBE8D0D924D1A034980FFEE61B6AD50EBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769430   (32783) от 28.12.2024
+
+VA - Remixes 2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Tommy Richman - Million Dollar Baby (Yuma Remix) (Dirty) (7:58)
+002. Jago Alejandro Pascua - Before The Sun Will Rise (Alex Raider Extended)Жанр: Club, Dance, OtherПродолжительность: 26:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF138919850D53B9CCF71E2FB3843BC95D4C12D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769766   (32659) от 29.12.2024
+
+VA - Крутые пушки Зима 2024-2025 (2024) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Sinclar - World Hold On (FISHER Rework) (5:32)
+02. The Black Eyed Peas - Pump It ( Dj ImPulSe Remix) Radio Edit (1:54)
+03. Люся Чеботина, Ваня Дмитриенко - Gimme! Gimme! Gimme! (DJ Desving Radio Edit) (2:20)
+04. Karan Aujla & Ikky - Softly (Tiesto Remix) (2:15)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFB024315949C177C8528594D8E0B5BCFBA895E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770695   (32077) от 03.01.2025
+
+VA - Compilation part 137 Electronic (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Jumanov - Time Does Not Go Back
+02. Joni - Chest Pain
+03. Akmalov - Love Story Vol.1
+04. Besso - Dancing in the Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3E812221387897177E57E74E534262827B6C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772695   (31180) от 12.01.2025
 
 DJ Polkovnik - compilation 2 (2025) [MP3|320 Kbps] <Electronic, Instrumental, Trance, Techno, Ambient>
@@ -6,7 +149,7 @@ DJ Polkovnik - compilation 2 (2025) [MP3|320 Kbps] <Electronic, Instrumental, Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -35,7 +178,7 @@ VA - Record Super Chart 11.01.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -64,7 +207,7 @@ VA - Musical kaleidoscope part 20 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -93,7 +236,7 @@ VA - Compilation part 138 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -122,7 +265,7 @@ VA - Musical kaleidoscope part 21 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -151,7 +294,7 @@ VA - Trance In Motion Vol.384 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -180,7 +323,7 @@ VA - EDM Audioholics Vol. 03 (2025) [MP3|320 Kbps] <Dance, Club, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -209,7 +352,7 @@ VA - Night Rider 8 (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -236,7 +379,7 @@ VA - Musical kaleidoscope part 22 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -265,7 +408,7 @@ VA - Compilation part 139 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -294,7 +437,7 @@ Neuron - Compilation 2 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -323,7 +466,7 @@ VA - Car Music Mix 6 (2025) [MP3|320 Kbps] <Bass House, Bass Progressive, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -352,7 +495,7 @@ VA - Assorted remixes compilation (2025) [MP3|320 Kbps] <Electronic, Instrumenta
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -381,7 +524,7 @@ VA - Record Super Chart 15.02.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -410,7 +553,7 @@ VA - Supernova Explosion (2025) [MP3|320 Kbps] <Dance, House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -439,7 +582,7 @@ VA - Trance In Motion Vol.385 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -468,7 +611,7 @@ VA - Musical Kaleidoscope Part 31 Electronc (2025) [MP3|320 Kbps] <Electronic, I
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -497,7 +640,7 @@ VA - Winter Cafe Bar (2025) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +669,7 @@ VA - Space Odissey (2025) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -555,7 +698,7 @@ VA - Digital Dreams (2025) [MP3|320 Kbps] <Synthwave, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -584,7 +727,7 @@ VA - Vocal Trance NNM 4 (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -598,151 +741,6 @@ VA - Vocal Trance NNM 4 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9970245CE4611E681E7767BE76A9895D2E52A5BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783344   (25607) от 05.03.2025
-
-VA - Compilation part 146 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muvi - Siena
-02. Jumanov - Need You
-03. A-Sultan - Be My Lover
-04. Hamidshax - Solo(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D9571A8ED4895A469B783F59AA31117ED275BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784382   (25015) от 11.03.2025
-
-VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muvi - Species
-02. Jumanov - Be Careful
-03. Davit Barqaia - Listen to Me
-04. Jambeats - Drift Away(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785260   (24578) от 15.03.2025
-
-VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumanov - Those Moments
-02. Delal Derin - Hard to Forget You
-03. Muvi - April
-04. Akmalov - Bassline(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961B55E197BF33A5FE6A0A9B21401B3E866760CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785485   (24452) от 16.03.2025
-
-VA - Record Super Chart 15.03.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misha Miller feat. Alex Velea - Bam Bam (2:30)
-02. Alan Walker & Meek - Dancing In Love (2:36)
-03. Anyma & Ellie Goulding - Hypnotized (3:00)
-04. Hugel, Topic, Arash, Daecolm - I Adore You (3:34)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484A4E61BE4A180E9EA64B5786B6EDE1FCA6134D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545744   (23597) от 25.03.2025
-
-VA - Workout Motivation ( #GHouse Edition)[Mixed by Sergey Sychev] (2018-2025) [MP3|320 Kbps] <GHouse, Hard House, Bass House> -  Обновляемая раздача
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Furkan Soysal & Sozer Sepetci - Money
-2. WHOWHENWHY - Monsters 'n' Stuff (feat. Matthew Anthony)
-3. Freaky DJs, LUJANO - Blood Moon
-4. Solomonio - Yali Yali(   Читать дальше...   )Жанр: GHouse ,Hard House,Bass HouseПродолжительность: 1 день, 16:29:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A6A23E15951D8F6C8225650991B901B0AD5EFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

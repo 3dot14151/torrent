@@ -1,3 +1,55 @@
+###  Публикация: 1127759   (730347) от 22.04.2017
+
+Eador: Masters of the Broken World / Эадор: Владыки миров (2013) [Ru/Multi] (1.7.0/dlc) SteamRip Let'sPlay
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эадор — это вселенная, состоящая из множества осколков тверди, плавающих в Великом Ничто. Каждый из таких осколков — маленький мир, со своим ландшафтом и обитателями. За власть над осколками идет постоянное соперничество между Владыками — бессмертными сущностямиТип издания: SteamRipРазработчик: Unicorn Games Studio, Алексей Бокулев, Snowbird Game StudiosЖанр: Strategy (Turn-based), 3DЯзык озвучки: Русский, Английский (только в интро)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C595E3817B03851962A7D8F218EC4858CA4F3EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530100   (729432) от 10.02.2022
+
+War Mongrels (2021) [Ru/Multi] (42052) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+War Mongrels — это изометрическая тактическая игра в реальном времени, события которой происходят на восточном фронте Второй мировой войны. Сюжетная кампания игры основана на реальных, мрачных событиях и историях того времени. Ощутите темную сторону войны в одиночку или в кооперативном режиме.Тип издания: RepackРазработчик: Destructive CreationsЖанр: Strategy (RTS), Adventure (Isometric), ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7B72D1FB4B459A1C14F160CD3C0704CC053587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128163   (729287) от 23.04.2017
 
 Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Edition]
@@ -6,7 +58,7 @@ Halo Wars (2017) [Ru/En] (1.12033.2.0hf) Repack R.G. Revenants [Definitive Editi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.21863/dlc) Repack xatab [Master Collec
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Check Your 6! (2018) [En] (1.0) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Mutant Year Zero: Road to Eden (2018) [Ru/Multi] (1.06) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Sudden Strike 4 (2017) [Ru/En] (1.15/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Brink of Extinction (2017) [Ru/Multi] (1.0) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Army General (2017) [En/Ge] (1.0.25) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Company of Heroes 2 (2013) [Ru/En] (4.0.0.21725/dlc) Repack R.G. Механик�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ SteamWorld Heist (2016) [Ru/Multi] (2.0/b.2.1.2.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) License PLAZA 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Door Kickers (2014) [Ru/Multi] (1.0.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Hard West (2015) [Ru/Multi] (1.4.160303.1235/dlc) Repack R.G. Revenants
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.5.9139/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ Call to Arms (2018) [Ru/Multi] (1.200/dlc) Repack xatab [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Blackguards (2014) [Ru/En] (1.7.23231/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0-449R/dlc) Repack R.G. Механики [Digi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.70/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -608,7 +660,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ Phantom Doctrine — шпионская пошаговая стратегия-т
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29239CCD398050E727D098B320809BE2B49D05AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136836   (670419) от 24.05.2017
-
-Steel Division: Normandy 44 (2017) [Ru/Multi] (300080502/dlc) SteamRip Let'sPlay [Deluxe Edition]
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steel Division: Normandy 44 — это тактическая стратегия в реальном времени (RTS) , разработанная студией Eugen Systems, создавшей серию Wargame и стратегию R.U.S.E. Эта новая игра предоставляет под ваше командование детально прорисованные и исторически точно воспроизведенные танки, пехотные войска и прочую боевую технику на полях сражений второй мировой войны.Тип издания: SteamRipРазработчик: Eugen SystemsЖанр: Strategy (RTS), Tactics, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5E919CF8CD36ECC697CC43E6E27B0CE4E567C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137403   (667569) от 26.05.2017
-
-Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орда инопланетных танков заполнила улицы, повсюду сея хаос и террор, в ваших руках судьба человечества! Исследуйте мир танковых боёв будущего в новой стратегии в реальном времени. 2152 год. Времена Прокси-войн, когда автономные танки и роботы, удалённо контролируемые пилотами, сражались друг с другом, наконец окончены.Тип издания: LicenseРазработчик: VR FeaturesЖанр: Strategy Tactical (RTS, TBS)Язык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B695085A9376056A9D60E9243474ED87E218DCD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

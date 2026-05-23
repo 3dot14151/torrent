@@ -1,3 +1,206 @@
+###  Публикация: 1074759   (335843) от 20.11.2016
+
+Nick Cave & Warren Ellis - Mars / Марс (Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Mars (Theme) (01:43)
+02. Mars (04:01)
+03. Daedalus (03:01)
+04. Earth (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C617F16956B5B7B7269713668BC7466CA13A1E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419989   (335712) от 30.10.2020
+
+Jim Brickman - Joy (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Little Drummer Boy
+02. Lights Of Christmas
+03. The Twelve Days Of Christmas
+04. Shades Of White(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAD3FB7DA8AB5931E43E0074C587BCD17393720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420027   (335616) от 30.10.2020
+
+Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman - I'll Be Home For Christmas
+02. Winter Wonderland
+03. O Tannenbaum
+04. Snowflake(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F2DD76FA5FE2420CA2B1BBF439F1F07DCA5519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074258   (335562) от 20.11.2016
+
+Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing's Gonna Hurt You Baby
+02. I'm a Firefighter
+03. Dreaming of You
+04. Starry EyesЖанр: Dream Pop, Indie Pop, AmbientПродолжительность: 00:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181324   (335072) от 06.11.2017
+
+VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Will Byers - INTRO - Will Singing the Clash (00:27)
+02. The Police - Every Breath You Take (04:12)
+03. The Clash - Should I Stay or Should I Go (Remastered) (03:06)
+04. Jim Hopper - 'Coffee and contemplation' (00:09)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C026A8852CE0BFD1AE20CB03036996162C0CE864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181081   (335067) от 06.11.2017
+
+Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Spirits 03:30
+02. Dusk 04:19
+03. Wolf's Heart 03:25
+04. Indian Fire 03:28(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E319F6CAFD913AA2189951FF43B43A7B43025C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331076   (334984) от 13.10.2019
+
+Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1.Dawn (2:35)
+2.Pianissimo (3:26)
+3.Alpine Meadow (3:20)
+4.Peaceful Stream (2:52)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331088   (334664) от 13.10.2019
 
 VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -6,7 +209,7 @@ VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +293,7 @@ VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, P
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +322,7 @@ VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +351,7 @@ VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, D
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +409,7 @@ Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +438,7 @@ Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +467,7 @@ Trevor Jones / Randy Edelman - Последний из могикан / The Last
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +496,7 @@ Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +525,7 @@ Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +554,7 @@ Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +583,7 @@ Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +612,7 @@ Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +641,7 @@ Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music &
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +670,7 @@ Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -496,7 +699,7 @@ Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OS
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +725,7 @@ John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетлан�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,215 +739,6 @@ John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетлан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2339796E7DA87B9C8A8B3C7E1429F67CD514CF50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420617   (332481) от 01.11.2020
-
-VA - Идеальный голос / Pitch Perfect OST (2012) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Treblemakers - Don't Stop The Music (3:05)
-02. The Treblemakers - Let It Whip (2:22)
-03. Ester Dean & Skylar Astin - Since U Been Gone (2:26)
-04. Anna Kendrick - Cups (1:18)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50AC50EC1EE8CFFC9D0CB7354B863E731AF1A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331460   (332341) от 15.10.2019
-
-Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332341.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Innocence	03:02
-2. Sweet Honey	02:41
-3. Yin and Yang	04:27
-4. Sweet Sadness	04:12(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420627   (331896) от 01.11.2020
-
-James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonnenschein über den Wolken
-02. Karussell der Liebe
-03. Aliscia
-04. Distant Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6A4A5C869A0BD0DD21F8332E0CE8EAAC336D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420649   (331270) от 02.11.2020
-
-VA - Идеальный голос / Ultimate Pitch Perfect OST (2015) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Kendrick - Cups (When I'm Gone) Pop Version (2:08)
-02. The Treblemakers - Don't Stop the Music (3:05)
-03. The Outfit - 212 vs. Bust a Move (1:27)
-04. The Treblemakers - Let it Whip (2:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDFEF10540172BD2168F92AFE9B6090DD7E6176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956041   (331148) от 13.11.2015
-
-Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]<World, Folk, African, Celtic, Persian Classical, Relax>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lowlands
-02. Breaking The Ice
-03. Ei Vaka
-04. Duduk(   Читать дальше...   )Жанр: World, Folk, African, Celtic, Persian Classical, RelaxПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1ACD7FB917919EF4C247B2E0E4AEEE00C87056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259553   (330580) от 20.11.2010
-
-OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Hold on I'm Comin' - Sam & Dave
-2.People Are Crazy- Billy Currington
-3.The White Room - Cream
-4.New Moon Rising - Wolfmother
-5.Mykonos - Fleet Foxes
-6.This Is Why I'm Hot - Mims
-7.Old Man (Live At Massey Hall) - Neil Young
-8.Hey You - Pink Floyd
-9.Sweet Jane - Cowboy Junkies
-10.Is There a Ghost - Band of Horses(   Читать дальше...)Жанр: SoundtrackПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6843319372380D85D329F561A502996DCE3BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579355   (329913) от 02.10.2022
-
-Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind
-02. Cathedral
-03. November
-04. Premonition(   Читать дальше...   )Жанр: Electronic, Vocal, New AgeПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828746BD924514CD224EDA4FA64313ABBB58ECBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1025052   (289953) от 06.12.2016
+
+Русский язык - грамотей v1.2.1 [Ru] - тренажер для подготовки к экзаменам по русскому языку (ЕГЭ, ЦТ, ЗВ)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Лучший тренажер для подготовки к экзаменам по русскому языку! Тысячи задач, которые помогут вам сдать ЕГЭ, ЦТ, ЗВ и любой другой экзамен по языку.Тип издания: Пиратка (все курсы разлочены)Релиз состоялся: 01.12.2016Разработчик: (Andrei & Aleksandr Krupiankou)Поддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951CDAB891D1DA8AEBF42078C6AA1ECC3BD7E45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080515   (288126) от 07.12.2016
+
+Справочник инженера сварщика Premium 1.1.3 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Справочник инженера сварщика" разработан в помощь специалистам сварочного производства при предварительной оценки норм расхода сварочных материалов и выбора технологии сварки.
+Содержит справочные материалы по технологии сварки стальных конструкций, расчету основных (по размерам и весу) и сварочных материалов (по весу проката и длинам швов), маркам сталей (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 января 2016 г.Разработчик: Sergey MalyshevПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8148E0236297206FE31A0239E3F116B661C219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081037   (284112) от 09.12.2016
+
+Peers.TV 6.11.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Peers.TV — это популярные телеканалы в высоком качестве, более 500 программ, телешоу и сериалов, а благодаря расширению функционала — ещё и IP-телевидение!
+Peers.TV — это бесплатное приложение для просмотра ТВ онлайн и в записи 24 часа в сутки, 7 дней в неделю.
+При помощи особой магии Peers.TV превратит ваш смартфон или планшет в мобильный телевизор.Тип издания: версия с Гуглплей (Free)Релиз состоялся: 6.12.2016Разработчик: InetraПоддерживаемая ОС: Android 4.0 и вышеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22479F2D9960FB0156A9AC7E54D56751030CB030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081755   (282800) от 10.12.2016
 
 TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
@@ -6,7 +87,7 @@ TrustGo Antivirus & Mobile Security 2.4.5.487 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Garmin: Vietnam Map 2.07.1015 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ CatchaAll v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +192,7 @@ Locus Map Pro 3.40.2 [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +218,7 @@ Online Radio  Box Pro v1.0.175 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +244,7 @@ KMPlayer 2.3.0 [Ad Free] [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +273,7 @@ Automatic Call Recorder Pro 1.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +302,7 @@ Root Call SMS Manager 1.8.1 [Ru] Full
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +360,7 @@ AnExplorer PRO File Manager v4.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +412,7 @@ GSM Spy Finder 16.01 (AdFree) [Ru-Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +438,7 @@ Digital clock & world weather 2.00.01 [Multi]
 >>Вспомогательное ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +464,7 @@ AnTuTu Benchmark 6.3.1 [Rus]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +490,7 @@ mPro.Скорая помощь v2.2.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +571,7 @@ WordBit v1.3.5 [Ru/En] - Английский язык (на блокировк�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +597,7 @@ FreeFlix TV Pro v1.0.3 Mod [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -568,7 +649,7 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -594,7 +675,7 @@ Tacticool v0.945 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,84 +688,6 @@ Tacticool v0.945 [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FAA2D938F094F6800FD4B39EF853243F3FB7D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190115   (266586) от 10.12.2017
-
-Zoiper v1.53 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266586.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIP клиент для Android. Не теряет связь с сервером (UDP/TCP/TLS), поддерживает множественные SIP & IAX учётки, SRTP/ZRTP, множество кодеков, в том числе широкополосных, видеозвонки. Имеет интеграцию со стандартной звонилкой.Тип издания: Пиратка  (разблокированы Premium функции)Разработчик: ZoiperПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA74510FEC81DD607375A9CE74B8E78641932550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339721   (265309) от 20.11.2019
-
-МППСС - Огни и знаки судов v3.7 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение содержит визуальную поисковую систему огней и знаков, ссылку на тематическое правило и предоставляет проверочные тесты, а также 3D-визуализацию для правил МППСС с 20 по 31. Также представлены карточки для самообучения. Для каждого правила вы можете изменить точку наблюдения на 3D-изображении с помощью действия касания/перетаскивания. Система визуального (   Читать дальше...   )Тип издания: Пиратка (Разблокирован Premium)Релиз состоялся: 18.08.2019Разработчик: madeof.blueПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A7D9CC1C5C016B9171BA4061E390C918C04F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193395   (262048) от 21.12.2017
-
-Радиотехник 2.1 Full [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основы Радиотехники,Мастерская Радиолюбителя,Курс Радиотехники,Пайка и Монтаж,Измерения И Аппаратура ,LabVIEW Для Радиоинженера,Акустические Системы,Конструкции И Схемы,Ремонт Радиомастеру,Справочник Радиолюбителя,Приложения-Дополнения;Подробно рассмотрены Радиолюбительские схемы и конструкции различных стабилизаторов напряжения собранных своими руками такие например (   Читать дальше...   )Тип издания: Пиратка (Полная с Маркета)Релиз состоялся: 17 октября 2017 г.Разработчик: Progressiv Digital Inc.Поддерживаемая ОС: Android 3.0 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BC21BEEEF29E9D984D9184098C56F11A93CDE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

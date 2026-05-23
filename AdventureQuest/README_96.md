@@ -1,3 +1,107 @@
+###  Публикация: 1771046   (32035) от 04.01.2025
+
+Locked In Mind (2023) [En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В игре Locked in Mind вы станете звездой своего собственного приключения в комнате побега. Оказавшись в ловушке таинственного и загадочного виртуального мира, вы должны использовать свою смекалку и навыки решения проблем, чтобы пройти через сложные препятствия и раскрыть секреты окружающего вас мира. По мере прохождения игры вы столкнетесь с множеством головоломок, (   Читать дальше...   )Тип издания: SceneРазработчик: Bendegúz Anisics, András NemesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770995   (32016) от 04.01.2025
+
+The Dark Eye: Chains of Satinav (2012) [Ru/Mullti] (3.0.351.5498) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Андергасте, жители которого считаются исключительно суеверными, король Эффердан ожидает официального визита высокопоставленных чиновников. Столетиями королевство не ладило с соседней Нострией, но теперь, похоже, прочный мир не за горами. Однако королю не дает покоя нашествие ворон, которые ведут себя необычайно агрессивно и даже нападают на людей.Тип издания: RepackРазработчик: Daedalic EntertainmentЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E84CCB7D565E83F885175AF548EE754784C532D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743843   (31947) от 05.01.2025
+
+Sam & Max: The Devil's Playhouse (2024) [Ru/Multi] (1.6.0/dlc) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Sam and Max: The Devil's Playhouse - ремастированное приключение для поклонников остроумного дуэта вольных полицейских. Пристегните ремни, потому что скоро все станет странным. Макс, импульсивный кролик со склонностью к хаосу, придумал новый трюк для своих висячих ушей. Таинственная игрушка открывает в нем неожиданные экстрасенсорные способности, позволяя заглянуть (   Читать дальше...   )Тип издания: SceneРазработчик: Skunkape GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD818412EDA0C7CBD3B60364574F68DF8522615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771284   (31942) от 05.01.2025
+
+Go Home Annie (2024) [Ru/Multi] (1.0.23) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Знакомьтесь, Энни - сотрудница Фонда SCP с низким уровнем допуска. Задача этой тайной организации - обезопасить и удерживать аномалии, а также защищать от них простых людей. Но зачем организация, девиз которой - «Обезопасить. Удержать. Сохранить», создала особый отдел по репликации опасных паранормальных событий и аномальных сущностей? И почему вам поручено раз за (   Читать дальше...   )Тип издания: RepackРазработчик: Misfit VillageЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F6EB108E76C83DE94C55D12206C1148B85405C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771083   (31910) от 05.01.2025
 
 The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
@@ -6,7 +110,7 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Satellite Odyssey: Prologue (2024) [Ru/En] (1.0.1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Everybody's Gone to the Rapture (2016) [Ru/Multi] (1.01 Build 1197371) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ DREAMERS (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Joyville 2 (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Conscript (2024) [Ru/Multi] (107/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Never Alone / Kisima Ingitchuna (2014) [Ru/Multi] (build 16726002) Repack dixen1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Milo and the Magpies (2021) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Nine Sols (2024) [Ru/Multi] (202501031718.687084df.0) Repack Wagner
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Cartier 06 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Thank Goodness You're Here! (2024) [Ru/Multi] (1.6.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Discolored 2 (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (Build 1374323) Repack Let
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Inn-Sanity (2024) [Ru/Multi] (build 16843098) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +578,7 @@ The Rise of the Golden Idol (2024) [Ru/Multi] (1.2.0/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ HELLSEED: All Chapters (2022) [Ru/Multi] (Build 16646433) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Case of the Golden Idol (2022) [Ru/En] (2.0.5/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE11B908F53F75F7697A619D64DC108A3CCF4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772793   (31214) от 12.01.2025
-
-Undead Realm: Ego (2025) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Undead Realm: Ego - это интерактивный хоррор, который погружает вас в атмосферу ужаса, страха и отчаяния. Став Жэнь Сином, вы окажетесь в изолированной школе, где пространство и время приобретают совершенно иную природу. На вашем пути встретятся незнакомцы, такие же потерянные, как и вы. Ваша задача - исследовать окружение, находить подсказки и делать выборы, которые (   Читать дальше...   )Тип издания: SceneРазработчик: MYSTERY CROWNЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4849CC3F10ED4688568FB0EDDAD993AF37D24C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772867   (31212) от 12.01.2025
-
-Amenti (2025) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как на самом деле были построены пирамиды? Какая связь существовала между древними египтянами и инопланетными существами? Реальна ли легенда об Аменти? Чтобы найти ответы, вы должны войти в недавно обнаруженную гробницу Рудамон - ужасающее место, погребенное на 50 метров под землей. Никто не осмеливался исследовать ее бесконечные темные коридоры - до сих пор. Согласно (   Читать дальше...   )Тип издания: RepackРазработчик: DarkPhobia GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B824D8DF85A928C563154ABD954F59518217D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772907   (31205) от 12.01.2025
-
-Beyond Hanwell (2024) [Ru/En] (1.1) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31205.jpg" />
-</div>
-
-
-###  Подробнее
-
-История продолжают цепочку зловещих событий Welcome to Hanwell. Игрок в качестве очередного выжившего попадает в благополучный район туманного Альбиона, где жертвы чудовищных экспериментов вышли из-под контроля и захватили власть над городом. Придется исследовать пустынные улицы и когда-то полные жизни достопримечательности в поисках ответов на неприятные вопросы.Тип издания: RepackРазработчик: Steel Arts Software LtdЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DCAEA7E3E1C5BB9F7C63ADD4D14200B52E0E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772792   (31192) от 12.01.2025
-
-Discolored 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все цвета исчезли из мира. Выполняя миссию по их возвращению, вы обнаруживаете, что за вами охотятся те, кто хочет, чтобы цвета были изгнаны. Ваша единственная надежда - женщина в красном, которая, возможно, хранит ключ к тому, чтобы предотвратить обесцвечивание мира. Discolored 2 - это приключенческая головоломка от первого лица, полная тайн и напряжения. Действие (   Читать дальше...   )Тип издания: RepackРазработчик: Godbey GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8C3D4E2770F79B2BACBCA620D11F52A500F1B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

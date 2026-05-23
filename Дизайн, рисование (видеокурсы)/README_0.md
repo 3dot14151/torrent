@@ -1,3 +1,84 @@
+###  Публикация: 1849383   (1053519) от 22.01.2026
+
+Вольница, Андрей Шкиль | BLNDR v.10. Обучение Blender. Тариф Базовый (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Курс сформирован таким образом, чтобы студент нарабатывал авторский контент с первых занятий, практикуясь на типовых задачах студий и фриланса.
+Все для того, чтобы у вас было целостное портфолио, востребованные навыки и оформленные кейсы на Behance.
+BLNDR — это востребованные знания, помощь автора и сообщество коллег.Производство: ВольницаЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 73:50:04Реклама: Сторонние вставки и наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19C262C57423E6490DBAC53C621B9046A1216DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847335   (1052058) от 12.01.2026
+
+Marker School, Анастасия Агеева | Базовый курс графики. Основы (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На курсе вы откроете для себя удивительный мир графики, погрузитесь в атмосферу контрастов, штрихов и линий. С нами вы узнаете, как перенести на бумагу пейзажи, архитектурные элементы, деревья и многие другие объекты. Начнём с основ — мастерства штриховки и завершим созданием полноценного изображения маяка. Больше не будем опасаться белого листа, научимся выражать (   Читать дальше...   )Производство: Marker SchoolЖанр: видеокурс, обучающий курс, графика, дизайн, рисованиеЯзык озвучки: русскийПродолжительность: 10:12:21Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44865E4C382BF793C11D7AD54CF0C29AAD3F80F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844314   (1050040) от 25.12.2025
+
+3D Monsters, Алексей Савельев | Странствующий паладин - Стань 3D-Художником по персонажам (2024) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На курсе мы создаем модель Паладина по стандартам ААА игровой индустрии.
+Через 6 месяцев ты научишься создавать персонажей для компьютерных игр по пайплайнам ведущих игровых студийПроизводство: 3D MonstersЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 203:51:32Реклама: Присутствуют сторонние наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC552F70AFD110CF183D393E7F9B23C784101C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843742   (1049515) от 21.12.2025
 
 3D Monsters, Павел Гнедин и др. | Интенсив Ниндзя - Создаём с нуля персонажа, окружение и игру в Unreal Engine 5 (2025) PCRec [RU]
@@ -6,7 +87,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -62,7 +143,7 @@ Marker School, Екатерина Пластинина | Bella Grafica! Архи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +227,7 @@ Genius.Space, Катерина Кравчук | Профессия Графич�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -172,7 +253,7 @@ Yarets.Art, Виктория Ярец | Pixel Art (2025) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +279,7 @@ TutorPlace, Дарина Костина | Adobe Illustrator для начина�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +331,7 @@ Fashion Factory, Гузель Юзеева | Fashion-иллюстрация (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +357,7 @@ Gumroad, Mitch Leeuwe | Collection of drawing guides (2019-2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -305,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -334,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -360,7 +441,7 @@ Knower School, Дмитрий Смирнов | Курс игровой граф�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -387,7 +468,7 @@ CGMA, Pete Zoppi | Character Creation for Film/Cinematics 2020 (2020) PCRec [EN,
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -414,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +551,7 @@ Videosmile, Дмитрий Кузнецов | Супер Illustrator (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +580,7 @@ Timesavervfx, Александр Ежов | Живые фото - Анимаци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +609,7 @@ Saharovigor, Анна Маратканова | Горный пейзаж с до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +666,7 @@ Breezzly, Анастасия Свеженцева | Веб-дизайн и ди�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -613,7 +694,7 @@ CGBoost Academy, Martin Klekner | Пусковая площадка програ
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -625,88 +706,6 @@ CGBoost Academy, Martin Klekner | Пусковая площадка програ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A244D99953634C400F7CD99D65F9BC277B33EFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606819   (1044266) от 23.01.2023
-
-The Gnomon Workshop, Daniel Zeni | Создание модели в Zbrush точно повторяющей стилизованный концепт (2021) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из 2D концепта в 3D персонаж используя Zbrush и Photoshop c Daniel Zeni
-
-Узнайте в этом 6-часовом воркшопе от Дэниела Зани. Используя ZBrush и Photoshop, Дэниел проведет вас через весь рабочий процесс, начиная от подбора концепта и заначивая финальной обработкой изображения.
-Начнет Дэниел с того, как создать концепт в ZBrush и как использовать Spotlight projection (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 06:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2965B5377DDA9BF1483FD76A4914C800FE831F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606944   (1044181) от 24.01.2023
-
-Udemy, Creativity Unleashed | Blender Character Creation Megacourse: Beginner to Expert (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как использовать Blender для создания 3D-персонажей для игр и анимации!
-В этом курсе вы узнаете всё о том, как с помощью Blender и других бесплатных инструментов можно перейти от 2D-концепта к готовому к игре 3D-ассету. Начиная со сбора референсов и заканчивая созданием собственного дизайна персонажей, мы проведем полный обзор процесса 3D-производства готовых (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 53:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B9D6622C4DCF822A3F61322122F4D6BD89E66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607092   (1044111) от 25.01.2023
-
-SideFX, Nikola Damjanov | TheComplete A-Z Terrain Handbook:  ND edition (2022) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия уроков охватывает все, что вам, вероятно, когда-либо понадобится, чтобы понять, как создавать ландшафты в Houdini. Начиная с базового слоя нод Heightfields и их функций, до использования сгенерированных масок для создания текстур в COP, до скаттеринга геометрии с использованием упомянутых масок, до применения и рендеринга их в LOPnet с помощью Karma.Производство: SideFXЖанр: 3D ГрафикаЯзык озвучки: Английский, РусскийПродолжительность: 03:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC229EF7AC4FF54E06F8655F31688A543160E6DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

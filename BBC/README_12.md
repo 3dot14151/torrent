@@ -1,3 +1,29 @@
+###  Публикация: 1226333   (699067) от 27.02.2022
+
+BBC: Horizon. Что было до Большого взрыва / What Happened Before the Big Bang? (2010) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дадут ли ученые окончательный ответ на вопрос - "откуда мы взялись?", - приподняв завесу над рождением Вселенной... Как возникли время, материя и пространство? Как возникли всеобщие законы мироздания и почему именно такие, а не иные? Чтобы ответить на эти глобальные вопросы, ученые решили, что, возможно, придется отвергнуть одну из величайших научных идей (   Читать дальше...   )Производство: Великобритания, США, BBC, Discovery ChannelЖанр: Документальный, наука, исследования, космологияРежиссер: Петер ЛеонардПеревод: Профессиональный MVO (ТВИН), любительский (aty-sasa)Субтитры: отсутствуютПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25A0F6A237323EB144EB92FAFD24F57CC721F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533982   (699051) от 27.02.2022
 
 BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p] [4K, HLG, 10-bit] (сезон 1, серии 1-5 из 5)
@@ -6,7 +32,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEBRip [H.265/2160p
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ BBC. Вся правда о характере / The Truth About Personality (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +189,7 @@ BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +215,7 @@ BBC: Времена года Британии / The Great British Year (2013) BD
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +241,7 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +267,7 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +293,7 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +322,7 @@ BBC: Невидимые города Италии / Italy's Invisible Cities (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +348,7 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +374,7 @@ BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cat
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +400,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +452,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) BDRip [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +478,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +504,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +530,7 @@ BBC: Замерзшая планета / Frozen planet (7 серий из 7, в�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_673890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -531,7 +557,7 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +583,7 @@ BBC. Мир природы. Обитатели пробкового леса (28
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +635,7 @@ BBC. Восхождение животных: Триумф позвоночны�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +661,7 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,32 +672,6 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14499C3C62D452F448ED8311954C6F625F43060E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138281   (664064) от 29.05.2017
-
-BBC: Horizon. Проект "Гринглоу". В поисках контроля гравитации (Управлять гравитацией) / Project Greenglow The Quest for Gravity control (2016) HDTVRip [H.264/720p-LQ] (сезон 52 эпизод 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже 200 лет человечество мечтает покорить гравитацию. В середине 90-х британский концерн запустил программу «Зеленое мерцание», которая привела к созданию фантастических технологий. В то же время НАСА начала свою программу исследования возможности путешествий со скоростью больше скорости света и создания двигателей деформации пространства. Подчинится ли человеку (   Читать дальше...   )Производство: Великобритания, Science Production LondonЖанр: Документальный, научно-популярныйРежиссер: Ник ЯнгПеревод: Двуголосый закадровый, профессиональный (Позитив)Субтитры: отсутствуютПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863A94A2791FF41FE525D03A0CDEBCA89CBCF394
 ```
 
 https://mybot314.ru/tekegram_catalog/

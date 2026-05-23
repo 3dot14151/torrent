@@ -1,3 +1,55 @@
+###  Публикация: 1372484   (884959) от 03.04.2020
+
+NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сто сорок пять миллионов километров от Земли. Самый быстрый аппарат, созданный людьми - космический зонд "Паркер", он вторгается в фотосферу Солнца. Небольшой объект приближается к звезде, которая в миллион раз больше нашей планеты. Эта миссия считалась невыполнимой и потребовались поразительные инновационные технологии, чтобы осуществить её. Цель миссии (   Читать дальше...   )Производство: США / Thoroughly Modern Media, National Geographic, National Geographic ChannelЖанр: Документальный, космосРежиссер: Daniel M. SmithПеревод: Двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33F873C0FA06A82339B4C6E1727261C56A6CEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372872   (883336) от 04.04.2020
+
+BBC: Эйнштейн и Хокинг. Гении нашей Вселенной / Einstein and Hawking: Masters of our Universe (2019) IPTVRip [H.264] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Это история о том, как два величайших ума XX-го века изменили всё, что мы знаем о нашей Вселенной. Что такое время на самом деле, как родилась Вселенная, как она работает. Эйнштейн и Хокинг являются одними из самых известных учёных в мире. Этот документальный фильм из двух частей переносит нас в прошлое - в две различные эпохи, когда Эйнштейн и Хокинг определили (   Читать дальше...   )Производство: Великобритания / BBC StudiosЖанр: Документальный, познавательный, космосРежиссер: Michael LachmannПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 2 x ~ 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F352D9C6AB3E2EAF4CF86074B31431B6E1BD2F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103807   (883208) от 13.02.2017
 
 Взрывая историю. Загадки Вестминстерского дворца / Secrets of Westminster palace (2016) HDTVRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +215,7 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Discovery: 100 Величайших Открытий / 100 Greatest Discoveries 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ BBC: Секреты устройства античных городов. Афи
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Discovery. Как устроена Вселенная / Discovery. How the Unive
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +346,7 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +399,7 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +426,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +478,7 @@ BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +584,7 @@ BBC: Секреты устройства античных городов. Рим
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +610,7 @@ BBC: Невидимые миры. Вне поля зрения / Invisible World
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_874257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +664,7 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,58 +675,6 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E44B19A631B5C6EEEFB9A26B44991803479F35B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374707   (872339) от 10.04.2020
-
-NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872339.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме мы расскажем о двух львах, которые переплыли через реку в Намибии и присоединились к двум львицам в заповеднике Селинда. У этих двух семей появились шесть львят, о жизни которых и пойдет речь в этой истории.Производство: Ботсвана, Южная Африка, Wildlife Films Botswana for National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Беверли Жубер, Дерек ЖуберПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF8287BFD36BC1BE76D9750CEAEE1AB9E5164FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374529   (872328) от 10.04.2020
-
-BBC: Гений Марии Кюри: женщина, осветившая мир / The Genius of Marie Curie - The Woman Who Lit up the World (2013) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая женщина, получившая Нобелевскую премию, Мария Кюри, была выдающейся женщиной, чья история в наше время звучит не менее невероятно, чем в прошлом веке.Производство: Великобритания / BBC ProductionsЖанр: ДокументальныйРежиссер: Gideon BradshawПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9918F5438031E3EAB747A1A47C26716FE36CC6D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1815083   (5535) от 28.08.2025
+
+Фрилансер (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Марк — молодой фрилансер, несколько лет назад ушедший из компании и пытающийся работать на себя. Из раза в раз он идет навстречу клиентам и сталкивается с тем, что ему задерживают оплату за выполненные проекты под разными уловками. В какой-то момент два крупных клиента ему снова не платят. Из-за этого он ругается с женой. Она забирает дочь и уходит от него. Марк (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драма, криминалРежиссер: Илья ДенисовАктеры: Сергей Евдокимов, Ольга Горяная, Николай Иванов, Олег Коваленко, Валерий ЛаппоПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B844564AF6E64DF442C3239939723033150DB84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815051   (5532) от 28.08.2025
+
+Изгнание (2007) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Семья с двумя детьми приезжает отдохнуть в родную деревню главы семейства. Вечером после ужина, когда дети легли спать, и взрослые остались одни, жена сообщает мужу, что беременна, и ребёнок не его.Производство: Россия / Рен-ТВЖанр: драма, мелодрамаРежиссер: Андрей ЗвягинцевАктеры: Константин Лавроненко, Мария Бонневи, Александр Балуев, Максим Шибаев, Екатерина Кулкина, Елена Лядова, Андрей Шибаршин, Дмитрий Ульянов, Алексей Вертков и др.Продолжительность: 02:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE7E69651AA9F3C1BA9948F683FDAA679425F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815367   (5410) от 29.08.2025
+
+Нуучча (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Выжить в конце XIX века в якутской тайге непросто. Сельская пара готовится к суровой голодной зиме. Поневоле они принимают к себе русского каторжника, с которым вынуждены теперь делить все: и еду, и свой дом. Загнанные в ловушку обстоятельствами, они начинают постепенно понимать, что он возможно не тот, за кого себя выдает.Производство: Россия / ЛУКФИЛЬМ / LOOKFILM, Место cилы, R-mediaЖанр: драмаРежиссер: Владимир МункуевАктеры: Сергей Гилев, Павел Колесов, Ирина Михайлова, Иннокентий Луковцев, Данил Осипов, Зоя Багынанова, Николай Протасов, Нюргуяна ШадринаСубтитры: русские (на непереведённые места с якутской речью)Продолжительность: 01:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BAD581637238B2CCC47E5392118BE14C14BF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815276   (5408) от 29.08.2025
+
+Лифтёр. Покаяние (2021) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Магнитогорске орудует преступник, убивающий девушек в лифтах и подъездах домов. Информация о преступлениях доходит до Кремля, правительство и руководство МВД требует в кратчайшие сроки найти и обезвредить убийцу. Чтобы помочь местному отделу полиции, в Магнитогорск приезжает сотрудница уголовного розыска Лилия.Производство: Россия / Творческое объединение Андрея Рябцева, MEDIA TVЖанр: драма, триллерРежиссер: Георгий ПоздняковАктеры: Игорь Филиппов, Лилия Мусина, Иван Погорелов, Данила Сочков, Лиона Филь, Гордей Батаршев, Надежда Лаврова, Владимир Богданов, Андрей Коровниченко, Игорь ПановПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1385BDA5708E80B41312ECD6820A88E09EA8566B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815270   (5393) от 29.08.2025
 
 Бессмертный полк (2024) HDTV [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9569E82C19729ABEC873CCC37095EA919F1FC4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816039   (4655) от 02.09.2025
-
-Деньги на дорогу (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудный подросток в очередной раз оказывается в кабинете директора, что провоцирует конфликт с его отцом прямо в школе. Невольным свидетелем этого становится учитель истории, который решает вмешаться и повлиять на взаимоотношения родителя и ребёнка.Производство: Россия / Кинокомпания ПУШКАЖанр: Короткометражный, драмаРежиссер: Валерий ШергинАктеры: Леонид Окунёв, Михаил Музалевский, Стас Новокшанов, Кристина Жилкина, Богдан Бердов, Вячеслав Бурцев, Даниил Евдокимов, Катерина Ростовская, Артем Зверев, Анастасия КалашниковаПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7F18DD6BD5676318C1D35498513A83FF862187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816141   (4543) от 03.09.2025
-
-Отцы (2010) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромный учитель истории Александр Львов, счастливо женат на Анне, женщине с ребенком. Его приемный сын, 8-летний Ванька, давно стал Александру родным. Но вот возвращается из армии отслуживший по контракту десантник Вадим Котов, бывший муж Анны и родной отец Ваньки. Он хочет вернуть себе сына. У мужчин назревает серьезный конфликт...Производство: Россия / Триикс МедиаЖанр: драма, криминалРежиссер: Армен НазикянАктеры: Сергей Горобченко, Дмитрий Марьянов, Анатолий Кот, Ян Цапник, Александр Дробитько, Никита Морозов, Оксана Васильева, Татьяна Бедова, Вячеслав Гумеров, Дмитрий ЛебедевСубтитры: русскиеПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245F8CCF712D741FBD21C195DC3B0057ACA8E03F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816361   (4472) от 04.09.2025
-
-Головар (2018) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Налаженная жизнь, успешный нефритовый бизнес - все это было, пока главный герой не попал в ситуацию, которая поглотила его и всю его семью в трагические обстоятельства. Человек, который, казалось бы, может купить все, что угодно, в том, числе власть, оказывается бессилен перед чередой случайных событий. Потеряв, близкого человека, он решается на отчаянный шаг.Производство: Россия / M55Жанр: драма, криминалРежиссер: Юрий БотоевАктеры: Владимир Банчиков, Светлана Полянская, Владимир Барташевич, Артур Шувалов, Владимир Срабионов, Рина Жеребко, Алексей Туробов, Игорь Озеров, Владислав Самарин, Елена ЕршоваПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6385551575FE5A865E8E130DDF92C5981D60063A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816362   (4442) от 04.09.2025
-
-Головар 2. Струна (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение криминальной драмы «Головар», набравшая более 19 миллионов просмотров в You Tube. Успешная жизнь Головара рухнула в одночасье, когда погиб младший сын и кровавый бизнес оказался под угрозой разорения. Теперь влиятельный в прошлом бизнесмен вынужден скрываться, находясь в федеральном розыске. А в это время в его родном городе начинаются разборки между (   Читать дальше...   )Производство: Россия / M55Жанр: драма, криминалРежиссер: Юрий БотоевАктеры: Владимир Банчиков, Дмитрий Тарбеев, Евгений Токарев, Игорь Озеров, Олег Петелин, Алёна Байбородина, Юрий Редикальцев, Марк Николаев, Сергей Цыренов, Батор ДоржиевПродолжительность: 01:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7EA46572C4D522E848FBAA9A0F4C15C2793B08
 ```
 
 https://mybot314.ru/tekegram_catalog/

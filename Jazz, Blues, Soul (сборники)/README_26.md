@@ -1,90 +1,3 @@
-###  Публикация: 1797548   (17973) от 17.05.2025
-
-VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Carlton, Robben Ford - Burnable [11:19]
-02. Michael Falkenstein - Cry! Until You're Feeling Good (Mayday in Space) [04:16]
-03. Tony Monaco - Acid Wash / The Tony Monaco Trio [07:08]
-04. George & the Highlanders - The Hawk [03:06](   Читать дальше...   )Жанр: Jazz, Blues, HammondПродолжительность: 08:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C746F2B500D50FE329D5C5B5E91E22695420D0FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798163   (17578) от 21.05.2025
-
-VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Bonamassa - Going Down (Live) [06:13]
-002. Blues Company - Red Blood [04:43]
-003. Dire Straits - Calling Elvis [06:24]
-004. Marty Friedman - Undertow [04:22](   Читать дальше...   )Жанр: Blues, Slow Blues, InstrumentalПродолжительность: 07:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805984   (12032) от 09.07.2025
-
-VA - Midnight Whiskey Blues (2025) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Bell 100% Blues - Elevator to Heaven (9:00)
-02. D-Man, Manuel Grimaldi - Ain't Enough Whiskey (8:34)
-03. Billy Branch & The Sons of Blues, Carl Weathersby - As The Years Go Passing By (7:42)
-04. Gene Deer - Midnight Healing (7:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03127438A6AE4A13BF9EEE34A9308759B2BE57AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814149   (6307) от 23.08.2025
 
 VA - Sweet Jazz (2025) [MP3|320 Kbps] <Jazz>
@@ -93,7 +6,7 @@ VA - Sweet Jazz (2025) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +35,7 @@ Frezee - Frezee Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Swing Jazz, N
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +64,7 @@ Frezee - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +93,7 @@ Eric Gales - Compilation (1991-2025) [MP3|320 Kbps] <Blues rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +122,7 @@ Elvis Presley - Compilation (1956-2003) [MP3|320 Kbps] <Rock & Roll, Rockabilly,
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +151,7 @@ Keb' Mo' - Compilation (1980-2025) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +180,7 @@ Let Babylon Burn - Compilation Part 1 (2025) [MP3|320 Kbps] <Soul, Reggae>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +209,7 @@ Eric Street Band - Compilation'25 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

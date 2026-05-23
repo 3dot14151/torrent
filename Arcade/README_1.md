@@ -1,3 +1,29 @@
+###  Публикация: 1843446   (1049414) от 20.12.2025
+
+LEGO Voyagers (2025) [Ru/Multi] (build 19911812) Repack seleZen
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создатели LEGO Builder's Journey представляют новые кооперативные приключения для двоих об игре и дружбе. Двое друзей решают спасти брошенный космический корабль и пускаются в приключения, какие им и не снились. В своем путешествии они поймут, насколько важны крепкие отношения. LEGO Voyagers предлагает задуматься над тем, как строить дружбу, делиться мечтами и уважать (   Читать дальше...   )Тип издания: RepackРазработчик: Light Brick StudioЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Испанский (Латинская Америка) и другиеЯзык интерфейса: Русский, Английский, Испанский (Латинская Америка) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511AD289D49326D5471531B19CF088B58E784627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843444   (1049413) от 20.12.2025
 
 LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Scene Rune
@@ -6,7 +32,7 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Garfield Kart 2: All You Can Drift (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ River City Girls (2019) [Ru/Multi] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Biped 2 (2025) [Ru/Multi] (1.7) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Biped 2 (2025) [Ru/Multi] (1.0.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ My Little Puppy (2025) [Ru/Multi] (1.0.2517.124175) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ Egging On (2025) [Ru/Multi] (0.1.8654) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ GigaBash (2024) [Ru/Multi] (1.7.2/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Outshine (2022) [Ru/Multi] (0.24.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Sapo 3D (2025) [Ru/Multi] (1.0.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +370,7 @@ Portal (2007) [Ru/Multi] (18647097) Repack Necros
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +396,7 @@ Exit the Gungeon (2020) [Ru/Multi] (2.1.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +422,7 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +448,7 @@ The Spirit and the Mouse (2022) [Multi] (1.2c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +474,7 @@ WHALIEN - Unexpected Guests (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Punch A Bunch (2023) [En] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +526,7 @@ Pumpkin Jack (2020) [Ru/Multi] (1.4.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Yooka-Laylee and the Impossible Lair (2019) [Multi] (28130/dlc) License GOG [Dig
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Temple Of Snek (2023) [Ru/Multi] (1.0) License TENOKE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Power of Ten (2023) [Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Beatbuddy: Tale of the Guardians (2013) [Multi] (1.2.9) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Arcade Paradise (2022) [Ru/Multi] (1016/dlc) License GOG [Digital Deluxe Edition
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC1265B7DE5DADF8DC892A56FF20C5102F06DD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615481   (1037427) от 26.02.2023
-
-RUINER (2017) [Ru/Multi] (1.6c) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Законченный психопат решается бороться против всей системы, держащей мир в 2091 году. Дело даже не в том, что RUINER - это отличный слешер/шутер от третьего лица на изометрических локациях, а в том, что полноценная ролевая RPG игра, рассказывающая историю одного любвеобильного семьянина, который спасает собственного брата из лап мощнейшей в мире системы, которая (   Читать дальше...   )Тип издания: LicenseРазработчик: Reikon GamesЖанр: Экшны, Сражения, ФантаcтикаЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA6196FA8B938471A609E6D1BC4C5C2D61996BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

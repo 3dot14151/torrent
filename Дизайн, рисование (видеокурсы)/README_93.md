@@ -1,3 +1,87 @@
+###  Публикация: 1691810   (123214) от 13.01.2024
+
+Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 3. Рисование розетки в перспективе. Натюрморт (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В видеокурсе "Рисование розетки в перспективе. Натюрморт" представлена та база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы".
+
+В видеокурс входят: Рисование розетки в перспективе. Натюрморт.
+Этот курс является составной третьей частью курса "Как (   Читать дальше...   )Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691709   (123205) от 13.01.2024
+
+Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 1. Рисование геометрических фигур (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В курсе представлена база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы". В видеокурс входят: куб, шар, конус, цилиндр, шестигранник. В видео пособии поэтапно раскрываются основные задачи, возникающие на всех стадиях работы, и подробно рассматриваются все (   Читать дальше...   )Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 02:23:19Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C122CB2B7786BEA5DEE3D235B8FF508E4491AFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691805   (123177) от 13.01.2024
+
+Арт-Студия Виталия Лещенко, Александр Рыжкин | Как научиться рисовать с нуля Часть 2. Рисование вазы и розетки (2021) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В видеокурсе "Рисование вазы и розетки" представлена та база и азы, которые необходимы любому художнику, потому что это системное мышление - "как в двухмерную плоскость переводить объёмные трёхмерные предметы".
+
+В видеокурс входят: ваза, вогнутая розетка.
+Этот курс является составной второй частью курса "Как научиться рисовать с нуля"Производство: Арт-Студия Виталия ЛещенкоЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:55:33Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE6DC6B16B0961D4A26F2962FB5241FA2C2729C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692197   (122868) от 15.01.2024
 
 tishbyme, Кристина Дмитриева | Mастер класс по дизайну карточки Wildberries в Figma (2022) WEB-DL [AD] [RU]
@@ -6,7 +90,7 @@ tishbyme, Кристина Дмитриева | Mастер класс по ди
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +148,7 @@ Liveclasses, Антон Мартынов | Adobe Firefly в Photoshop: быст�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -91,7 +175,7 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +230,7 @@ zbrush3d.com, Александр Галевский | Zbrush Проекты с �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +257,7 @@ CG Boost, Louis du Mont | Robotic Planet (2023) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -201,7 +285,7 @@ CG Boost, Zach Reinhardt | Sphynx Cat Sculpting in Blender 3D (2018) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -227,7 +311,7 @@ Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +338,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -283,7 +367,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -312,7 +396,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -341,7 +425,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +454,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +480,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +509,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +537,7 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +565,7 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +594,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +622,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +648,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,7 +675,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,7 +701,7 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,87 +715,6 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C669E711F8F7DDA8E84A1D1F5ECBE210448E904A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700599   (117077) от 17.02.2024
-
-Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117077.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом руководстве мы пройдем по PBR пайплайну создания игр от моделирования до рендеринга в UE4. Мы начнем с изучения того, как уменьшить количество полигонов с высокополигональной сетки до низкополигональной сетки, а затем мы запечём текстуры в Substance Painter. После этого мы шаг за шагом пройдемся по текстурированию в Substance Painter. Наконец, мы импортируем (   Читать дальше...   )Производство: GumroadЖанр: 3D моделирование, Создание игрЯзык озвучки: АнглийскийПродолжительность: 03:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321A83D31A26367B13A9717403F364748B77F3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700832   (116963) от 18.02.2024
-
-Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Procedural 3D Textures (2024) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создать любой материал с нуля, используя ноды в Blender!
-Вы создадите множество различных текстур, от начального до продвинутого уровня (включая грязевые шейдеры, деревянные шейдеры и кирпичные шейдеры). Попутно вы освоите множество передовых техник, которые затем сможете использовать для изготовления любых материалов, какие только придут вам в голову. (   Читать дальше...   )Производство: Udemy, GameDev.tv TeamЖанр: 3D моделирование, МатериалыЯзык озвучки: АнглийскийПродолжительность: 12:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4666B27F19025B8CD89EBB75D83398BD76B89EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700830   (116962) от 18.02.2024
-
-Udemy, GameDev.tv Team, Stephen Woods | Geometry Nodes in Blender 4: Create Complex 3D Models (2024) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы освоить новый мощный инструмент для недеструктивного процедурного моделирования?
-Geometry Nodes позволяет создавать сложные 3D-модели процедурно, поэтому вы можете создавать модели, которые могут быть сложными или отнимать много времени при использовании традиционного моделирования.
-Недеструктивный аспект Geometry Nodes означает, что в ваши модели и деревья (   Читать дальше...   )Производство: Udemy, GameDev.tv TeamЖанр: 3D моделирование, Geometry NodesЯзык озвучки: АнглийскийПродолжительность: 06:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645A7E9B101762A759802E4D3630E7F3CACD2223
 ```
 
 https://mybot314.ru/tekegram_catalog/

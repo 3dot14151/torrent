@@ -1,3 +1,107 @@
+###  Публикация: 1794666   (16013) от 01.06.2025
+
+True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+True Fear: Forsaken Souls Part 3 - заключительная глава трилогии психологического триллера. Благодаря механике point-and-click, сложным головоломкам и кинематографическим вставкам, погрузитесь в мрачную атмосферу ужаса, которая переосмысливает жанр.Тип издания: RepackРазработчик: Goblinz Enterprises LtdЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEB4C0B5A07B17342C0A50CABE665217860A1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800122   (15988) от 01.06.2025
+
+Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Brassheart - приключенческая игра, действие которой происходит в альтернативных 1920-х годах, вдохновленная дизельпанком и классикой жанра. В этом мире вы играете за Полу, отважного пилота. Она следует за подсказками, которые могут дать ей способ спасти ее отца, похищенного его собственным изобретением, мятежной супермашиной Валькирией.Тип издания: RepackРазработчик: Hexy StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A264437ED3D1A8546549BEDFB98C708BB1EF772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800366   (15895) от 02.06.2025
+
+Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Психологический триллер и драма в жанре "симулятор ходьбы", который является спин-оффом к игре “September 7th”. 2009 год. Гриша возвращается в город своего детства, чтобы навестить младшую сестру. Но вместо привычной встречи – странная тишина и следы, которые будто хотят, что – то сказать. Знакомые улицы кажутся пустыми, а школа, где он провёл лучшие и (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A1DEFC8686DA7CE0DCC4305D4665D73D036F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800390   (15884) от 02.06.2025
+
+The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Danger Zone - постапокалиптический 2.5D шутер с видом сбоку и элементами выживания в уникальной стилистике "вечного заката". Добро пожаловать в новый мир. После того как тысячи межконтинентальных ядерных ракет рассекли землю, прошло уже достаточно времени: ушла эпоха вечных и холодных зим. Радиоактивный фон медленно устремился вниз. А люди, десяток (   Читать дальше...   )Тип издания: RepackРазработчик: HaverЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5E5611ED2DD206A695C9A24D459BA3082C3808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800355   (15882) от 02.06.2025
 
 Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
@@ -6,7 +110,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Last Vanguard (2025) [Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Kaodi (2025) [Multi] (1.0.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Moroi (2025) [Ru/Multi] (1.10) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Unexplored 2: The Wayfarer's Legacy (2022) [En] (1.7.35) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Arctico (2022) [En] (2.6w) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Between Horizons / Between Horizons – A Sci-Fi Detective Adventure (2024) [Mul
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Out of Sight (2025) [Ru/Multi] (1.0.36) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Tormented Souls (2021) [Ru/Multi] (0.94.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Sinking City (2019) [Ru/Multi] (58246/dlc) License GOG [Remastered Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Strangeland (2021) [Multi] (3.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Broken Sword - Shadow of the Templars: Reforged (2024) [Ru/Multi] (1.1.8.1) Lice
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD7C4C56DCE675A281426AAD2A61F75C9990456B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793755   (14883) от 12.06.2025
-
-Old Skies (2025) [En] (2.0a) License GOG [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествия во времени реальны, а история – на волоске от гибели! В этом квесте вы играете за Фиа Куинн, уполномоченного представителя времени из агентства ChronoZen. Ваша задача – внимательно следить за семью путешественниками, у которых есть желание (и банковские счета) осмотреть достопримечательности прошлого. Некоторым просто любопытно. У других есть незаконченные (   Читать дальше...   )Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BCF98AFFCD6468BB7C187CCF8454B4D9FC4BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788618   (14882) от 12.06.2025
-
-Rosewater (2025) [Multi] (1.05.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло несколько лет с тех пор, как Харли Лежер покинула Нью-Бретань и отправилась на запад, надеясь оставить прошлое позади и добиться успеха в качестве писателя-фрилансера. После прибытия в сонный приграничный городок Роузвотер, казалось бы, пустяковое задание для местной газеты приводит к поиску пропавшего человека и истории века. Харли и её отряд отправляются (   Читать дальше...   )Тип издания: LicenseРазработчик: Grundislav GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8206C88FE4D9F7805A34B23C547A48C8D2DD0DE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801946   (14672) от 14.06.2025
-
-The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Repack seleZen [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ознакомьтесь с игрой, сочетающей выживание, приключения и строительство базы. Помогите Яну Дольски - единственному выжившему в ходе неудачной космической экспедиции - создать альтернативные версии себя, чтобы покинуть враждебную планету и справиться с личными проблемами. The Alters - амбициозная научно-фантастическая игра с элементами выживания. Чтобы выжить, вы (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1303DA3D306B76EF9ABB24AA3D50A512313961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801944   (14665) от 14.06.2025
-
-The Alters (2025) [Ru/Multi] (1.0.1.46/dlc) Scene Rune [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ознакомьтесь с игрой, сочетающей выживание, приключения и строительство базы. Помогите Яну Дольски - единственному выжившему в ходе неудачной космической экспедиции - создать альтернативные версии себя, чтобы покинуть враждебную планету и справиться с личными проблемами. The Alters - амбициозная научно-фантастическая игра с элементами выживания. Чтобы выжить, вы (   Читать дальше...   )Тип издания: SceneРазработчик: 11 bit studiosЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A19CFB4ACEE50D13FE252160C44B9AAEC9513EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

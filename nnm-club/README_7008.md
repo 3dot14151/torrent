@@ -1,690 +1,25 @@
-###  Публикация: 1277356   (785416) от 20.01.2019
+###  Публикация: 1276982   (787259) от 18.01.2019
 
-Цзиндэчжэньский фарфор / Jingdezhen Porcelain (2017) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цзиндэчжэнь в провинции Цзянси на севере Китая можно без преувеличения назвать керамической столицей страны. История местного производства фарфора, насчитывает не одну тысячу лет. Гуляя по улицам Цзиндэчжэня, нельзя не заметить дома с отделкой из фаянса, выложенные кусочками керамической плитки переулки и удивительно красивые керамические уличные фонари. Изготавливать (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A718BDECA1171F324B48C38D93537C550DF135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277424   (785415) от 20.01.2019
-
-VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
-02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
-03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
-04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277349   (785414) от 20.01.2019
-
-Жанна Волкова - Таксист (1995) [FLAC|Lossless|image + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А я такая пьяная
-02. Снег
-03. Эй, таксист!
-04. И всё таки я - женщина!(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265EBBBA987168046E84D53478ED741AE7438F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277455   (785413) от 20.01.2019
-
-Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack (2001) [FLAC|Lossless|image + .cue] <Jazz, Pop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Sinatra - I'm Gonna Live Till I Die
-02. Dean Martin - Ain't That A Kick In The Head
-03. Sammy Davis Jr. - Too Close For Comfort
-04. Frank Sinatra & Sammy Davis Jr. - Me And My Shadow(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BAB6F7073510A5C2265E28C3CC0822B8FA2EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277400   (785412) от 20.01.2019
-
-Rocky Burnette - The Son Of Rock And Roll (1979) LP [MP3|320 Kbps] <Soft Rock, Pop Rock, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tired Of Toein' The Line (3:38)
-02. Angel In Chambray (3:18)
-03. Baby Tonight (3:14)
-04. Fallin' In Love (Bein' Friends) (3:57)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, RockabillyПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0CC194AF6D5A64C266B0247A65A5AFDED17B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277474   (785411) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (362) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56E25C8ABF1BD9C0AD3C9EA1498601416EAC272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277475   (785410) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (363) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0D5C0235CB842E1B9C4E327BD1B287D609A9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277478   (785409) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (365) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C569F9C9848FD9DA2523E883EE70C1321CE486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277414   (785408) от 20.01.2019
-
-dArtagnan - Seit An Seit (2016) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785408.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Seit An Seit
-02. Ehre Wem Ehre Gebuhret
-03. Komm Mit(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B0EA92EE69AFEB7A1620D43A2450D68BB54A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277470   (785407) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (359) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1EBDB71378A4F26EE2D69B26E9042AD0996DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277473   (785406) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (361) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC24EAA8A9D8AFA324FA6AAB72A4CC9511025A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277341   (785405) от 20.01.2019
-
-Юлия Нелидова | Дело о сорока разбойниках (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785405.jpg" />
-</div>
-
-
-###  Подробнее
-
-1892 год. Земского врача Ивана Иноземцева направляют в столицу Туркестанского генерал-губернаторства – Ташкент. Но добраться до нового места службы Иноземцеву не удается: его похищает шайка разбойников во главе с коварным басмачом Юлбарсом, приручившим настоящего тигра. По всему краю ходят слухи и легенды о набегах банды Юлбарса. Он жесток и безжалостен, умен и необычайно (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9729BFF3472584D5F20D3E375CAAE8A4BC64CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277282   (785404) от 20.01.2019
-
-David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Twinklelace Glen
-02 – The Water Fairy
-03 – Dream Shadows
-04 – Fairy Dreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277477   (785403) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (364) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60FB8E3911B5FC401EA2EAE23CD87655B3818EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277482   (785402) от 20.01.2019
-
-Обои - Desktop Wallpapers Full HD. Part (367) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A247C4E8CC0DF0E429BE841106D75B6445BC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277229   (785401) от 20.01.2019
-
-FireAlpaca 2.1.14 (Repack & Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785401.jpg" />
-</div>
-
-
-###  Подробнее
-
-FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D548DD729F0E3DD95242FA664DC74F54190E49B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202917   (785400) от 04.02.2018
-
-The Bagelman Sisters - A Yiddish Lied / Bist Main Welt  (1939) [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist
-A)	A Yiddish Lied = (A Yiddish Song)
-B)	Bist Main Welt = (You Are My World)Жанр: Folk, World, & CountryПродолжительность: 00:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5453DBFF6D6AE7ED17F9793299E51D387A11ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204173   (785399) от 04.02.2018
-
-Шорт-трек. Чемпионат Европы 2018. Дрезден (Германия). Финалы (13-14.01.2018) WEB-DL  [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785399.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 января 2018 года - 14 января 2018 года
-Чемпионат Европы по шорт-треку 2018 года. Дрезден (Германия)
-1-й день финала:
-Женщины / Mужчины - 1500 м - 1/2 Финала, Финалы(   Читать дальше...   )Телекомпания: Sportdeutschland.TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:10:34 - 03:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC2E8A687DE62C52132831EE4974629A4EF1037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203249   (785398) от 04.02.2018
-
-Горные лыжи. Кубок мира 2017–2018. Кортина д Ампеццо (Италия). Женщины. Скоростной спуск (20.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785398.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 января 2018 года, суббота. 12:00 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Кортина д Ампеццо (Италия).
-Женщины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F98B45D1B59760CB0F47AF0D263509A4F2996B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204063   (785397) от 04.02.2018
-
-VA - Best of Lounge 2018: Special Selection Vol.1 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Spendel Trio - Unknown Events
-02. Karen Gibson Roc - Slow Down
-03. Marcus Koch - Forever
-04. UFO - Purple Sun Down(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E02DDF73FE874BC4DEBB48CFD47100CB86060EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204010   (785396) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2, Europe [MP3|320 Kbps] <Pop Rock, Synth-pop, AOR>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Hold Me 4:46
-02. Maybe Tonight 3:40
-03. Foolish Lullaby 4:18
-04. Spanish Eddie 4:08(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, AORПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204076   (785395) от 04.02.2018
-
-Orphans Of Doom - Strange Worlds / Fierce Gods (2018) [MP3|320 кб/с]<Sludge Metal, Doom Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785395.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:26] 01. Harvest
-[04:40] 02. Kakegoe
-[04:12] 03. Mythical Sleep
-[05:57] 04. Cephalopod(   Читать дальше...   )Жанр: Sludge Metal, Doom Metal, Post-MetalПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DCAFD4FC899D110509114B747C6D5655A9446C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204082   (785394) от 04.02.2018
-
-Structural Mind Engine - Forest (2018)2CD [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Blast (Original Mix)
-02.Trippy Landy (Original Mix)
-03.Psychedelichest (Original Mix)
-04.Moogy Woogy (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7EDBEE452C8A7B9508FCD70C64FD1777D8F2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204029   (785393) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
-02. The Sweet Hello, The Sad Goodbye 5:07
-03. Over My Heart 4:25
-04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203967   (785392) от 04.02.2018
-
-VA - Winter Sessions 2018 (Mixed by Milk & Sugar) (2018) [MP3|320 Kbps] <House, Afro House, Deep House>
+VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mr Raoul K & Sona Diabate  -  Senekela (Raoul K & Laolu Version)  7:24
-02.  Keyano  -  Dan Dale (Original Mix)  7:09
-03.  Crazy White Boy feat. BehrEllips  -  The Forgotten People (Original Mix)  5:30
-04.  Dayne S  -  Sensor (Original Mix)  6:42(   Читать дальше...   )Жанр: House, Afro House, Deep HouseПродолжительность: 05:37:39
+01. Minimal Flex - Diquis (Original Mix)
+02. MiamiSoul - The Pink Panzer (Morry Remix)
+03. Milair - Dark Of God (Original Mix)
+04. Milair - Minicore (Original Mix)(   Читать дальше...   )Жанр: MinimalПродолжительность: 01:09:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B4BE8CCCBD42A01D2E9FBC5F5F4FF72E941F902
+magnet:?xt=urn:btih:4BCDBF7DB1F91BDA6B2A8CBFF6B23C14B0DB136A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +27,684 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203284   (785391) от 04.02.2018
+###  Публикация: 1276973   (787258) от 18.01.2019
 
-Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|Lossless|image + .cue] <Instrumental, Disco>
+VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 
->>Other Styles
->>Instrumental (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Classically Elise (Elise '77) (5:23)
-02. Suite Concerto (5:12)
-03. Easy Feelin' (4:42)
-04. Theme From A Dream (6:05)(   Читать дальше...   )Жанр: Instrumental, DiscoПродолжительность: 00:31:03
+01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
+02. Zinner, Orffee - Someday (Instrumental Radio Edit)
+03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
+04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1997A8E92B24344A531A8214A758644CE93AE972
+magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276812   (787257) от 18.01.2019
+
+К. Каутский | Аграрный вопрос (1926) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Предисловие:
+
+Издательство „Пролетарий", выпустившее в 1923 г. перевод „Аграрного вопроса" Каутского, ныне выпускает новое издание этого перевода. Мое предисловие, написанное три года тому назад, ныне нуждается в некоторых изменениях и дополнениях. Моя оценка работы Каутского для настоящего времени не изменилась. В коренном пункте наше расхождение с „ортодоксальным (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9E7F481C096AA4DC7C8A8FA04FC922014C7D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276830   (787256) от 18.01.2019
+
+Пути подготовки производственно-технической интеллигенции из людей рабочего класса (1931) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Не разрешив проблемы пролетарских кадров, не осветив ее с различных сторон светом марксистско-ленинской теории, не скрепив ее во всех частях мощным неразрывным цементом целеустремленного единого социалистического плана, — нам не разрешить общих и частных задач социалистического строительства.
+
+В этом смысле проблема кадров является, как никогда более острой хозяйственной (   Читать дальше...   )Жанр: История, политология, искусство, педагогика, культурология, публицистика, гносеологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1457FDB35D48A1D7AA4F926B33CAB9FFE4F39306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277040   (787255) от 18.01.2019
+
+Aevin - Gravity (2019) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Electro, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. L1 (01:37)
+ 02. Neptune Trojan (05:03)
+ 03. Halo Orbit (05:18)
+ 04. L2 (01:40)(   Читать дальше...   )Жанр: IDM, Industrial, Electro, ExperimentalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D635C360B283081352CACD0149DFA481AEB9DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276958   (787254) от 18.01.2019
+
+WebScraper 4.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7CDB990E375FA4DD73EEC23D7B31E361CBAF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276979   (787253) от 18.01.2019
+
+iShowU Instant (Advanced) 1.2.11(beta version) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.Тип издания: macOS SoftwareРелиз состоялся: 11.12.2018Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0CA9770A729F357811063AF1D845B0EA83AD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276953   (787252) от 18.01.2019
+
+Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Schritt fur Schritt
+02. Repeat
+03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276810   (787251) от 18.01.2019
+
+Hedge 18.3.9 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Резервное копирование и проверка файлов
+Есть много вариантов, когда речь заходит об утилитах копирования и проверки. Одна из новейших программ, называется Hedge For Mac. Hedge For Mac позволяет пользователю создавать несколько резервных копий своих мультимедийных носителей и полностью проверять эти копии. Программа использует очень простой пользовательский интерфейс, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: hedgeformacПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AE6FB57EFFDC657200255CE0E6F7593BAABFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276831   (787250) от 18.01.2019
+
+Г. Н. Голиков | Очерк истории Великой Октябрьской социалистической революции (1959) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 1917 году над миром взошло солнце Великого Октября, озарившее своим немеркнущим светом путь поступательного развития человечества к светлому будущему — коммунизму. Впервые в жизни общества совершилась самая грандиозная по масштабам, самая глубокая по своим задачам и целям социальная революция, осуществившая вековые чаяния трудящихся о свободной и счастливой жизни; (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37BBD6ABD90BD9D20043448FA09B67D5E99A07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276823   (787249) от 18.01.2019
+
+Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Volatile (07:54)
+ 02. Dub Protocol (09:30)
+ 03. Manipulate (05:28)Тип издания: WEBЖанр: Dub Techno/Deep TechnoПродолжительность: 00:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5A5FC6C0377290EEAFD78F6E61B62ABAE2AB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276921   (787248) от 18.01.2019
+
+TextSoap 8 v8.4.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+TextSoap для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Unmarked Software, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF77FF9DD8488133D003F911623F6B6222B3C0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276843   (787247) от 18.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Jam El Mar - Lotus (Extended Mix)
+02. Moogwai - Viola (Elevation Extended Remix)
+03. Fisherman - The JaguarЖанр: TranceПродолжительность: 02:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7831F7349E573352D0A764236ED6ED5BC0687EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277037   (787246) от 18.01.2019
+
+Aesop Rock & TOBACCO are Malibu Ken - Malibu Ken (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Corn Maze (3:23)
+02. Tuesday (3:30)
+03. Save Our Ship (3:29)
+04. Sword Box (4:01)(   Читать дальше...   )Производство: Rhymesayers - 826257025661Жанр: Hip-HopПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486651C77CD7F3E5887C5ED7A9E91B8DA3026C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277011   (787245) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 11] (Adrenalin28, 2017) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Восстановление деревни Рафталии идёт полным ходом по всем фронтам: появление новых жителей, строительство, обучение ремёслам, повышение уровней. Но лояльная гвардия - это одно. А вот то, что три других священных героя по-прежнему в бегах - реально проблема. Слабые, разрозненные, сбитые с толку, они могут не только наломать дров, но и попросту погибнуть, чего нельзя (   Читать дальше...   )Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429BA3DFCC730A0C6640FD172C6CB1B6D571DB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276804   (787244) от 18.01.2019
+
+MarginNote 3 v3.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Делать аннотации и примечания к книгам, организовывать их в карты разума или быстро создавать карточки, чтобы быстрее запоминать их содержимое. MarginNote предлагает новый подход к чтению книг и созданию ярких, примечательных или аннотаций. Утилита отслеживает каждую запись и позволяет вам организовывать данные в карты разума или карточки.
+
+Независимо от вашей профессии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: Sun MinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, традиционный китайский и упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40874E390AF53E50B4091A8F12EDB2F1E9CE6914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277014   (787243) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 12] (Adrenalin28, 2017) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наофуми продолжает развивать и укреплять деревню, не забывая и о собственных тренировках. А тем временем верные рабы находят яйцо самого настоящего летающего ездового дракона, ещё не подозревая, к чему приведёт такая удачная находка...Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CDF3D11F80F3295E2A3CFBFF55C0E6AA3632AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276959   (787242) от 18.01.2019
+
+Sabu - Sabu (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Rollin' (7:17)
+02. We're Gonna Rock (7:23)
+03. You're Mine Forever (5:48)
+04. Loose Lucy Is On The Loose (6:40)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98BD63DD87D00CE8F2E30BF8608488345840A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276964   (787241) от 18.01.2019
+
+A-Zippr 1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A-Zippr - это простая, быстрая и мощная утилита для открытия zip, RAR и других архивов, таких как 7z, SIT, TAR и 70 различных форматов файлов, и сжатия в 8 широко используемых форматах архивов. Это сделано вручную, чтобы сделать его наиболее настраиваемым для архивирования и разархивирования файлов на MAC.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB2F8EA5B334674C02B4C544E19B50D1A36657E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276916   (787240) от 18.01.2019
+
+Silverstack Lab 6.4.9 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Silverstack Lab - это первое программное обеспечение, которое позволяет одновременно обрабатывать и  управлять данными и создавать ежедневные заметки в одном инструменте. Резервное копирование видеозаписей может быть надежно организовано и прозрачно - в то же время можно создавать ежедневные газеты. Благодаря такому одновременному подходу все цифровые активы становятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Pomfort GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8424BEF7D91D02217F3E13A3C9FFFE1D9F856EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276790   (787239) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 8] (Adrenalin28, 2016) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Смело прыгнув в портал, ведущий в параллельный мир, в погоне за Кё, Наофуми оказывается в странном месте. Все уровни его развития обнулились, в руке самый примитивный щит, а рядом из всех спутников только Лисия. Что произошло? Что это за странные монстры? Где все? И что это за симпатичная девушка с удочкой наперевес, ловко уделывающая монстров?Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AD5429704A07DAE8F5359652C572B76488D67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276846   (787238) от 18.01.2019
+
+VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Profetik Feat. Mandy Jones - Memories (Extended Mix)
+02. Orkidea - Forward Forever (Extended Mix)
+03. Maarten De Jong - Goodbye (Extended Mix)
+04. Myon & Late Night Alumni - Hearts & Silence (Super8 & Tab Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31539303922E83B569F86F12658E50DAA715211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276783   (787237) от 18.01.2019
+
+Maggie Rogers - Heard It In A Past Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Give a Little (03:46)
+02. Overnight (03:20)
+03. The Knife (03:59)
+04. Alaska (03:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFA7E44AF2D604C8A90F5319439E39EA4289CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276784   (787236) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 9] (Adrenalin28, 2016) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перешагнув границы между мирами, Герой Щита вот-вот готов настигнуть злодея Кё, хитроумного обладателя Клановой Книги, похитившего энергию зверя-защитника Лингуя, чем поставил мир, защищаемый Наофуми, на грань уничтожения. Осталось всего-то собраться с силами, да взять штурмом убежище коварного врага. Отчаянная погоня приближается к своей жестокой развязке.Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42A39815D1AF96F573215E6DB4EBBD2BB0CFC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277015   (787235) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 13] (Adrenalin28, 2017) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После того, как Герой Щита и его верные бойцы отбились от возникших словно из ниоткуда убийц, нацелившихся на Рафталию и ясно давших понять, что они не успокоятся, пока не добьются своего, Наофуми принимает решение отправиться в далёкую и загадочную страну Кутенро, чтобы задавить проблему в зародыше. Вот только поскольку по всем признакам убийц посылает высшее руководство (   Читать дальше...   )Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAD498531ABBA1B835202A50FA8139595234B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276900   (787234) от 18.01.2019
+
+Privacy Eraser Free 4.46.2 Build 2752 + portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FB4622414C06DD231339B7AE6AE9176BF3E5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

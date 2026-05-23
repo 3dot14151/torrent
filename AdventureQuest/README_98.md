@@ -1,3 +1,107 @@
+###  Публикация: 1774915   (29910) от 24.01.2025
+
+Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в незабываемое путешествие вместе с Сэйбл, скользите через бескрайние пустыни и завораживающие пейзажи, осматривайте остовы космических кораблей и открывайте для себя чудеса древних цивилизаций. Исследуйте пустыню, оседлав верный ховербайк, взбирайтесь на занесенные песком монументальные руины и встречайтесь с другими кочевниками, раскрывайте давно (   Читать дальше...   )Тип издания: RepackРазработчик: ShedworksЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7344213C3E20103CA7C6340ABB163FE31C8C1138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775161   (29825) от 25.01.2025
+
+Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Удивительная игра "Mark of the Deep" - это ваш шанс отправиться в эпическое пиратское приключение, которое порадует вас богатой историей, интересным сюжетом, а также лучшими элементами таких хитов, как "Metroidvania" и "Souls-Like". Вам предстоит отправиться в удивительное путешествие в роли пирата по имени Новичок, который должен пролить (   Читать дальше...   )Тип издания: RepackРазработчик: Mad MimicЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Бразильский ПортугальскийЯзык субтитров: Русский, Английский, Бразильский Португальский, Французский и другиеЯзык интерфейса: Русский, Английский, Бразильский Португальский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10F0DB819512E287B83788EB0B8B759D87842C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775332   (29714) от 26.01.2025
+
+Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+это короткая интерактивная зарисовка без слов с нарисованной вручную анимацией и завораживающей музыкой, рассчитанная на то, что вы пройдете ее за один раз. Главный герой – столяр, недавно потерявший жену. В доме, который он когда-то выстроил для них на лесной опушке, он пытается отпустить прошлое и начать жить дальше. Простые повседневные дела – уход за садом или (   Читать дальше...   )Тип издания: RepackРазработчик: Made Up GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4D5BD47F1D82813AB76209715E6159535A8EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775347   (29683) от 26.01.2025
+
+Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Мистический хоррор-визуальный роман, где вам нужно выжить семь дней с проклятой картиной. Главный герой, запертый в мрачной студии на семь дней, должен справиться с проклятой картиной девушки, чтобы выжить. Полагайтесь на записи предыдущих жертв и постарайтесь успешно нарисовать её портрет. Будьте осторожны, чтобы не разозлить её, иначе вскоре столкнетесь с печальной (   Читать дальше...   )Тип издания: LicenseРазработчик: SleepingMuseumЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9116DDFBD83AE07FF8FEC7480012797127BE7D49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775534   (29646) от 27.01.2025
 
 DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
@@ -6,7 +110,7 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Lies We Tell Ourselves (2025) [Ru/Multi] (Build 17168908) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Gift Collector (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ The End of the Sun (2025) [Ru/Multi] (1.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Deliver Us Mars (2023) [Ru/Multi] (build 17157569) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +370,7 @@ NEEDY STREAMER OVERLOAD / NEEDY GIRL OVERDOSE: Internet Angel Pack (2022) [Ru/Mu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Deliver Us Mars (2023) [Ru/Multi] (2.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +500,7 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC7E42A70E61CA3194CA2B141746A29DF54C13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778625   (28161) от 09.02.2025
-
-THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленная старыми и классическими играми в жанре survival horror, THE MUTE HOUSE сочетает в себе исследование, управление, головоломки и немного экшена. Расследуя дело об исчезновении сестры, Эмили оказывается запертой в таинственном особняке. В течение последних месяцев в Эштауне и его окрестностях происходят странные исчезновения.Тип издания: RepackРазработчик: December Blues GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, ФранцузскийЯзык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7DE9CACA8F7DAFC996321C7373AF0684D4F4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778608   (28143) от 09.02.2025
-
-Grief like a stray dog / А Горюшко вслед собакою... (2025) [Ru/En] (Build 17201665) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28143.jpg" />
-</div>
-
-
-###  Подробнее
-
-По лесной тропинке за горизонт, озаряемый алым пламенем, вереницей уходят мужчины и не возвращаются. Юная Надя, подменяя больную мать, вынуждена стать почтальонкой, разносящей по деревне вести бед и надежд. «А Горюшко вслед собакою…» - это небольшое интерактивное произведение о юной почтальонке, вынужденной во время Второй мировой войны доставлять родным солдат вести (   Читать дальше...   )Тип издания: RepackРазработчик: RayonistЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBB4C4B2C77952B709F0645BC515C9D06AAB94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778690   (28134) от 09.02.2025
-
-Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленный такой классикой, как Resident Evil и Silent Hill: Детектив Стоун расследует теневой заговор. Исследуйте атмосферные уровни, сражайтесь с монстрами и решайте головоломки. Исследуйте историю неожиданных поворотов. Раскройте самое безумное дело в своей детективной карьере, находя улики, сражаясь с зомби-подобными существами и боссами, от которых волосы (   Читать дальше...   )Тип издания: RepackРазработчик: Dragon LevelЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D814BD2E188436130157554803C74A63BD5089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765244   (28089) от 10.02.2025
-
-Stars In The Trash (2024) [Ru/Multi] (1.04 Build 20250209) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stars in the Trash - увлекательный платформер, вдохновленный классической анимацией. Исследуйте мир, заводите друзей - и не попадайтесь живодеру! Устав сидеть в четырех стенах, избалованный кот Мока сбегает на поиски приключений. Однако путешествие принимает неприятный оборот, когда на улицы выходит грозный живодер. Моке предстоит научиться выживать и ценить старую (   Читать дальше...   )Тип издания: RepackРазработчик: Valhalla CatsЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E692274DC70D379712426F3BF19D405AB98DB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

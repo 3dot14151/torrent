@@ -1,3 +1,111 @@
+###  Публикация: 1416120   (367669) от 16.10.2020
+
+Д. Михайлов, Т. Краснянская (сост.) | Я пока ещё жив. Новомученики и исповедники (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой брошюре — жизнеописания новомучеников. Несколько трагически завершившихся судеб из многих тысяч замученных и расстрелянных наших соотечественников, оказавшихся ненужными новой власти. Их вина состояла лишь в том, что они верили в Бога и жили по законам любви и милосердия.Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F66719C2727D436CF3B6585C15087CA757B031C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176921   (367645) от 23.10.2017
+
+О.А. Крашенинникова | Древнеславянский Октоих св. Климента, архиепископа Охридского [По древнерусским и южнославянским спискам XIII-XV веков] (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга является первым наиболее полным изданием произведений ранней славянской гимнографии конца IX в. из Октоиха, автором которого считают ученика св. Кирилла и Мефодия св. Климента, архиепископа Охридского (916). Болгарскому книжнику принадлежат каноны Св. Троице, Божией Матери, св. Иоанну Предтече и апп. Петру и Павлу, написанные им в 80-90-х гг. IX в. для первой (   Читать дальше...   )Жанр: Богослужебные тексты, Филология, ОктоихФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F08B6EB5F761BA7B23F19BED3D92A093724C54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176929   (367643) от 23.10.2017
+
+Богородице-Рождественский монастырь, Бенедиктинский монастырь Мениль-Сен-Лу (изд.) | Бари, 1987 г. Новый Валаам, 1988 г. Баламан, 1989 г. (1995) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Второй выпуск серии «Единство» продолжает публикацию документов Международной смешанной богословской комиссии. Он включает в себя три документа.
+В первом документе международной смешанной богословской Комиссии совместного диалога между Католической и Православной Церковью рассматривается взаимосвязь между «Верой, Таинствами и единством Церкви».
+Такое же изучение (   Читать дальше...   )Жанр: Экуменизм, богословиеФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CD5BF8C46D22A8C9970B970588FE21E4C9932A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176193   (367634) от 23.10.2017
+
+Светлана Друкаренко (сост.) | Кладезь мудрости. Советы старцев о земном и небесном (2005) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В самые тяжёлые времена, в годы лихолетья, насилия, репрессий Господь посылает миру старцев, которые всею своею жизнию являют мудрость духовную, любовь и верность неколебимую, и радость о Господе.
+
+А мы? «...Стяжательство становится во главу угла нового взгляда на мир, деньги и вещи ставятся выше нравственности, духовности...» А по радио крутится реклама: «Хочешь (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF0CCDD4EBE6C99C8C2162D163AA42D1BC31FB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100304   (367321) от 23.10.2017
 
 Алексей Стричек | Автобиография рядового иезуита отца Алексея Стричека (2009) [PDF, DJVU]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +514,7 @@ molitvoslov (изд.) | Полный православный молитвосл
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,116 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F036EB8F32196BEE2DBAEB257CE7D92662E21AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951907   (357939) от 31.10.2015
-
-Михаэль Лайтман | Каббала. Высший мир. Начало пути (2015) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорогой читатель!
-
-Перед Вами учебное пособие по каббале, составленное под руководством ученого-каббалиста, профессора, руководителя Международной академии каббалы Михаэля Лайтмана.
-(   Читать дальше...   )Жанр: Эзотерика, религияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298455B8BE96189E4737D74CA9070F2787F89617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329031   (356730) от 03.10.2019
-
-Иеромонах Григорий Святогорец | Страсть осуждения (2017) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия книг афонского иеромонаха Григория, ученика преподобного Паисия Святогорца, знакомит читателя с сокровищницей святоотеческой литературы. Богословие святых отцов, обращённое к повседневным заботам человека, делает их слова близкими и понятными каждому. Простым языком автор говорит о главном в жизни верующего: избавлении от страстей, исполнении заповеди любви, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE069223E9F54218A3A33927D5A8A7FB75C17E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329138   (356646) от 03.10.2019
-
-Протоиерей Сергий Филимонов | Учебник для сестёр милосердия (2007) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоиерей Сергий Филимонов — настоятель больничного прихода, доктор медицинских наук, кандидат богословия. Одновременно — председатель Общества православных врачей СПб. и духовник Сестричества св. мч. Татианы.
-Первые группы милосердия были созданы о. Сергием в 1993 году. Они состояли из христианок, желавших послужить в больнице. В 1995–1996 гг. батюшкой были основаны (   Читать дальше...   )Жанр: Христианство. Православие. Социальное служениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329022   (356644) от 03.10.2019
-
-Монахиня Евфимия | Тайны монастырей. Жизнь в древних женских обителях (2015) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь за монастырскими стенами всегда была окутана ореолом мистической тайны. Эта книга даёт прекрасную возможность заглянуть внутрь русского монастыря и познакомиться с повседневной жизнью женских обителей по впервые публикующимся в печати архивным данным.
-
-Перед вашим взором пройдёт галерея игумений северных женских обителей, сестёр милосердия, монастырских воспитанниц. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

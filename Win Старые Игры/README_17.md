@@ -1,3 +1,55 @@
+###  Публикация: 1156254   (528399) от 06.08.2017
+
+Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Древние и загадочные Храмы открыли местоположение родного мира исчезнувшей инопланетной расы. Эти Храмы, обнаруженные после войны на Галиусе IV, дают ключ к самым мощным технологиям во вселенной. И теперь семь межзвездных империй мчатся наперегонки через всю галактику, чтобы захватить эту планету и заполучить тайное могущество древней цивилизации. Deadlock II: Shrine (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyberlore StudiosЖанр: Стратегия, Пошаговая, ФантастикаЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC153970C5C7B0E3839434F4D5B0DEC3CCCCB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156811   (526296) от 09.08.2017
+
+Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (1.4) Unofficial
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Legacy: Dark Shadows – это трехмерная приключенческая игра с интригующим фантастическим сюжетом и обаятельным главным героем – девушкой, подвизающейся на ниве частного сыска. Игрокам предстоит посетить Марс и Юпитер, побывать в прошлом и в будущем и распутать клубок загадок, начало которому было положено в далеком 1939 году. Изображение высочайшего качества, использующее (   Читать дальше...   )Тип издания: UnofficialРазработчик: Razbor StudiosЖанр: Adventure, Point&ClickЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DAC472E0F05F0DEE0F0C6D5446F627D2A835BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157560   (525109) от 12.08.2017
 
 Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
@@ -6,7 +58,7 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NASCAR Racing 3 (1999) [En] (1.2.1.7/dlc) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 >>Языковые пакеты для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ The Original Strife: Veteran Edition (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ BioShock (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +561,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +587,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +613,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +639,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +665,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,58 +676,6 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69647512D73A870D8271A8787FF64C4DAD4AAA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563260   (505145) от 13.07.2022
-
-Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] License [Русификатор]
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Другая история от создателей лысого киллера – Агента 47. Жестокий, мрачный, пугающе реалистичный командный боевик расскажет о двух осужденных на смертную казнь негодяях, в силу обстоятельств оказавшихся напарниками. Беспринципный наемник и клинический психопат в страшной и правдивой истории о ненависти, боли и мести, шокирующие сцены насилия, отвязанные криминальные (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: 3rd Person, Action, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2816413BF85342C41A08952476D036396F217CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539151   (504062) от 28.08.2012
-
-True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Нью-Йорк, где вас ждет почти безграничная власть над улицами большого яблока. Ведь вы - Маркус Рид, бывший преступник, а ныне полицейский, использующий свои полномочия, чтобы найти и уничтожить убийцу своего наставника, а заодно очистить от отбросов общества кварталы Нью-Йорка от Гарлема до Чайнатауна. Тайное расследование заведет Маркуса в паутину лжи и преступности, выбраться из которой он сможет, только выжив в борьбе с уличными бандами, собственным прошлым и всем, что противопоставит ему (   Читать дальше...   )Тип издания: RePackРазработчик: Luxoflux CorpЖанр: Action (Shooter) / Arcade (Fighting) / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский (Buka) / Русский (Unknown) / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:721244CBC6CF1E61298CDF963B059C483B05D697
 ```
 
 https://mybot314.ru/tekegram_catalog/

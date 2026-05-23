@@ -1,29 +1,3 @@
-###  Публикация: 1815123   (5515) от 28.08.2025
-
-Bayonetta Origins: Cereza and the Lost Demon (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно жила-была юная ведьма по имени Сереса... Задолго до того, как в совершенстве овладеть темными искусствами и превратиться в Байонетту, она отправилась в судьбоносное путешествие по запретному Авалонскому лесу. Компанию ей составил Чешир - ее самый первый демон, который обитал в плюшевой игрушке. Играйте Сересой и Чеширом и исследуйте коварный лес в поисках (   Читать дальше...   )Тип издания: LicenseРазработчик: Platinum Games Inc.Жанр: Экшены, Приключенческие игры, ГоловоломкиЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D447D471233B47B9D10E134C547DE1199412A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814972   (5514) от 28.08.2025
 
 Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
@@ -32,7 +6,7 @@ Sea of Stars (2023) [Switch] [EUR] 19.0.1, Atmosphere 1.9.0 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Animal Well (2024) [Switch] [EUR] 19.0.1, Atmosphere 1.9.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +58,7 @@ Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +84,7 @@ Outer Wilds: Archaeologist Edition (2023) [Switch] [EUR] 18.1.0, Atmosphere 1.7.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +110,7 @@ Dredge: Complete Edition (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.4.1 [License
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +136,7 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Switch] [EUR] 18.0.1, Atmo
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +162,7 @@ Stray (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +188,7 @@ Have A Nice Death (2023) [Switch] [EUR] 15.0.1, Atmosphere 1.5.1 [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +214,7 @@ World of Goo 2 (2024) [Switch] [EUR] 18.0.1, Atmosphere 1.7.1 [License] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +240,7 @@ Storyteller (2023) [Switch] [EUR] 16.0.3, Atmosphere 1.5.4 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +266,7 @@ Pentiment (2024) [Switch] [EUR] 18.1.0, Atmosphere 1.7.1 [License] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +292,7 @@ Hollow Knight (2018) [Switch] [USA] 20.1.5 [NSZ] [License / DLC / 1.4.3.2b] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +318,7 @@ Hollow Knight: Silksong (2025) [Switch] [USA] 20.1.5, Atmosphere 1.9.4 [License]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

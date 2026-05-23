@@ -1,3 +1,81 @@
+###  Публикация: 1444960   (1031740) от 21.03.2023
+
+My Summer Car (2016) [En] (22.02.23) Repack Nouhelgod [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+My Summer Car - единственный в своём роде симулятор вождения, сборки, починки, тюнинга автомобиля И мгновенной смерти. Вы начинаете игру с сотнями деталей авто, и собираете как саму машину так и её двигатель вручную. Однако Вам необходимо следить и ухаживать не только за своим транспортом, но и собой - сосиски, пиво и здоровый сон прекрасно с этим справляются.Тип издания: RepackРазработчик: Amistech GamesЖанр: Инди, Гонки, СимуляторыЯзык озвучки: ФинскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA366FE5C9D56052634C40DCFA03F57299A16C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449313   (1029844) от 21.02.2021
+
+Valheim (2021) [Ru/Multi] (0.145.6) Repack xatab [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вальхейм — это игра, в которой вам предстоит исследовать огромный фэнтезийный мир, пропитанный скандинавской мифологией и культурой викингов. Ваше приключение начнется в самом сердце Вальхейма, месте довольно спокойном. Но берегитесь, ведь чем дальше вы будете продвигаться, тем опаснее будет становиться мир вокруг. К счастью, по пути вас будут ждать не только опасности (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: RPG, Action, AdventureЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237964D5EEB4C174F2B04FFDCE9A963FFA75288E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416995   (1029830) от 21.02.2021
+
+Medieval Dynasty (2020) [Ru/Multi] (0.3.1.4) Repack xatab [Early Access]
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Раннее Средневековье в Европе. Миром правят дворяне и церковь. Разные страны торгуют между собой, и жажда прибыли порождает зависть, недоверие и алчность. Границы государств, охваченных войной, то и дело меняются. В игре Medieval Dynasty вам предстоит примерить на себя роль юноши, который сбежал от войны и хочет взять жизнь в свои руки. Изначально вы одиноки, неопытны (   Читать дальше...   )Тип издания: RepackРазработчик: Render CubeЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1F3A2E6970B4BEE2973B78CD391C63CA3EC0BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446295   (1028260) от 02.03.2021
 
 Grounded (2020) [Ru/Multi] (0.7.1.2935) Repack Other s
@@ -6,7 +84,7 @@ Grounded (2020) [Ru/Multi] (0.7.1.2935) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.8.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ DYSMANTLE (2020) [En] (0.6.9.11) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Outer Colony (2017) [En] (0.5.53) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Architect: Paris (2021) [Ru/Multi] (0.8.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ StarCraft II: Heart of The Swarm [En] (Beta) 2013 | [Установленная]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +243,7 @@ Out of Reach (2015) [Ru/Multi] (0.24) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Empyrion - Galactic Survival (2015) [Ru/Multi] (5.0.3.0792) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +295,7 @@ Space Engineers (2013) [Ru/Multi] (01.169.001) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +321,7 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +347,7 @@ MadOut Open City (2015) [Ru/En] (08-02-2016) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Sheltered (2015) [Ru/Multi] (Update 8) Repack MasterDarkness [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +399,7 @@ Good Night, Knight (2021) [En] (0.6.2.04) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +425,7 @@ The Last Look (2016) [Ru/Multi] (0.4.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +452,7 @@ Roguelands (2015) [En] (0.6.1) Repack By Trol80lvl
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +478,7 @@ BeamNG.drive (2013) [En] (0.5.2.1) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Castle Story (2015) [En] (0.6.0) Repack John2s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_910960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +556,7 @@ Dorfromantik (2021) [Ru/Multi] (0.2.0.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +582,7 @@ World of Horror (2020) [En] (0.9.17h1) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +608,7 @@ Finding Bigfoot (2017) [Ru/Multi] (1.1.7) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +634,7 @@ The Wild Eight (2017) [Ru/Multi] (09.02.2017) Unofficial VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -582,7 +660,7 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ Paint the Town Red (2016) [En] (0.4.2) Repack VseTop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD9F09EE907933BA776D186AC93C655ACE9D5F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106736   (870693) от 20.02.2017
-
-Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (0.0.2) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит принять командование отрядом Космических Десантников из ордена Космических Волков под предводительством Вальгарда Убитого Дважды. Ударный Крейсер вашей Великой Роты попал в ловушку Десантников Хаоса из легиона Несущих Слово и был вынужден совершить экстренную посадку на планете Канак, диком вулканическом мире, населённым племенами суровых варваров. (   Читать дальше...   )Тип издания: RepackРазработчик: HerocraftЖанр: Strategy (Turn-based, Tactical), IsometricЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3B4BDF5CB28B1BF7B7B0CAD2C9F627B4FF707F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351506   (855692) от 27.09.2021
-
-Surviving the Aftermath (2019) [Ru/Multi] (1.17.0.3533/dlc) Repack Other s [Founder's Edition]
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выживите и добейтесь успеха в постапокалиптическом будущем, в котором ресурсы и возможности ограничены. Постройте колонию, защищенную от катастроф, оберегайте своих колонистов и восстановите цивилизацию в опустошенном мире. Помните: конец света — лишь начало.Тип издания: RepackРазработчик: Iceflake Studios OyЖанр: Strategy, City BuilderЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FA4144B63AEC8EF156E63778ED8B5A8E45D25F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088870   (853218) от 02.03.2017
-
-Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.6042) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853218.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Life is Feudal: Forest Village вы руководите группой людей, которые отправились осваивать новые земли. Ваш отряд прибыл на лодке, загруженной необходимыми для выживания ресурсами – едой, инструментами, одеждой и строительными материалами. Они помогут жителям основать новое поселение и обеспечить его процветание.Тип издания: RepackРазработчик: MindillusionЖанр: Strategy, Urban simulationЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198FE1F8F1D82A40FF4137729F36F6F95F85D91B
 ```
 
 https://mybot314.ru/tekegram_catalog/

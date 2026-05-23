@@ -1,3 +1,81 @@
+###  Публикация: 1791320   (12827) от 02.07.2025
+
+Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Sandwalkers – это пошаговый «рогалик», где главной вашей целью является исследование. Соберите команду и отправляйтесь в путь по враждебным землям. Сражайтесь и постигайте древние тайны, чтобы найти и спасти Мать-древо Умаму (Mother Tree Umama). Каждые десять лет племя Мка отправляет караван в глубины Фитхи. Это вечная буря, которая разделила племена Увандо и сделала (   Читать дальше...   )Тип издания: LicenseРазработчик: Goblinz StudioЖанр: Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9762B02336B3D91B04D63135CD0804DFB7C6BAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776092   (12818) от 02.07.2025
+
+Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этой экшн-RPG вам предстоит стать монстром-оборотнем, способным принимать форму убитых им чудовищ. Отправляйтесь в путешествие в одиночку или берите с собой до 3 друзей в совместном режиме и откройте темные секреты, сокрытые в легендарном городе Ааша. Становитесь сильнее, отыскивая новое снаряжение и изучая умения как для человеческой, так и для чудовищной формы, (   Читать дальше...   )Тип издания: LicenseРазработчик: AftnareldЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2907D4505CE21B7E13548B57DA606F570616D64D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700967   (12816) от 02.07.2025
+
+Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Caribbean Legend - пиратская РПГ с открытым миром погружает в захватывающую эпоху карибского пиратства, предлагая пройти увлекательное путешествие в роли Шарля де Мора, молодого французского дворянина, ищущего приключений и помогающего своему брату в Новом Свете. На протяжении 200-часового приключения по разнообразным островам и регионам игроки сталкиваются с огромным (   Читать дальше...   )Тип издания: RepackРазработчик: BlackMark StudioЖанр: Ролевые игрыЯзык озвучки: Русский, Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A83FCA6FBA3014280AFD276B0C028B359AB9EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759814   (12805) от 02.07.2025
 
 Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
@@ -6,7 +84,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Moonstone Island (2023) [Ru/Multi] (1.5.2553.9/dlc) License GOG [Collector’s E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Tales of Maj'Eyal (2012) [En] (1.7.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Yu-Gi-Oh! EARLY DAYS COLLECTION (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ My Time At Portia (2019) [Ru/Multi] (20250620-1430-141719/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Ru/Multi] (1.0.4258.0) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Ys VIII: Lacrimosa of DANA (2018) [Ru/Multi] (1.0.0.1/dlc) Repack Let'sРlay [Di
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Union of Gnomes (2024) [Ru/Multi] (1.5.28) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12A4D82CD935960356DCE4CF677FCEFBD14A79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792160   (10837) от 21.07.2025
-
-Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Mandragora - сайд-скроллер в жанре «ролевой экшн» в 2,5D со множеством элементов «метроидвании» и «soulslike». Зажигай свой колдовской фонарь и отправляйся во тьму Энтропии, чтобы порвать эту реальность в клочья. Человечество пало под натиском монстров. Теперь народу Фельдума приходится скрываться за кирпичными стенами и заборами, отводящими внимание, (   Читать дальше...   )Тип издания: RepackРазработчик: Primal Game StudioЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DEF5F784906EE317D1A1D29D6C20C4D9F5A4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807851   (10821) от 21.07.2025
-
-Cyberpunk 2077 (2020) [Ru/Multi] (2.3/dlc) Repack FitGirl [Ultimate Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cyberpunk 2077 приключенческая ролевая игра, действие которой происходит в мегаполисе Найт-Сити, где власть, роскошь и модификации тела ценятся выше всего. Вы играете за V, наёмника в поисках уникального устройства, позволяющего обрести бессмертие. Вы сможете менять киберимпланты, навыки и стиль игры своего персонажа, исследуя огромный открытый мир, где ваши поступки (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D3921BF7017490C74D546C3D0FD6F1E0694422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672600   (10730) от 22.07.2025
-
-Dark Envoy (2023) [Ru/Multi] (1.7.1.73935) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Envoy объединяет классическую механику RPG с боевой системой, основанной на навыках, классах и специализациях, и сочетает ее с разнообразными тактическими вариантами подхода к сражениям. Вы управляете отрядом охотников за реликвиями в повествовании о судьбе, происходящей в раздираемом конфликтами мире. Что произойдет, если объединить силы Технологии и Магии? (   Читать дальше...   )Тип издания: LicenseРазработчик: Event HorizonЖанр: Ролевая игра, СтратегияЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE31C42B177CC798640FF02CA71CFFE09B31176
 ```
 
 https://mybot314.ru/tekegram_catalog/

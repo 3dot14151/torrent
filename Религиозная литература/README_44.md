@@ -1,3 +1,107 @@
+###  Публикация: 1403279   (692222) от 19.08.2020
+
+Орфограф (изд.) | Новый Афонский патерик [3 тома] (2018) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Составитель этой книги — один из уважаемых афонских старцев, по смирению пожелавший остаться неизвестным. Более 30 лет он собирал и систематизировал повествования и изречения, отражающие аскетическое и исихастское Предание Святой Афонской Горы. Его восемьсотстраничная книга, вышедшая на Афоне в 2011 году, выдержала несколько переизданий. Ради удобства читателей и (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9A7F8D90CA4D878986ABCA7123408C9E10A956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402897   (692183) от 19.08.2020
+
+Иеромонах Симон (Безкровный) | Практическое руководство к стяжанию Иисусовой молитвы (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По просьбам многих монахов и монахинь, желающих неложного спасения, было составлено это «Практическое руководство к Иисусовой молитве». В устной молитве Иисусовой мы учимся хранить память Божию, в умной молитве мы отсекаем страсти, в сердечной - отсекаем помышления и приближаемся ко Христу, в непрестанной — уподобляемся Христу, а в благодатной молитве всецело соединяемся (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6A2233675C7B755CA11D3CF71932932EFCC2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221886   (691536) от 26.04.2018
+
+Юлия Данзас (Юрий Николаев) | Католическое Богопознание и марксистское безбожие (1941) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Заглавие настоящего труда - «Католическое Богопознание и марксистское безбожие» - указывает на то, что вопросы Богопознания будут здесь рассматриваться только с точки зрения опровержения доводов, выставляемых марксистами для подкрепления их антирелигиозной пропаганды. Само собою разумеется, что Католическое Богопознание отнюдь не исчерпывается этими опровержениями. (   Читать дальше...   )Жанр: АпологетикаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0978A0CB00C73D2715B602B86B8EEA4ED3E7E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221821   (691535) от 26.04.2018
+
+Общество памяти игумении Таисии (изд.) | Акафист Пресвятой Богородице в честь чудотворной Её иконы Смоленской, именуемой «Одигитрия» (2009) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первообраз Смоленской иконы Божией Матери «Одигитрия» (Путеводительница) очень древний, по преданию, написан апостолом Лукой. По свидетельству летописи, византийский император Константин IX Мономах благословил ею в 1946 году свою дочь Анну, выдавая замуж за сына Ярослава Мудрого. В 1101 году сын Анны Владимир Мономах перенёс икону из Чернигова в Смоленск в соборный (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1331C3A4592D4EA7830A9E81992315CB1022CCCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221742   (691471) от 26.04.2018
 
 Елена Тростникова (сост.) | Притчи Святителя Николая Сербского [Православная библиотека] (2017) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,113 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B50FEFE5F9DEC5FB5474FFB04AAFDD40DBD0444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222226   (687366) от 28.04.2018
-
-Я. В. Минц | Иисус Христос как тип душевнобольного (1927) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687366.jpg" />
-</div>
-
-
-###  Подробнее
-
-В статье сделана попытка показать, как эпоха появления христианства располагала к появлению мессии, избавителя иудеев от ига завоевателей, от всех бед и гонений, который, вероятно, является изображением не одного определенного индивидуума, а сборной группы одержимых религиозным бредом.Жанр: История, медицина, психиатрия, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C183F048F90E8972BE76171A6CEDF25EBDE340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222184   (687360) от 28.04.2018
-
-Митрополит Иларион (Алфеев) | Иисус Христос. Жизнь и учение. Начало Евангелия [Книга 1] (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи первой в шеститомной серии «Иисус Христос. Жизнь и учение», книга митрополита Илариона (Алфеева) «Начало Евангелия» покрывает материал, содержащийся в начальных главах четырех Евангелий: в книге рассматриваются повествования о рождении Иисуса и связанных с ним событиях; о крещении Иисуса и Его взаимоотношениях с Иоанном Крестителем; об искушении от диавола (   Читать дальше...   )Жанр: Библеистика, богословиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC00100D9DEFE71F560B8C2AB93DF2F7244241E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134519   (687089) от 16.05.2017
-
-Мурад Абдуллах | Я тоже умею совершать намаз (2010) [PDF, EPUB, DOC, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ислам - религия, которая призывает к миру и спокойствию, чистоте, человечности, любви и великодушию, патриотизму, получению знаний. Она удостаивает человека благоденствием мира нынешнего и мира последнего.
-Данная книга содержит информацию о намазе: Условия Веры и Ислама. Шесть фраз, содержащих основы религии. Сорок религиозных обязанностей (фарзов). Тахарат, гусл, (   Читать дальше...   )Жанр: ИсламФормат: PDF, EPUB, DOC, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F6523EF1B636F18416EDA8A7AFAC47DDD15A837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134635   (684968) от 17.05.2017
-
-Задонский Рождество-Богородицкий мужской монастырь (изд.) | О чтении Священного Писания, книг духовных и светских. Из творений Святых Отцов (2011) [PDF, DJVU, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684968.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Писания святых отцов все составлены по внушению или под влиянием Святого Духа. Чудное в них согласие, чудное помазание! Руководствующийся ими имеет, без всякого сомнения, руководителем Святого Духа.
-
-Все воды земли стекаются в океан, и может быть, океан служит началом для всех вод земных. Писания отцов соединяются все в Евангелии; все клонятся к тому, чтобы научить (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BB9EDE10618FAEBB2EC3BCD9E0227EE5681456
 ```
 
 https://mybot314.ru/tekegram_catalog/

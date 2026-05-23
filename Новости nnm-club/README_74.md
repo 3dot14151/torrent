@@ -1,3 +1,195 @@
+###  Публикация: 1504426   (803849) от 27.10.2021
+
+Дюна / Dune: Part One (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия /  Warner Bros, Legendary Entertainment, Villeneuve FilmsЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный (iTunes), Многоголосый профессиональный (Jaskier, HDRezka Studio), Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657A88811F4643F2A3943E99512BABD7B32CFF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775900   (803813) от 19.04.2014
+
+Minecraft (2011) [Ru/Multi] (1.7.7) Repack Kron
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Minecraft это игра наподобие песочницы в которой можно строить.
+
+Игра постоянно в процессе развития. Разрабатывается Маркусом Перссоном, известным также как "Notch". Игра была задумана как клон игры Infiniminer, хотя Перссон хочет, чтобы геймплей был больше похож на Dwarf Fortress.
+
+В режиме выживания, основной задачей является строительство и зарабатывание очков, но в него также включен ряд дополнительных функций. Такими является наличие враждебных монстров, а так же необходимость собирать ресурсы на постройку сооружений и материалы для ковки инструментов работы и защиты от монстров.Тип издания: RepackРазработчик: MojangЖанр: Аркада, Платформер, ПесочницаЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D71C5899D2649F061F0C1DD8F81E16AE077FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377290   (803739) от 19.05.2020
+
+Последний танец / The Last Dance (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Документальная лента «Последний танец», в которой зрители смогут увидеть ранее не рассказанные истории о легенде баскетбола Майкле Джордане и команде «Чикаго Буллз» времён девяностых годов. Фильм состоит из десяти частей. Создатели покажут редкие и незасвеченные кадры, а также обещают более ста интервью с героями НБА того времени. Помимо видеозаписей Джордана в документальный (   Читать дальше...   )Производство: США, ESPN Films, Jump 23, Mandalay Sports Media (MSM), NBA EntertainmentЖанр: Документальный, спорт, биографияРежиссер: Джейсон ХехирПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские (форсированные), русские, английские (форсированные), английские, немецкие, испанские, финские, французские, итальянские, польские, португальскиеПродолжительность: серии x ~00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EBF18FC15E9A61F186698D706330165EE98416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384353   (803736) от 19.05.2020
+
+Adobe Photoshop 2020 21.1.3.190 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop — это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8342A029112D8A3EEC3710B4092014EA24E103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009522   (803316) от 24.04.2016
+
+LockScreen 2.0 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программа LockScreen предназначена для блокировки компьютера путем установки горячих клавиш.Блокируются клавиатура и мышка.Стандартная блокировка(Win+L) не блокируется.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EA21DE7216BB538C4922A02310AC26E0A1012A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010332   (803232) от 24.04.2016
+
+Bandicam 3.0.4.1036 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D887A9AF096B55F0C5AB421BBF1F9030C127D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471317   (803220) от 24.04.2016
+
+Joe Bonamassa - 23 альбома (2000-2016) Официальная дискография [FLAC|Lossless|image + .cue]<Blues Rock, Hard Rock, Rock and Roll>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Studio Albums:
+2000 A New Day Yesterday
+2002 So, It's Like That
+2003 Blues Deluxe(   Читать дальше...   )Live Albums:
+2002 A New Day Yesterday Live
+2008 Live from Nowhere in Particular
+2009 Live from the Royal Albert Hall(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Rock and RollПродолжительность: 31:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B252B19779145C0D0A534144055130CFD4418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905695   (803208) от 24.04.2016
 
 Супердевушка / Супергёрл / Supergirl (2015) HDTVRip, WEB-DLRip [H.264/1080p-LQ] (сезон 1, серия 1-20 из 20) (LostFilm)
@@ -6,7 +198,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +250,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.4 Build 286 Stable + Portable 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +278,7 @@ Malwarebytes Anti-Malware Premium 3.0.6.1469 DC 29.03.2017 RePack by KpoJIuK [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +304,7 @@ Sticky Password Premium 8.0.11.49 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +383,7 @@ Dead Space Anthology (2008-2013) [Ru/Multi] Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +435,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) OriginRip Let'sPlay [Digit
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +487,7 @@ Telegram создаст свою криптовалюту, заменит ею �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +513,7 @@ Adobe Photoshop Lightroom Classic 11.0.0.10 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_802026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +565,7 @@ VMware Workstation 12 Pro 12.1.1 build 3770994 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +643,7 @@ MAGIX Vegas Pro 14.0 Build 244 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_801171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -488,192 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120609   (800935) от 01.04.2017
-
-uTorrent Pro 3.5 Build 43580 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800935.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB0EFC587E5BEF47B88AB8582A0CAE831A34DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029916   (800811) от 16.01.2018
-
-The Beatles: 1 (1962-1970) 2015 [remastered] BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для моего поколения они - кумиры. Мы, даже не видя их и не слыша их музыки, уже знали это волшебное слово - Битлс. А когда сначала услышали, а потом, много позже (с появлением видеомагнитофонов в середине 80-ых) еще и увидели, легенда стала явью. Обыкновенные люди, только жутко талантливые, и появившиеся именно в то время, когда было нужно. Это - Beatles.01. Love Me Do 2:25
-02. From Me to You 1:56
-03. She Loves You 2:23
-04. I Want to Hold Your Hand 2:31(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FF034E2DFD3F80392B029B0D48B273FCC6C685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199466   (800798) от 16.01.2018
-
-Пила 8 / Jigsaw (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800798.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе обнаруживают несколько тел, обладатели которых встретили определенно не лучший конец. Все улики указывают на одного человека: Джона Крамера. Но как это возможно? Человек, известный как Пила, мертв уже более десяти лет. Неужели все-таки нашелся тот, кто рискнул подобрать мантию жестокого маньяка?Производство: США, A Bigger Boat, Serendipity Productions, Twisted PicturesЖанр: Ужасы, Триллер, Криминал, ДетективРежиссер: Майкл Спириг, Питер СпиригАктеры: Мэтт Пассмор, Тобин Белл, Каллум Кит Ренни, Ханна Андерсон, Кле Беннетт, Лора Вандервурт, Пол Браунштейн, Мандела Ван Пиблз, Бриттани Аллен, Джозиа БлэкПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:757A2428699045EBB170D57965AA1A25D48A88B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505854   (800730) от 30.10.2021
-
-Ученые получили первую карту человеческих галлюцинаций
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_800730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологи из Лестерского университета впервые создали телесные карты ощущений, возникающих во время галлюцинаций у людей, страдающих психозом.Исследование, опубликованное в подразделе EClinicalMedicine журнала Lancet, предоставляет самые обширные на сегодняшний день описательные данные о чувствах, возникающих во время галлюцинаций, а также описание ощущений в теле (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384747   (800688) от 22.05.2020
-
-Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 05.2020 by OVGorskiy 1DVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800688.jpg" />
-</div>
-
-
-###  Подробнее
-
-обновленные оригинальные русские образы ОС Windows 7 от Microsoft разных редакций и разрядностей. Образ содержит в себе 9 редакций ОС на 1 DVD (x86 и x64). Включает в себя "чистые" не модифицированные образы ОС Windows 7 Starter x86, Home Basic x86/x64, Home Premium x86/x64, Professional x86/x64, Ultimate x86/x64, собранные в один образ стандартными средствами (   Читать дальше...   )Язык интерфейса: Русский (Russian).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCD1687D92FC92CB2CB8A57118208F2A4520CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505404   (800662) от 30.10.2021
-
-Astra Linux Special Edition 1.7 [amd64] 1xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800662.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОС Astra Linux Special Edition 1.7 на базе Debian 10 (buster).
-Astra Linux Special Edition 1.7 успешно прошла комплекс испытаний в системе сертификации СЗИ ФСТЭК России по первому, высочайшему, уровню доверия. Продукт в полной мере соответствует самым строгим критериям, изложенным в «Требованиях по безопасности информации, устанавливающих уровни доверия к средствам (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80FD104A92DAFC437A0C2959E6AC325B90DB394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273464   (800527) от 01.01.2019
-
-КВН-2018. Высшая лига. Финал (2019.01.01) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое КВН, знают, без сомнения, все. В КВН играют во всем мире, это прежде всего молодежная игра. Постоянные конкурсные задания: "Визитная карточка", "Разминка", "Конкурс капитанов", "Музыкальный конкурс", "Домашнее задание". Игру команд оценивает профессиональное жюри — люди, у которых с чувством юмора все в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ЮморПродолжительность: 02:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA00AF1AF344CD17C762FCD87110BFD05215185B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1719013   (57841) от 02.05.2024
-
-VA - Jazz Blues (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BBM - Naked Flame [06:07]
-002. Big Daddy Wilson - I'm Walking [04:17]
-003. Boney James - Solid [04:05]
-004. Dana Gillespie - Who's Got The Blues To Blame [05:04](   Читать дальше...   )Жанр: BluesПродолжительность: 12:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC71576AE6426859E7FE5CF06FD6778195E0EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722402   (56551) от 14.05.2024
-
-VA - Good Women in Good Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anne & the Blues Diggers - Still Left in Your Heart [02:57]
-002. Anni Piper - Mystery of Love [03:30]
-003. Nora Jean Bruso - Things Done Changed [04:39]
-004. Pristine - The Blind [05:24](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EBF484641F379A55A269F3A84E357C5D20477E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724115   (56141) от 18.05.2024
-
-VA - Smooth Relaxing Jazz (2024) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sinne Eeg - Round Midnight (7:45)
-002. Emma Smith - But Not for Me (7:40)
-003. Katrine Madsen - From a Mother to a Child (7:32)
-004. Vanessa Rubin - If You Could See Me Now (7:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 09:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6F165CFBC63FDEECEAB9DB2D6A7495B56EF43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723491   (55720) от 22.05.2024
 
 VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumental>
@@ -93,7 +6,7 @@ VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumen
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +35,7 @@ VA - Biker Blues, Hard Times (2024) vol.2 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +64,7 @@ VA - Biker Blues, Hard Times (2024) vol.1 [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +93,7 @@ VA - Hammond Organ Jazz&Blues (2024) [MP3|320 Kbps] <Hammond, Blues, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +122,7 @@ VA - Elegant Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +151,7 @@ Andre Camilleri - Compilation (2024) [MP3|320 Kbps] <Americana, Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +180,7 @@ VA - Baby! Jazz for kids! (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +209,7 @@ VA - Today's blues (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +238,7 @@ VA - Retro Soul (2024) [MP3|320 Kbps] <Smooth Jazz, Easy Listening, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +267,7 @@ VA - Rock Country Blues (2024) 2CD [MP3|320 Kbps] <Blues, Country, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +296,7 @@ VA - The Sound of Power Blues-Rock vol.2 (2024) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -412,7 +325,7 @@ VA - The Sound of Power Blues-Rock vol.3 (2024) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -441,7 +354,7 @@ VA - The Sound of Power Blues-Rock vol.1 (2024) [MP3|320 Kbps] <Blues, Blues Roc
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +383,7 @@ VA - The Jazz Tour (2024) [MP3|320 Kbps] <Jazz, Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -499,7 +412,7 @@ Big Blues Revival - Compilation (2024) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +441,7 @@ VA - My Live In Blue (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +470,7 @@ VA - Smooth Jazz. Music Without Irritation (2024) [MP3|320 Kbps] <Smooth, Jazz, 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +499,7 @@ VA - Blues And Roll (2024) [MP3|320 Kbps] <Blues, Rock Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,7 +528,7 @@ VA - Night Jazz Contemporary (2024) [MP3|320 Kbps] <Jazz, Funk, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -644,7 +557,7 @@ VA - Memorable Blues Instrumental (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -673,7 +586,7 @@ VA - Feel Good Jazz Lounge (2024) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -702,7 +615,7 @@ VA - My Life In Blue Vol. 02 (2024) [MP3|320 Kbps] <Blues, Blues Rock, Country B
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -731,7 +644,7 @@ VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -745,6 +658,93 @@ VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221555D84FE8F9956FD390C74D9716ABA98B122A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756432   (39667) от 21.10.2024
+
+VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
+02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
+03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
+04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757017   (39306) от 25.10.2024
+
+VA - The Intrigue Of Jazz (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Luther Allison - I Owe It All To You
+002. Nubya Garcia - Clarity
+003. Dan Pugach & Nicole Zuraitis - Little Fears
+004. Myele Manzanza - Universal Language(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 12:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20A35DDCFA134330C549D6E8AD218182DC7579F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757207   (39174) от 26.10.2024
+
+VA - Midnight Halloween Jazz (2024) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Halloween Jazz Vibes - Halloween Jazz [01:16]
+02. Maisy Kay - I Put a Spell On You [03:22]
+03. Trick or Treat!, Spooky Halloween, Halloween Sounds!, Spooky Halloween Sounds - Midnight Witch Swing [03:17]
+04. Prairie Ramblers - Ghost in the Graveyard [02:47](   Читать дальше...   )Жанр: JazzПродолжительность: 03:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6380355C0FBEA92CCAEF88DBBCDDDE0720D2E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

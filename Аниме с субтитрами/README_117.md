@@ -1,3 +1,107 @@
+###  Публикация: 1722318   (109836) от 10.05.2024
+
+Dark Gathering | Тёмное собрание [2023, TV, 25 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одни привлекают взоры и внимание, другие — удачу и деньги, третьи — поклонников и сердца, а вот Кэйтаро Гэнтога привлекает призраков. Два года назад это привело к печальному инциденту, в котором пострадал не только сам Кэйтаро, но и его друг, случайно угодивший в этот переплёт. Страдая от чувства вины, Кэйтаро заперся в своей комнате, замкнулся в себе и перестал (   Читать дальше...   )Жанр: триллер, ужасы, драма, мистикаРежиссер: Икэхата ХиросиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские (тайминг и оформление - BeKa300)Продолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81370B6BCFBC6915586E9D6455F517856F62F200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722365   (109813) от 10.05.2024
+
+Seiken Gakuin no Maken Tsukai | The Demon Sword Master of Excalibur Academy | Мастер демонического клинка [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Князь Тьмы Леонис пробуждается от магического стазиса, в который сам себя и погрузил на тысячу лет. Однако что-то пошло не так, и теперь у него тело десятилетнего мальчика. После пробуждения он встречает девушку по имени Риселия, которая сражается с «Пустотой», существами, почти истребившими человечество. Осознав, что мир за время его стазиса сильно изменился, и (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: приключения, фэнтезиРежиссер: Морита ХироюкиПеревод: AniLibria (тайминг и оформление - BeKa300)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBA30DCAFD8309F56C4286DD4DD9ED124D37B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727183   (108506) от 02.06.2024
+
+Omamori Himari | Защитница Химари [2010, TV, 12 эп.] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юто Амакава происходит из клана борцов с демонами, которые, как известно, существуют и делают все, чтобы извести немногих людей, способных причинить им вред. Родители мальчика погибли и успели лишь оставить маленькому сыну талисман, призванный хранить его от потусторонних сил – но только до 16 лет. Так Юто и дожил до совершеннолетия под присмотром подруги детства (   Читать дальше...   )Производство: Студия Zexcs / ゼクシズЖанр: комедия, романтика, мистика, эттиРежиссер: Усиро СиндзиПеревод: Dreamers TeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBA9A536E003304C18A341856644354809E0D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733811   (107261) от 30.06.2024
+
+Great Pretender: Razbliuto | Великий притворщик: Разблюто [2024, ONA, 4 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Считавшаяся погибшей всемирноизвестная аферистка Дороти обнаружена шанхайским Лунгу-бангом, мафией, которая хочет отомстить за то, что она их обманула. Но у Дороти амнезия и некуда идти, и поэтому ей приходится полагаться на местного криминального босса, чтобы ускользнуть от преступного мира Тайбэя, одновременно ища зацепки к своему загадочному прошлому.Производство: Студия Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Кабураги ХироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 4 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03CF695A34E318F5F79FF5788642470067FC66E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733805   (107259) от 30.06.2024
 
 Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o Tsukisusumu | Vermeil in Gold | Вермей в золотом [2022, TV, 12 эп.] BDRip 720p 10-bit raw
@@ -6,7 +110,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sokushi Cheat ga Saikyou Sugite, Isekai no Yatsura ga Marude Aite ni Naranaindes
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +267,7 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Kekkon Yubiwa Monogatari | Сказание об обручальных коль
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Aoki Honoo | Blue Flames | Холодное пламя (Синие огни) [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечк�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +508,7 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +534,7 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +561,7 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +587,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +614,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +640,7 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +666,7 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,113 +678,6 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A0EB01FAA0727D1E4C65CB782137757BDD190B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822256   (100844) от 05.10.2025
-
-Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, Котэсаси [2025, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коуё Котесаси обладает исключительными навыками массажа и мечтает стать спортивным врачом. Чтобы получить стипендию в медицинском университете, он поступает в среднюю школу при университете Сэйва, которая славится своими спортивными достижениями.
-Происходя из бедной семьи, Коуё устраивается на работу в общежитии школы, чтобы покрыть свои расходы. Однако вскоре он (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Сайто ХисасиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093F684FC386CBE00119082B871F31E8C88BE739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822260   (100841) от 05.10.2025
-
-Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма хочет быть семьёй [2025, TV, 1 из 11] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альма, автономный самообучающийся робот с передовыми боевыми способностями, была создана двумя гениальными учеными, Энджи Камисато и Сузуме Йобане, которые разработали искусственный интеллект и робототехнику Альмы соответственно. После того, как их бывшие знакомые высмеяли их, дуэт начал работать вместе, чтобы показать миру свои истинные таланты. Но даже несмотря (   Читать дальше...   )Жанр: комедия, фантастика, повседневность.Режиссер: Минами ЯсухироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 11 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E709450E82892C18EDB1F7C9BEB33FA53AB729B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822269   (100838) от 06.10.2025
-
-Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранма Саотоме, юный мастер боевых искусств, вместе со своим отцом Генмой, опытным мастером боевых искусств, возвращается в Японию после особой тренировки в Китае, в легендарной долине Проклятых Источников. Они поселяются в доме Соуна Тендо, старого друга Генмы, хозяина додзё и отца трёх дочерей, с одной из которых, Акане, у Ранмы завязываются сложные отношения, потому (   Читать дальше...   )Производство: MAPPAЖанр: приключения, комедия, фэнтезиРежиссер: Уда КоносукэПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BA1FBAA555A63191958D86EC07564A32D5E588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822262   (100836) от 06.10.2025
-
-Kikaijikake no Marie | Mechanical Marie | Механическая Мари [2025, TV, 1 из 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый, красивый и успешный Артур Луис Зетс не понаслышке знаком с человеческой жадностью. Постоянно сомневаясь в окружающих, он не верит в человечество, поэтому заказывает идеальную горничную — робот-горничную. Однако его дворецкий не может приобрести такую служанку из-за технологических ограничений, поэтому он находит следующую лучшую замену.
-
-Мари Эванс — бывшая (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Нисимура ДзюндзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB0ADD171C54AEC119F71A3E2BBA298746D5E59
 ```
 
 https://mybot314.ru/tekegram_catalog/

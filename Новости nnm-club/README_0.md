@@ -1,3 +1,133 @@
+###  Публикация: 1862795   (1063685) от 03.04.2026
+
+Max получил лицензию на защиту конфиденциальной информации
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мессенджер Max получил лицензии на техническую защиту конфиденциальной информации, а также на разработку соответствующих средств, следует из реестров ФСТЭК России.Эти лицензии в большинстве случаев выдаются бессрочно, такого характера они и у Max. Для российского мессенджера обе выданы 11 марта.Лицензия на защиту информации нужна компаниям, которые имеют - внедряют, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863119   (1063404) от 04.04.2026
+
+Эксперт рассказал, как Telegram может обойти все блокировки, включая отключение интернета
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Мессенджер Telegram сможет обходить практически любые блокировки, включая отключение интернета, если в сервисе появится поддержка автономной сети Mesh. Об этом  рассказал эксперт по информационной безопасности (ИБ) и председатель совета по противодействию технологическим правонарушениям Координационного совета негосударственной сферы безопасности РФ (КС НСБ) Игорь (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863116   (1063240) от 06.04.2026
+
+В РФ хотят сократить количество провайдеров. Минцифры обсуждают ужесточение правил лицензирования связи
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Минцифры совместно с участниками рынка рассматривают новые условия выдачи лицензий на оказание услуг связи в РФ. По информации источников «Известий», это пока предварительные предложения.Среди ключевых изменений: введение трех типов лицензий с ценой от 1 млн до 50 млн руб., запрет выдачи разрешений индивидуальным предпринимателям, а также возможность лишать лицензии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863750   (1063175) от 06.04.2026
+
+Cколько весил и сколько стоил первый в мире жёсткий диск объёмом 1 Гбайт
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В 1981 году компания IBM выпустила первый в мире жёсткий диск, ёмкость которого превышала один гигабайт. Это была система хранения данных под названием IBM 3380 Direct Access Storage Device. Её базовый модуль (HDA, герметичный блок головок и дисков) с девятью 14-дюймовыми пластинами внутри мог хранить 1,26 Гбайт данных, что было в четыре раза больше, чем у предшественника (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863788   (1063125) от 07.04.2026
+
+Германия запретила выпускать мужчин из страны без разрешения
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+С начала 2026 года в Германии начал действовать запрет для мужчин в возрасте от 17 до 45 лет по выезду из страны более чем на три месяца.Нововведение в закон распространилось на любые длительные поездки — оно касается случаев выезда по учебе, работе и даже путешествий. Меру ввели на постоянной основе, в том числе и в условиях мирного времени, которое не касается (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863794   (1063017) от 07.04.2026
 
 Минцифры признало сложность выявления VPN на iPhone
@@ -6,7 +136,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +322,7 @@ DOOM: The Dark Ages (2025) [Ru/Multi] (Build 20760608/dlc) Repack seleZen [Premi
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -270,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -296,7 +426,7 @@ Enigma - Discography (1990-2008) [mp3|320 kbps]<Enigmatic / New Age>
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -325,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +481,7 @@ NASA радикально поменяла Artemis, чтобы не проигр
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -533,146 +663,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
 Госдума рассматривает предложение о введении утилизационного сбора на использование иностранных мессенджеров. Это стало известно из материалов комитета Госдумы по информационной политике. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854710   (1057797) от 21.02.2026
-
-США готовят портал для обхода интернет-цензуры в Европе и не только
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Влияние интернет-пространства на настроения общества в наши дни настолько велико, что во многих странах мира существует онлайн-цензура, предусматривающая блокировку нежелательного для местных властей контента. Власти США задумались о создании такого портала, который позволит жителям Европы и других стран обходить эти блокировки.О разработке такого онлайн-портала (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854302   (1057488) от 19.02.2026
-
-Европа  может создать собственный серверный CPU — на архитектуре RISC-V и техпроцессе Intel 3
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снижение импортозависимости имеет значение и для европейских создателей критической инфраструктуры, поэтому представители Суперкомпьютерного центра в Барселоне (BSC-CNS) проверили работоспособность спроектированных ими процессоров TC1 с архитектурой RISC-V, выпущенных по технологии Intel 3.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854281   (1057256) от 18.02.2026
-
-Дешёвые товары на маркетплейсах станут дороже
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дешёвые товары на маркетплейсах станут сильно дороже — в Госдуме поддержали  введение НДС на зарубежные товары.Сейчас рассматриваются два варианта налогообложения: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854508   (1057243) от 19.02.2026
-
-Первое достижение: 1000 релизов от adguard
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057243.jpg" />
-</div>
-
-
-###  Подробнее
-
- Первое достижение: 1000 релизов от adguard Дорогие друзья и гости клуба...Все мы знаем, как в последние годы вырос спрос на всякого рода репаки и сборки ПО. К сожалению на этом фоне безумства теряются истинные приверженцы оригинального софта.
-И вот когда заходит речь об официальном релизе Операционной Системы Windows, то каждый раз добрым словом вспоминаю нашего (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854004   (1057194) от 17.02.2026
-
-Треки Spotify выложили в открытый доступ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиозаписи, скопированные со Spotify, постепенно становятся открыты всем желающим: Anna's Archive начала опубликовывать миллионы треков, несмотря на «немыслимый судебный иск» в размере $13 трлн от всемирно известного сервиса.
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

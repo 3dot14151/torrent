@@ -1,3 +1,81 @@
+###  Публикация: 1119243   (800934) от 01.04.2017
+
+Might and Magic 7: For Blood and Honor / Меч и магия 7 (1999) [Multi] (1.1hf) License GOG
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит отправиться в прошлое, чтобы пережить великое приключение. Might and Magic VII - For Blood and Honor возвращает к жизни жанр фэнтезийной ролевой игры с улучшенным движком и захватывающим игровым процессом. Вас ждет фантастический мир, полный смертоносных драконов, ужасающих чудовищ и необычных существ. В этой игре есть все, о чем может только мечтать (   Читать дальше...   )Тип издания: LicenseРазработчик: New World ComputingЖанр: RPG, 3D, 1st PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12857B0E1BC9434BD789A682B7D6CA830C92AC57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199571   (800808) от 16.01.2018
+
+Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте мир, где каждый ваш поступок и выбор так или иначе влияет на судьбу ваших героев. Obsidian Entertainment – студия-разработчик Fallout: New Vegas™ и South Park: The Stick of Truth™ – и Paradox Interactive с гордостью представляют вам игру Pillars of Eternity. Вам предстоит вновь – как в старые-добрые времена – ощутить радость исследований и приключений, (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7A8D59A0BFFA7F97AA983C47518B03709F5306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196047   (800802) от 16.01.2018
+
+Risen 3 (2014) [Ru/En/Ge] (3.0.30/dlc) Repack R.G. Механики [Complete Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Risen 3! Мир, забытый богами и раздираемый войной титанов, мир, где угроза исходит из самой земли. Вы - молодой воин, получивший удар из теней, лишивший вас души. Вам нужно отправиться в путь, чтобы вернуть то, что потеряно во тьме и расползается по миру. Вы не одиноки в своей борьбе: изгнанные маги могут быть мощными союзниками. Но чтобы получить (   Читать дальше...   )Тип издания: RepackРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E65FC557E1FE4F79EADADBCB8FBE524A180BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384909   (800742) от 22.05.2020
 
 Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
@@ -6,7 +84,7 @@ Avenging Angel (2018) [En] (1.0.5) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Repack R.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Defend the Rook (2021) [Ru/Multi] (1.062) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.5.11880) Repack Other s [Final Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Final Fantasy XIII / Final Fantasy 13 (2014) [Ru/En] (1.0.0.0/upd3) SteamRip Let
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Eschalon: Book (2007-2014) [En] (1.06/1.05/1.021) License GOG [Trilogy]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Swords and Fairy 7 (2021) [Multi] (1.0.8.7586889) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Prison Simulator (2021) [Ru/Multi] (1.0.1.1v04.11) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Dungeon Souls (2016) [En] (1.0.5.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.1) License GOG [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Vigil: The Longest Night (2020) [Ru/Multi] (2021.11.01/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Legend of Tianding (2021) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Elder Scrolls III: Morrowind (2002) [Ru] (1.6.1820/dlc) License [Game of the
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Hyperdevotion Noire: Goddess Black Heart (2016) [En/Jp] (1.0/dlc) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Celestian Tales: Realms Beyond (2020) [En] (1.0.14) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Tale of Wuxia (2016) [En/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Shadows: Awakening (2018) [Ru/Multi] (1.31/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Yaga (2021) [Ru/Multi] (1.3.23/dlc) License GOG [Armful Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Krai Mira: Extended Cut (2017) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ King's Bounty: The Legend / King's Bounty: Легенда о рыцаре (2008)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C964855215711A010D98625B6A46FFCA9360F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346237   (792281) от 31.05.2020
-
-Warhammer: Chaosbane (2019) [Ru/Multi] (28.05.2020/dlc) Repack xatab [Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - единственная надежда раздираемого войной мира, последний щит Империи людей на пути орд Хаоса. Играйте в одиночку или объединяйтесь с четверыми друзьями в локальном и онлайн режимах, выбирайте из четырех классов с уникальными навыками и приготовьтесь к эпическим сражениям с использованием самых мощных артефактов Старого Света.Тип издания: RepackРазработчик: Eko SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CB0391AF603D7C6733CFBB0959D320DDC4502C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274759   (791995) от 08.01.2019
-
-Wasteland 2: Director's Cut (2014) [Ru/Multi] (1.0/upd3/dlc) Repack Other s [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wasteland 2 является прямым продолжением игры 1988-го года Wasteland — первой постапокалиптичейской CRPG и прародителя небезызвестной Fallout. Действие игры разворачивается после ядерной войны между двумя сверхдержавами, в пустошах Аризоны, где отряды рейнджеров пытаются поддерживать мир в разоренных селениях последних выживших. Создавайте свои собственные персонажи, (   Читать дальше...   )Тип издания: RepackРазработчик: inXile EntertainmentЖанр: Adventure, RPG, Strategy, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A080D023A3A47E62D15E19052C38F2D04AE0E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201660   (791940) от 25.01.2018
-
-Zwei: The Arges Adventure (2018) [En/Jp] (1.0.3) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общительный весельчак Поккль и заядлая модница Пипиро - самые обычные сводные брат и сестра. Они и дальше бы жили своей спокойной жизнью в родном городишке, если бы не произошло ограбление века, из-за которого они теперь никак не могут усидеть дома. Ребята решили стать настоящими героями и организовали себе поход за деньжатами и немеркнущей славой, причем первое (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom CorporationЖанр: Ролевая игра, Приключение, ФэнтезиЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9613ED2ECAB58FF48BDF7380B2A39308241074
 ```
 
 https://mybot314.ru/tekegram_catalog/

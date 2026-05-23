@@ -1,3 +1,107 @@
+###  Публикация: 1224136   (667187) от 09.05.2018
+
+Б. Х. Цавкилов | В чем вред морали ислама? (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Громадные социально-экономические и культурные изменения, происшедшие в нашей стране за годы советской власти, коренным образом переделали быт, психологию и привычки населения Советского Союза, в том числе и Кабардино-Балкарии. Архаичное и реакционное, темное и невежественное уступило место новому и прогрессивному, радостному и светлому. В частности, из области быта (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669A78B9D0FC1AFC8C103DEB65544AF6A042199F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224068   (667117) от 09.05.2018
+
+Н.К. Симаков | Православные святыни Востока, Греции и Афона. Записки русского паломника (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представленная книга включает в себя записки современного паломника, которые были написаны в разные годы. В них автор делится увиденным во время путешествий по святым местам. По его мнению, паломничество помогает открыть современному человеку, что такое духовная жизнь во Христе и как можно к ней практически приобщиться. Отправляясь на богомолье, паломник отрывается (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CE95473BDA5C4823C2E4DF03F8C3CE1A634363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137918   (666786) от 27.05.2017
+
+Кейс Ваайман | Духовность. Формы, принципы, подходы [II Тома] (2009) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - путеводитель по безграничному пространству духовности. Кейс Ваайман ставит перед собой вопрос, что же такое духовность, и рассматривает все возможные ее проявления: духовные традиции древних и современных мировых религий, духовность человеческой жизни, духовность обычных людей и религиозных деятелей, духовность библейская, духовность мистическая, духовность (   Читать дальше...   )Жанр: Богословие, религоведение, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0677A0994EAB11FC46CCC29393863A23C81F417D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137912   (666785) от 27.05.2017
+
+Светлана Панич, Ирина Языкова (ред.) | "Пир - это лучший образ счастья". Образы трапезы в богословии и культуре (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга задумана как благодарное приношение Наталье Леонидовне Трауберг, верившей что "райские реки текли молоком, водой, вином и пивом" и как мало кто умевшей расцвечивать милостью самые сумрачные времена. Именно она однажды предложила собраться и "поговорить о еде в культуре". Авторы сборника - библеисты, историки религий, культурологи, этнографы, (   Читать дальше...   )Жанр: Богословие, культурологияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8631CB10824377D1322674504B6FA3A41799531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137929   (666783) от 27.05.2017
 
 Дмитрий Арабаджи | Очерки христианского символизма (2008) [PDF]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,117 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D606B6120AD1DA3D16D268F55F86DEB998CE71C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139627   (659373) от 03.06.2017
-
-Л. Брандт | Лютеранство и его политическая роль (1931) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Настоящая небольшая работа ни в какой мере не претендует на сколько-нибудь исчерпывающее разрешение вопроса об исторической роли лютеранства. Ее задача — дать безбожнику-активисту минимально-необходимые знания, без которых борьба с этой, довольно сложной, формой религиозной идеологии невозможна. А эта борьба, особенно в условиях Ленинградской области, (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7A692DC826F0D6A5AB49C1D37FFFAA0B48C07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538536   (659131) от 24.03.2022
-
-Тамара Кушнир | ...Чтоб нам не разучиться быть людьми. Сборник духовной поэзии (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый человек — путник... Идя по нелёгкому жизненному пути, он встречает множество преград и препятствий. И не всегда хватает сил, чтобы, преодолевая их, остаться верным тому Главному, ради чего и живём, и движемся, и существуем.
-
-Автор сборника, который вы открыли, претерпела в этой жизни множество испытаний. Были взлёты и падения, радости и разочарования, «пустыни» (   Читать дальше...   )Жанр: Поэзия. Православие. Литературно-художественное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323C9BA770E62E2048F536A1495AEDC887864C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139624   (659102) от 03.06.2017
-
-Льоренте | Испанская инквизиция [2 тома] (1936) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659102.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Критическая история испанской инквизиции» написана бывшим каноником и главным секретарем инквизиции. Книга содержит богатейший материал, извлеченный из архивов инквизиции и монастырей, и вводит читателя в самые потаенные уголки инквизиционных застенков. Автор критикует инквизицию с точки зрения свободы национальной церкви и не только не показывает, что инквизиция (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E462B0C3FA8423766AB0B3204512170748622E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225448   (658837) от 17.05.2018
-
-Димитрий Тракателлис | Власть и страдание. Христологические аспекты Евангелия от Марка (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — часть большого исследовательского проекта.
-
-Его задача — исследовать и интерпретировать основные взгляды и подходы к личности Иисуса Христа в новозаветных текстах и раннехристианской литературе.
-(   Читать дальше...   )Жанр: БиблеистикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD13794BC29FB25C9C9E7C1F78C3C9F7C07C714
 ```
 
 https://mybot314.ru/tekegram_catalog/

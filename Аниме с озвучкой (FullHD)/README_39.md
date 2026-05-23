@@ -1,3 +1,81 @@
+###  Публикация: 1609971   (40608) от 12.10.2024
+
+Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 25 из 25] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+На острове Хитогашима начали происходить странные вещи - и главному герою, Симпею, предстоит разгадать до конца его зловещую тайну. А поможет ему его подруга детства Усио... точнее, то, что может от неё остаться. При правильном развитии событий. При неправильном погибнем все!Производство: OLMЖанр: триллер, мистика, детективРежиссер: Ватанабэ АюмуЯзык озвучки: Японский, русский (AniLibria, Studio Band)Субтитры: Русские (AniLibria, RikuSempai)Продолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C19EBB8CA50C56B09EECD4EBC4EA6ED13F8ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755779   (40087) от 17.10.2024
+
+Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пока человечество празднует гибель Короля Демонов, в подземном мире начинается настоящий хаос. Его обитатели в спешке организовывают турнир, цель которого — найти существо, достойное стать их новым Королём. Однако, вопреки всем ожиданиям, фаворитом турнира становится герой Хельк, и он — человек! Неслыханное безумие! Разве может какой-то человечишка занять место Короля?! (   Читать дальше...   )Производство: SatelightЖанр: приключения, фэнтезиРежиссер: Сато ТацуоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria)Продолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F08797F82D7A3EC2A5099FBAC45EC219BC2693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735191   (39940) от 19.10.2024
+
+Elf-san wa Yaserarenai | Plus-Sized Elf | Эльф не может похудеть [2024, TV, 14 из 14] WEBRip 1080p Raw+Rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодой диетолог и массажист Томоацу Наоэ принимает клиентку из альтернативного мира – красивую эльфийку «плюс-сайз» Элфуду, решившую скинуть вес. Иначе она не сможет вернуться домой через волшебный портал. Перед Элфудой стоит почти непреодолимое препятствие – картошка фри, которую она считает пищей богов. Терпеливый Наоэ объясняет ей принципы похудения, но из-за (   Читать дальше...   )Производство: Япония, студия EliasЖанр: комедия, повседневностьРежиссер: Токоро ТосикацуЯзык озвучки: Русский дублированный (Deep)Субтитры: русскиеПродолжительность: 14 эпизодов по 22 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769AFC21D6C4BE0D39A0205AFCF1552E4A3D3B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751856   (39846) от 19.10.2024
 
 Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертоносный Герцог и его Чёрная Горничная [2021, TV, 12 эп.] BDRip 1080p (HEVC) 10-bit raw+rus
@@ -6,7 +84,7 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +555,7 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +608,7 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +635,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +661,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,84 +672,6 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AD5BF51790CDA73FE5284A9F6D0FA1763E533EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759497   (35542) от 01.12.2024
-
-Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чудаков [2024, TV, 12 эп.] BDRip 1080p 10-bit HEVC raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соске Кабурая - простой детектив, который пытается сводить концы с концами. Работая над делом, он столкнулся с Сарой, принцессой из иного мира. Несмотря на владение магией, она легко освоилась в современном японском обществе. В это время её находит Ливия, рыцарь из свиты Сары. Вскоре обе девушки начинают влиять на жизнь Соске и других персонажей.Производство: SynergySP | Studio CometЖанр: ФэнтезиРежиссер: Сато МасафумиПеревод: CrunchyRollЯзык озвучки: Японский и Русский (AniLibria)Субтитры: Английские (полные и надписи), Русские (полные и надписи)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89D01B41C8BD955FE1087F68128C06EB7F20EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756846   (35536) от 01.12.2024
-
-Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смертоносный Герцог и его Чёрная Горничная 2 [2023, TV, 12 эп.] BDRip 1080p (HEVC) 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Герцог проклят: всё, чего он касается, гибнет. Отвергнутый всеми, он живёт вдали от всех вместе с Алисой — игривой служанкой, которая постоянно его дразнит. Пускай юный герцог и не может коснуться своей служанки, они влюбляются друг в друга. Смогут ли чувства парня освободить его от проклятия?Производство: J.C. Staff | Shogakukan Music & Digital EntertainmentЖанр: романтикаРежиссер: Ямакава ЁсикиПеревод: CrunchyRollЯзык озвучки: Японский и Русский (AniLibria)Субтитры: Английский (полные/надписи) и Русский (полные/надписи)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D910A28DB4C7C1152D1C76E4EE0B921C1B75F01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732390   (34660) от 10.12.2024
-
-Аватар короля 3 | The King's Avatar 3 | Quan Zhi Gao Shou 3 | Quanzhi Gaoshou 3 | Quan Zhi Gao Shou 3 [2024, TV, 17 из 17] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34660.jpg" />
-</div>
-
-
-###  Подробнее
-
-В онлайн-игре «Слава» на Е Сю смотрят как на эталон среди профессиональных игроков. Однако из-за некоторых обстоятельств его исключают из команды. Перестав быть про-игроком, он начинает работать менеджером в интернет-кафе. Когда в «Славе» открывается десятый сервер, Е Сю снова врывается в игру. С десятью годами опыта за плечами, воспоминаниями о прошлом и совершенно (   Читать дальше...   )Производство: Китай / Студия Colored Pencil AnimationЖанр: Приключения, киберспорт, фэнтезиРежиссер: Zhang, YingyingЯзык озвучки: Русский (AniLibria.TV); КитайскийСубтитры: Русские (софтсаб на надписи и полные), китайский (хардсаб)Продолжительность: 17 серий по 21 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407595502787A92405E38A45B4246D75AD1C577F
 ```
 
 https://mybot314.ru/tekegram_catalog/

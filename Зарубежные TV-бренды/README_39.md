@@ -1,3 +1,56 @@
+###  Публикация: 1021977   (730553) от 31.05.2016
+
+Смертельные поля / Killing Fields (2016) HDTVRip (Сезон 1 серии 1-7 из 7)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новый проект телеканала Discovery представляет собой очередной шедевр документальной кинематографии. Преступники, убийцы и маньяки очень изобретательны, продумывая в деталях не только все преступление, но и способы избавиться от тела. Очень часто им в злом умысле помогает сама природа, уничтожая доказательства и храня зловещие секреты прошлых и современных преступлений. (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, криминалПеревод: Многоголосый закадровый, профессиональныйСубтитры: НетПродолжительность: ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6074BC6E0DC6B490EA8F6F7BC34E0BF289EDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022085   (730487) от 31.05.2016
+
+Discovery. Техногеника. Петербургский метрополитен (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Петербургский метрополитен. Фильм расскажет об удивительных станциях и сооружениях петербургской подземки. Среди них: станции закрытого типа, впервые появившиеся именно в Ленинграде, одна из глубочайших станций в мире – "Адмиралтейская", станции первого пуска ленинградского метро, которые по праву входят в список красивейших станций мира. Из фильма мы узнаем (   Читать дальше...   )Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
+Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11D69D7ECB362B6F138D8D14DFC4F9E9E749748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523696   (730376) от 09.02.2022
 
 BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [EN / RU, EN Sub]
@@ -6,7 +59,7 @@ BBC. Зелёная планета / The Green Planet (2022) WEB-DL [H.264/1080p
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ BBC: Живая Природа. Райские птицы / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ BBC: Антарктическая полярная станция / Ice Station 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ NG. Разгадка тайны Стоунхенджа / Stonehenge Decoded (200
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +216,7 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +242,7 @@ BBC: Как строилась Британия / How We Built Britain (2007) HD
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +268,7 @@ BBC: Цивилизации / Civilisations (2018) BDRemux [H.264/1080p] (сез
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +320,7 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +346,7 @@ Discovery: Почему? Вопросы мироздания. Природа н�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +372,7 @@ Animal Planet: Вторжение / Intruders (2017) HDTV [H.264/1080i] (сер�
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +424,7 @@ BBC. Horizon. Что же такое один градус? / Horizon. What is O
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +529,7 @@ BBC. Барокко! От собора св.Петра до собора св.П
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +555,7 @@ Discovery. Почему? Вопросы мироздания. Как дейст�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +608,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +634,7 @@ NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +660,7 @@ NG: Марс и SpaceX / Mars: Inside SpaceX (2018) HDTVRip [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,58 +671,6 @@ MARS: Inside SpaceX - новый документальный фильм от Na
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81CA5C1E8DFBB1FF9F62A649F59C3D51D528C58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284554   (727418) от 22.02.2019
-
-Невероятные изобретения / Wicked Inventions (2017) HDTVRip [H.264/1080p-LQ] (сезон 2, выпуски 30 из 30)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гонка вооружений и освоение космоса привели к созданию множества замечательных вещей. Мы пользуемся ими каждый день, не подозревая об их удивительном происхождении. В сериале "Невероятные изобретения" мы постараемся приоткрыть тайны науки и разгадать загадки прошлого, чтобы познакомиться с удивительной историей всем нам известных предметов. В каждом выпуске (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Defenition Media LtdЖанр: Документальный, технологии, инновации, дизайнРежиссер: Джэймс ФловерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:947A7D9B807F7EDC968B75CAB37930A3EBD5A7C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128591   (727323) от 25.04.2017
-
-National Geographic. Больше чем фокусы с Ди Эм Си / Beyond Magic With DMC (2014) HDTVRip (7 серий из 7)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте призрачное царство магии - от экстрасенсорного восприятия до левитации - в передаче «Больше чем фокусы с Ди Эм Си». Ведущий-маг Драммонд Мани-Каутс своими захватывающими фокусамипокоряет умы зрителей на улицах Лондона, Парижа, Барселоны, Мехико и Сингапура. Вдохновлённый блестящими умами таких великих мастеров как Гудини, прославленного своими сенсационными (   Читать дальше...   )Телекомпания: США, Windfall Films. LTD & National Geographic ChannelsЖанр: Документальный, познавательныйПеревод: ДублированныйПродолжительность: 7 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

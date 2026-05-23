@@ -1,3 +1,107 @@
+###  Публикация: 771759   (314795) от 06.11.2020
+
+Noragami / Бездомный бог [2014, TV, 12 + 2 OAD] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ято – бродячий японский бог в образе худощавого синеглазого юноши в спортивном костюме. В синтоизме сила божества определяется числом верующих, а у нашего героя - ни храма, ни жрецов, все пожертвования умещаются в бутылке из-под сакэ. Парень в шейном платке подрабатывает мастером на все руки, малюя объявления на стенах, но дела идут совсем худо. Даже языкастая Маю, (   Читать дальше...   )Жанр: приключения, комедия, мистикаРежиссер: Тамура Котаро / Tamura Kotaro / タムラコータローПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975969A0788CA88020052AC4CC51E17BF5A2F94A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332328   (314362) от 20.10.2019
+
+Minori Scramble! | Переполох Минори! [2012, OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История, в которой рассказывается про девочку по имени Тамаки, которая жутко боится пингвинов благодаря своему отцу. А для того чтобы избавить свою дочь от этих страхов отец прибегает к методу "клин клином вышибают". Весёлая и незатейливая комедия, от студии ufotable.Производство: студия UFO TableЖанр: комедияРежиссер: Нонака ТакуяПеревод: 1) Gilushka & Advokat; 2) Korochun; 3) Shiranai TenshiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E727C58373D5386A0709FC52AB2B268B0FFB0D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332323   (314238) от 20.10.2019
+
+Joshi Kausei | Беспечные старшеклассницы [2019, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хоть в «безмолвном» аниме про старшеклассниц никто и не разговаривает, оно всё равно остаётся милым! Это история о трёх старшеклассницах и их весёлой школьной жизни, а именно о невезучей красавице Момоко, серьёзной девушке в очках по имени Сибуми и о доброй невысокой Маюми. Веселиться можно и поодиночке, и всем вместе. Именно так проводят свои дни глуповатые, но (   Читать дальше...   )Производство: студия Seven / セブンЖанр: комедия, повседневностьРежиссер: Сасаки ТокиёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C36290F2BC6BB5617709D1FF74CC8F672B8B89F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332321   (313986) от 20.10.2019
+
+Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы Гоку | Из якудза в идолы [2018, TV, 10 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет рассказывает о трёх членах якудзы, которые в очередной раз подвели своего босса, в результате чего были поставлены перед страшным выбором: либо совершить самоубийство, либо отправиться в Таиланд на операцию по смене пола и стать группой девушек-идолов. Выбрав второе и пройдя суровую подготовку длиной в год, они успешно дебютировали и даже обрели популярность (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедияРежиссер: Кон ТиакиПеревод: RisensTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D715929ECC543506A7035789976AB56E2EEC50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332324   (313984) от 20.10.2019
 
 Two Car: Racing Sidecar | Две машины [2017, TV, 12 эп.] BDRip 1080 10bit raw
@@ -6,7 +110,7 @@ Two Car: Racing Sidecar | Две машины [2017, TV, 12 эп.] BDRip 1080 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Strike the Blood II | Удар крови [OVA-2] [2016, OVA, 8 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] HDTV 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +219,7 @@ Sola / Sky / Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +247,7 @@ To Aru Majutsu no Index / A Certain Magical Index / Индекс Волшебс�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +273,7 @@ A Channel+smile: Nabe wo Tabeyou | A-Channel+smile: Let's Eat Hot Pot | A Channe
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +299,7 @@ Oh! Family / Ох, семейка [1986, TV, 12 из 26] DVDRip 480p х265 raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +325,7 @@ Versailles no Bara | The Rose of Versailles | Lady Oscar | Роза Версал
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +353,7 @@ Wanpaku Ouji no Orochi Taiji | The Little Prince and the Eight Headed Dragon | �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +379,7 @@ Soukyuu no Fafner: Dead Aggressor - Heaven and Earth / Fafner: Heaven and Earth 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +406,7 @@ Major 2nd (2020) | Второй Мэйджор [ТВ-2] [2020, TV, 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +432,7 @@ Haruchika: Haruta to Chika wa Seishun Suru | Haruchika: Haruta & Chika | Хар�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +458,7 @@ Yoake Tsugeru Lu no Uta | Lu Over The Wall | Песня Лу на рассвет
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +485,7 @@ Naka no Hito Genome [Jikkyouchuu] | The Ones Within | Nakanohito Genome [Jikkyou
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +511,7 @@ Kyou kara Ore wa!! | Today, It's My Turn!! | Сегодня и начну! [1993
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +537,7 @@ Kidou Senshi Gundam: SEED | Mobile Suit Gundam: SEED | Мобильный дос
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +563,7 @@ Mei Ou Project Zeorymer / Hades Project Zeorymer / Дьявольский Про
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +591,7 @@ ISUCA | Иска [2015, TV, 10 эп. + 1 OAD] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +617,7 @@ Terra Formars / Терраформеры [2014, OVA, 2 ep] DVDRip 576p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +645,7 @@ Stella no Mahou | Magic of Stella | Магия Стеллы [2016, TV + OVA, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +671,7 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,110 +682,6 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16849EE6B7AA0866742F70F7BFCFC9301CBBFB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333306   (305253) от 24.10.2019
-
-Akage no Anne | Anne of Green Gables | Энн из Зеленых Мезонинов | Энн из Зеленых Крыш [1979, TV, 50 из 50] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энн — сирота и большая фантазёрка. Обретя новый дом, она показывает всем его обитателям, что в каждом взрослом всегда теплится детская непосредственность. История охватывает период становления героини из одиннадцатилетней девочки в семнадцатилетнюю барышню. За то время, что она посещает школу, заводит друзей, бесконечно исследует окружающий мир, её уникальный характер (   Читать дальше...   )Производство: Nippon Animation / 日本アニメーションЖанр: повседневность, драмаРежиссер: Такахата ИсаоПеревод: Music Cat + LanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4AC5FD3469A6B7A426D70E0CE0674E908F76A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 419158   (304218) от 06.12.2011
-
-Hoshi o Ou Kodomo | Hoshi wo Ou Kodomo | Children Who Chase Lost Voices | Ловцы забытых голосов [2011, Movie] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Асуна - школьница, которая очень рано потеряла отца и теперь живет с мамой. Дома большую часть времени она проводит сама, так как мама работает в госпитале на ночных сменах. В школе у нее очень хорошая успеваемость, но друзей не так уж и много. Вечера она проводит на склоне холма, слушая старое радио с помощью кристалла, который достался ей в память о папе. Однажды (   Читать дальше...   )Производство: студия CoMix Wave Inc. / コミックス・ウェーブ・フィルムЖанр: приключения, фэнтези, романтикаРежиссер: Синкай МакотоПеревод: Lighter235 & Octagon (Advantage)Язык субтитров: Русский, АнглийскийПродолжительность: 1 эп. по 116 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F681EFD947D701903E17BB0E086459FC71A3BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261658   (303276) от 11.11.2018
-
-Clione no Akari | Lights of the Clione | Свет морского ангела [2017, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303276.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о больной и постоянно подвергающейся унижениям сироте Минори. Одним дождливым днём она не появляется в школе, потому что её поместили в больницу в другом городе. Проходит два месяца, и двое школьных друзей Минори - Такаси и Кёко - получают по электронной почте письмо без указания отправителя. В письме содержится лишь информация о летнем фестивале, (   Читать дальше...   )Жанр: повседневностьРежиссер: Исикава НаояПеревод: AniPlay; BOOMКарамельЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 9 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F07FA0EA8C9CF1CA0C44BDD6AA8E2F340FB97CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183824   (303207) от 16.11.2017
-
-Love Live! The School Idol Movie | Живая любовь! (фильм) [2015, MV, 1] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма разворачивается во времена, следующие после событий второго сезона, на церемонии вручения дипломов третьегодкам. Зная, что выпускной влечёт за собой завершение существования группы школьных идолов, девять девочек-идолов решают прогуляться вокруг школы, хранящей множество воспоминаний. Но, покидая ворота школы, они получают сообщение на электронную почту, (   Читать дальше...   )Жанр: музыкальный, повседневностьРежиссер: Кёгоку Такахико / Kyougoku Takahiko / 京極尚彦Перевод: YakuSub StudioЯзык озвучки: ЯпонскийПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31BDDF70E79CB191944E6AF1A7534A190329E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

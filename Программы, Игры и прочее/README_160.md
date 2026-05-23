@@ -1,3 +1,85 @@
+###  Публикация: 1766004   (34071) от 15.12.2024
+
+Endling *Extinction is Forever 1.3.2 [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сможет ли лиса-мать сохранить в живых своих маленьких детенышей?
+Испытайте мир, разоренный человечеством. Посмотрите на него глазами последней лисы на Земле в этом экологически сознательном приключении.
+Откройте для себя разрушительную силу человеческой расы, которая изо дня в день портит, загрязняет и эксплуатирует самые ценные ресурсы природной среды.
+Исследуйте (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 24 апр. 2023 г.Разработчик: HandyGamesПоддерживаемая ОС: Android 9+Жанр: ПриключенияЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CAA9AFE58816CCDF1F7C337AA6D79C0FF2FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765868   (34060) от 15.12.2024
+
+Carrion 1.0.35 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+CARRION — хоррор, в котором вам предстоит оказаться в роли хищника, аморфного существа неизвестного происхождения. Выслеживайте и пожирайте всех, кто причастен к вашему заточению, сея страх и панику в каждом уголке лаборатории. Растите, эволюционируйте и обретайте все новые сокрушительные способности на своем пути к свободе и кровавому возмездию.Тип издания: UnlockedРелиз состоялся: 19 нояб. 2024 г.Разработчик: DevolverDigitalПоддерживаемая ОС: Android 6.0+Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835B107DA44A61D7D5C87700F3AA62B7112B6BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766165   (34017) от 16.12.2024
+
+Metrolist 10.7.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Наслаждайтесь музыкой YouTube наилучшим образом с помощью этого удивительного приложения. Благодаря красивому дизайну и расширенным функциям Metrolist преображает ваши впечатления от прослушивания музыки, придавая ей красоту и мощь.
+Это приложение позволяет вам слушать любую песню или музыкальное видео на YouTube, даже если ваш телефон заблокирован. Вы можете скачать (   Читать дальше...   )Тип издания: FreeПоддерживаемая ОС: Android (о минимальной версии данных нет)Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766186   (34015) от 16.12.2024
 
 Skul: The Hero Slayer v1.0.9 [Ru]
@@ -6,7 +88,7 @@ Skul: The Hero Slayer v1.0.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +117,7 @@ Tiny Room Stories Town Mystery v2.6.26 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +145,7 @@ Stardew Valley 1.6.14.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +174,7 @@ After Inc. v1.0.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -119,7 +201,7 @@ Hitman: Blood Money — Reprisal 1.2RC13 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +228,7 @@ Beholder 2.6.269 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -174,7 +256,7 @@ Concordia: Digital Edition 1.3.6 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -201,7 +283,7 @@ LUNA The Shadow Dust v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -227,7 +309,7 @@ Beholder 2 1.7.16102 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +336,7 @@ Stone Age: Digital Edition 1.2.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -281,7 +363,7 @@ Children of Morta v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -309,7 +391,7 @@ Thimbleweed Park 1.0.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -337,7 +419,7 @@ Scythe: Digital Edition 2.1.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +445,7 @@ Art of Rally 1.0.7_b200 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -392,7 +474,7 @@ The Longing v1.10 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -420,7 +502,7 @@ RainCity 1.0.20 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -446,7 +528,7 @@ Midnight Girl 1.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +557,7 @@ Bounty of One: Premium 1.0.169 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +584,7 @@ Linea: An Innerlight Game 1.4.15 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +610,7 @@ White Day - The School v21.1.109 + v3.1.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +638,7 @@ Cozy Grove: Camp Spirit v3.1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +664,7 @@ Pocket Rogues: Ultimate v1.37.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +691,7 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,87 +702,6 @@ Spiritfarer Netflix Edition v1.5.8 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD3CDF001B3189259827B9A3C8FE474EA06A289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766497   (33646) от 19.12.2024
-
-Party Hard Go v0.100034 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Party Hard вы играете за того, кто действительно устал от соседей, устраивающих громкие вечеринки. Вместо того чтобы звонить в полицию, вы решаете, что лучше убить всех - используя свой верный нож и окружающую среду. Тактическая стратегия следует за серией убийств в партиях через США.Тип издания: PaidРелиз состоялся: 18 дек. 2024 г.Разработчик: tinyBuildПоддерживаемая ОС: Android 4.4+Жанр: АркадыЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC8A4CF93168059825D680EA7A38B94CBC7BC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766672   (33614) от 20.12.2024
-
-Dead God Land: Survival Games v0.0.0263 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зомби на этих мрачных островах очень свирепые. Хорошо, что есть убежище, где я могу выжить. Смотри, я тут смастерил крутое оружие. Теперь кошмары превратятся в ночные сафари, а мы выживем в мире зомби! :) - Рик улыбнулся, размахивая огромной дубинкой с гвоздями перед мертвым зомби. Выжить на острове в компании орд зомби под силу не каждому. Общение с ходячими мертвецами (   Читать дальше...   )Тип издания: Mod (Много денег)Релиз состоялся: 4 дек. 2024 г.Разработчик: DevVision GamesПоддерживаемая ОС: Android 7.0+Жанр: ЭкшнЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766637   (33601) от 20.12.2024
-
-MiHome v10.0.702 Mod by Vevs [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая быстрая и качественная модификация MiHome.
-Управление и связь с устройствами.
-Подключение устройств к сети.
-Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 19.12.2024Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388FFCCFC93BAE42B65BD8F56821D16DE690E76C
 ```
 
 https://mybot314.ru/tekegram_catalog/

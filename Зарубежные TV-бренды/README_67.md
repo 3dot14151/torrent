@@ -1,3 +1,55 @@
+###  Публикация: 841824   (575086) от 25.07.2015
+
+Discovery: Двойники Земли / Alien planet Earths (2014) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+20 лет назад казалось, что во Вселенной есть только одна планета, способная поддерживать жизнь. Сегодня мнение астрономов изменилось. Мы расскажем о поисках близнеца Земли.Жанр: Документальный, научно-популярныйПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF966D19842D143CAFAD19C97599B80E9A47046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527974   (574891) от 27.07.2012
+
+BBC: Выдающиеся женщины ХХ столетия. Уоллис Симпсон / Extraordinary Women.  Wallis Simpson (2011) SATRip [4 из 13]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Выдающиеся женщины ХХ столетия" - документальный сериал канала BBC о великих женщинах своего времени, преодолевших трудности на своем пути и добившихся успехов каждая в своем направлении. Грейс Келли, Коко Шанель, Одри Хепберн, Индира Ганди, мадам Чан Кайши, Амелия Эрхарт... Ими восхищались и восхищаются миллионы людей во всем мире, их любили и ненавидели, а иногда даже боялись. Они доказали, что женщина тоже может достичь высот в своем деле и одержали победу. Казалось, у них было все: власть, богатство и восхищение. Но помимо головокружительного успеха, в жизни этих женщин случались страдания и личные трагедии...Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6675B8D044B9DCCA5C89F507651C5822D1B36C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527973   (574721) от 27.07.2012
 
 BBC: Выдающиеся женщины ХХ столетия. Мадам Чан Кайши / Extraordinary Women. Madame Chiang Kai-Shek (2011) SATRip [1 из 13]
@@ -6,7 +58,7 @@ BBC: Выдающиеся женщины ХХ столетия. Мадам Ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Discovery: Новый мир (1-12 серии из 12) / Discovery: Next World (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ BBC: Дикие животные: Завоевание мегаполиса / Wi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ NG: Осушить океан: затонувший город пиратов / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ BBC: Сверхчеловек (6 серий из 6) / BBC: Superhuman (2001) [DV
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_573140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +190,7 @@ NG: Секретные материалы древности: Тайна Жан�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ NG: Восхождение чёрного волка / The Rise of black Wolf (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Discovery. Наркосиндикат Сэм Гор / The World's Biggest Drug L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ History Channel: Вселенная: НЛО. Внеземные технолог
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ BBC: Жизнь в микромире / Life in the Undergrowth (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ BBC: Борьба за жизнь / Fight for Life (2007) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +424,7 @@ BBC: Освенцим (Аушвиц). Окончательное решение 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_571210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +451,7 @@ NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ NGW: Прекрасная Америка. На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ BBC: Борьба за выживание / BBC: The Trials of Life (1990) 4 х 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ BBC: Древний Египет: Великое открытие / BBC: Egypt (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_569555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -607,7 +659,7 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,62 +670,6 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E511724981A298CAD8834ADEC1A4FD3B1D5B3209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529162   (568675) от 30.07.2012
-
-NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo: U.S. of alcohol (2012) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568675.jpg" />
-</div>
-
-
-###  Подробнее
-
-День труда в США это веселье и вечеринки. Это последние выходные лета. В Фениксе,
-штат Аризона, и по всем Соединённым Штатам Америки это шанс повеселиться с друзьями. Для других - это жестокая битва. Кровавая... и даже смертельная! Для врачей скорой помощи выходные в честь дня труда - это что угодно, только не праздник. Трезвые люди не ходят по улицам и не тыкают друг друга ножом. Не стреляют, что кто-то припарковал свою машину на их месте. Такова реальность типичных праздничных выходных в типичном американском городке. Круглосуточная работа полицейских, медсестёр, врачей, пилотов вертолёта, судей. А также тюремных надзирателей. Вот какой ценой ведётся охрана города от наркотика-убийцы № 1 в Америке - алкоголя!
-
-Программа содержит сцены неприемлемые для определённой аудитории.
-Не рекомендовано к просмотру детям и людям с неустойчивой психикой.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B4577AA1644AA6C1BB472B918A9F9DF9A20D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528541   (568267) от 30.07.2012
-
-Animal Planet: Дикая (Суровая) Арктика (1-4 серии) / Wildest Arctic (2012) [H.264] HDTVRip
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре поры года, четыре серии, одна удивительнее другой. Сериал «Дикая Арктика» исследует четыре экстремальных района Арктики и даёт возможность ознакомиться с жизнью животных, которые пытаются выжить в этих невероятных местах обитания. Камеры снимают жизнь животных на протяжении 12 месяцев в занесённых снегом лесах тайги, где произрастает треть всех деревьев на планете. Они также исследуют арктическую тундру, одно из самых холодных и сухих мест на планете, которое стало домом для сотен тысяч оленей. В последующих эпизодах Вы увидите, что собой представляет жизнь за полярным кругом для белых медведей и китов. Вы также побываете в Исландии, стране с удивительным ландшафтом и выносливой дикой природой.Жанр: Документальный, флора, фауна, путешествиеПеревод: ДублированныйПродолжительность: 4 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AED845F55302A6E9146A0D4BD1AB7022474270
 ```
 
 https://mybot314.ru/tekegram_catalog/

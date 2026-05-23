@@ -1,3 +1,107 @@
+###  Публикация: 1248829   (439476) от 21.09.2018
+
+22 / Двадцать два (2016) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень с городских окраин не справляется с собственной жизнью: непреодолимая пропасть в общении с матерью, тихая вражда с отчимом, драки стенка на стенку и пацанский кодекс чести, вероломная девушка, серьезные проблемы со здоровьем. Но самый неожиданный «сюрприз» выкинет он сам.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Игорь ПоплаухинАктеры: Денис Урванцев, Виктория Цыганкова, Дмитрий Артаев, Катя Ястребова, Алексей ПодольскийСубтитры: Английские (вшитые не отключаемые)Продолжительность: 00:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A225211FD61401EDB9AA0109E308F7E5F7326D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248932   (439469) от 21.09.2018
+
+Чё (2016) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о непостоянстве взаимоотношений взрослых детей. О вечном поиске любви и неумении её разглядеть. О необъяснимом притяжении и объяснимом расставании.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Ирина ВилковаАктеры: Даниил Воробьев, Алексей Ильин, Ирина ВилковаСубтитры: ОтсутствуютПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047A290CCC6459C0E80C65C0EFC21AC12C4E3FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062666   (439429) от 14.10.2016
+
+Русская невеста (1993) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Русская красавица Юля, затюканная бытом и беспросветной повседневной жизнью, решает оставить своего мужа и выйти замуж за богатого иностранца. Мечта сбывается — и Юля вскоре оказывается в водовороте брачного аукциона на Западе…Производство: Россия, Дубляжная группа киностудии «Ленфильм»Жанр: МелодрамаРежиссер: Геннадий СоловскийАктеры: Алла Мурина, Леонид Ворон, Ксения Раппопорт, Александр Блок, Людмила Вагнер, Любовь Виролайнен ст., Алексей Заливалов, Максим БритвенковПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487DEDC2EB2B4473CABA9D5C709F46106B9D877A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062665   (439421) от 14.10.2016
+
+Стамбульский транзит (1993) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На протяжении последних лет приморские города Украины превратились в настоящие перевалочные пункты, через которые мафиози и главари наркобизнеса исправно переправляли и продолжают переправлять огромные партии наркотиков в европейские страны с территории Турции и других портов Черного моря. Объемы поставок настолько шокирующие, что за дело взялись сотрудники одного (   Читать дальше...   )Производство: Россия, Украина, Киностудия им. А. Довженко, Студия "Ч"Жанр: Боевик, Детектив, Криминал, ТриллерРежиссер: Григорий КоханАктеры: Любовь Полищук, Анатолий Котенёв, Анатолий Кузнецов, Степан Олексенко, Олег Шаварский, Анатолий Лукьяненко, Виталий Борисюк, Евгений Смирнов, Юрий Мажуга, Валерий Наконечный, Александр Быструшкин, Александр Милютин, Георгий Мельский, Екатерина КрупенниковаПродолжительность: 01:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A5C8BEBB49FA770344E922AC3221C0A0A9A308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 391788   (439274) от 25.09.2011
 
 Никто не знает про секс (2006) DVDRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_438949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4498053AE667A038282E1F6C3030E96C5AD27C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571190   (435339) от 20.08.2022
-
-Страна Саша (2022) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435339.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летний Саша не может определиться, куда поступать, и избегает серьезных отношений с девушками. В своей нерешительности он винит отца, бросившего его в раннем детстве. Знакомство с необычной девушкой Женей и встреча с отцом заставляют его повзрослеть.Производство: Россия / ВЕГА ФильмЖанр: мелодрамаРежиссер: Юлия ТрофимоваАктеры: Марк Эйдельштейн,  Мария Мацель,  Евгения Громова,  Дмитрий Ендальцев,  Алиса Тарасенко,  Дарья Румянцева,  Максим Шпаковский,  Андрей ПермяковСубтитры: отсутствуютПродолжительность: 01:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1056E2C7C6FA40E6575F09E7CABEA0647E60D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323370   (435287) от 04.09.2019
-
-Русская земля (2018) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои нашего времени – кто они? Те, кто открывает новомодные ночные клубы, завлекая молодёжь свободой и вседозволенностью? Или ими могут быть те, кто продаются дешёвым иностранным фантикам, обесценивая тем самым свою культуру? Или же это всё-таки те, кто напоминают нам о том, что ещё есть надежда, есть вера и любовь? Кто борется за истинно человеческие ценности и (   Читать дальше...   )Производство: Россия / 42records.fmЖанр: Криминал, драмаРежиссер: Александр БарышниковАктеры: Юрий Жаравин, Игорь Поспелов, Ефим Старцев, Богдан Черненко, Нина Жернакова, Сергей Сочнов, Александра Архипова, Алёна Седина, Андрей Лазаренко, Виталий ЛобановСубтитры: ОтсутствуютПродолжительность: 02:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77AC64E4F1F2A39182672E5CCEDB8B0AFF90E1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 84380   (435016) от 08.10.2014
-
-Зачем ты ушел? (2008) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_435016.jpg" />
-</div>
-
-
-###  Подробнее
-
-После развода молодая женщина открыла в себе новые таланты. Она решила попробовать себя в журналистике. И ей здорово повезло – в ее руки попали сенсационные материалы. Если их опубликовать, удар по репутации влиятельного бизнесмена будет очень сильным. Увлекаясь собственным расследованием, новоявленная журналистка не замечает, что все складывается слишком удачно, (   Читать дальше...   )Производство: Россия, Продюсерский центр "Пирамида"Жанр: МелодрамаРежиссер: Владимир ДмитриевскийАктеры: Елена Ксенофонтова, Анастасия Панина, Дмитрий Ульянов, Виктория Адельфина, Мария Астахова, Александр Голобородько, Лев Прыгунов, Ирина Нехороших, Юлия Григорьева, Виктор Рошка, Ирина БогдановаСубтитры: ОтсутствуютПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 82853   (434721) от 08.10.2014
-
-Никогда не забуду тебя! (2007) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_434721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мила не замужем и одна воспитывает маленького сына. Устроившись на работу в редакцию модного журнала, она едет брать интервью у известного бизнесмена Волина. Каково же ее удивление, когда, явившись в назначенное время на встречу, Мила узнает в нем отца своего ребенка, с которым они расстались, пять лет назад, в результате нелепого стечения обстоятельств.Производство: Россия, "Мостелефильм"Жанр: МелодрамаРежиссер: Сайдо КурбановАктеры: Евгения Лоза, Анатолий Белый, Марк Румянцев, Алена Ивченко, Дарья Сагалова, Анна Чурина, Александр Сигуев, Владимир Косухин, Ёла Санько, Александр Наумов, Максим ДроздСубтитры: ОтсутствуютПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

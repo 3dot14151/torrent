@@ -1,3 +1,81 @@
+###  Публикация: 1728911   (53843) от 09.06.2024
+
+Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack dixen18
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь в другой мир вместе с Ni no Kuni: Wrath of the White Witch™ Remastered. Старое приключение возвращается, чтобы порадовать вас новой графикой и улучшенной производительностью. Присоединяйтесь к Оливеру в путешествии и помогите ему вернуть маму, которой он лишился после несчастного случая. Насладитесь волшебной сказкой от мастеров Studio Ghibli и музыкой (   Читать дальше...   )Тип издания: RepackРазработчик: Level-5, QLOCЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, ЯпонскийЯзык интерфейса: Русский, Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435E3120AD7CD2D57EA68FA66C17AE4C72FF86A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664781   (53804) от 10.06.2024
+
+WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в зачарованный мир, где магия и приключения ждут на каждом шагу. Здесь каждый найдет для себя нечто особенное, погрузившись в атмосферу древних легенд и тайн. Станьте ведьмой, воспользуйтесь её магическими силами и раскройте все секреты волшебного мира! Начните своё увлекательное путешествие, познакомьтесь с множеством удивительных персонажей и существ. (   Читать дальше...   )Тип издания: SceneРазработчик: KIWIWALKSЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Японский, КорейскийЯзык субтитров: Английский, Корейский, Японский, КитайскийЯзык интерфейса: Английский, Корейский, Японский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692782   (53793) от 10.06.2024
+
+Coromon (2022) [Ru/Multi] (1.3.0/dlc) Scene Tenoke [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Coromon – ролевое инди-приключение про приручение животных для их дальнейших поединков между собой, по типу Покемонов. Этот проект использует раритетное пиксельное визуальное оформление как дань уважения игровой индустрии прошлого века. Камера находится под углом для создания изометрического взгляда на окружающий мир, который гораздо более осматривается при таком (   Читать дальше...   )Тип издания: SceneРазработчик: TRAGsoftЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729147   (53783) от 10.06.2024
 
 The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
@@ -6,7 +84,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack Wagner [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Baladins (2024) [Multi] (1.0.18) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ SKALD: Against the Black Priory (2024) [En] (1.0.3d/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Scene TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Whispers in the Moss (2024) [En] (1.01) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Sinderfury (2024) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Outward (2022) [Ru/Multi] (1.1.0/dlc) License GOG [Definitive Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Hood Story: Kaito Yamazaki (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Wizard with a Gun (2023) [Ru/Multi] (1.3/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Potty Knight Saga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Bloodstained: Ritual of the Night (2019) [Ru/Multi] (1.5/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Freedom Force (2002) [En] (1.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Fate/Samurai Remnant (2023) [Multi] (1.3.1/dlc) Scene Rune [Digital Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Baten Kaitos I & II HD Remaster (2024) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ DYSMANTLE (2021) [Ru/Multi] (1.4.0.41/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Tower Song (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Tower Song - это пошаговая ролевая игра, история �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CF92E249B73F4F731F3AC3159602DDA9C14002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732585   (52180) от 25.06.2024
-
-ELDEN RING (2022) [Ru/Multi] (1.12/dlc) Repack dixen18 [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elden Ring – фэнтезийное экшен-РПГ приключение, действия которого развиваются в мире, созданном знаменитым Хидэтака Миядзаки, известным по работе над играми Dark Souls. К проекту также приложил руку известный писатель Джордж Р. Р. Мартин (Песнь Льда и Огня).Тип издания: RepackРазработчик: FromSoftware Inc.Жанр: Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732583   (52110) от 25.06.2024
-
-Reverse Collapse: Code Name Bakery (2024) [Multi] (1.0.7.1/dlc) Scene Tenoke [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reverse Collapse: Code Name Bakery - тактическая RPG, события которой происходят в далеком будущем. Мир страдает от глобального кризиса, вызванный загрязнением, именуемым Collapse Fluid. Находясь в послевоенном состоянии, две фракции решили вступить в противостояние за сферу влияния. Конфликт произошел между Антарктическим союзом и Коалицией Наций Роксатеризма. Им (   Читать дальше...   )Тип издания: SceneРазработчик: Shanghai Sunborn Network Technology Co., Ltd.Жанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский и другиеЯзык интерфейса: Английский, Японский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62168075F11EAF25DAB8E76630921B4C3313F3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630517   (51880) от 27.06.2024
-
-Dungeon Drafters (2023) [Ru/Multi] (1.1.1.6) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dungeon Drafters – это пошаговый рогалик с видом сверху и упором на тактические бои. Проект использует анимешную стилистику и механики карточных игр. Под управление выдается искательница приключений с красными волосами. Она перемещается по клеткам. В инди-продукте есть мини-игры. Например: рыбалка. В тайтле можно разблокировать новых персонажей.Тип издания: LicenseРазработчик: Manalith StudiosЖанр: Ролевая игра, ПриключениеЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B233DF202F4116B0888FEC40B9576BCFC4CA8DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

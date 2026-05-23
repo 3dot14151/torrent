@@ -1,3 +1,115 @@
+###  Публикация: 1198309   (808007) от 11.01.2018
+
+Борис Бублик | Случайные Видео Агроинженера (2005-2015) CamRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Случайные Видео Агроинженера Бориса Андреевича Бублика
+Неожиданные решения в области агротехники!
+Проверено практикой!Жанр: АгротехникаПродолжительность: 09:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D46FC7E6C1738E35040B65B8E031E35B5BD677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381625   (807420) от 17.05.2020
+
+Иван Зылев | Создание интерьера в Autodesk Revit (2019) PCRec [H.264/720p-LQ]
+
+>>След.
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Курс научит создавать рабочую документацию для интерьера в Revit, от обмерного плана до электрики и разверток. Вы создадите необходимые спецификации и экспликации, оформите собственный штамп и выполните итоговый проект.Производство: int-linesЖанр: Обучающее видеоПродолжительность: 26:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFB0A8FBEDB6C0A617D062E2CA0888FB2E32C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505166   (805697) от 26.10.2021
+
+Учебный центр AMS, Надежда Бейнер | SketchUp для дизайнеров интерьера (2021) WEB-DL [AD]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Для кого полезен курс?
+
+Начинающий дизайнер
+Если вы давно искали простую программу для создания 3D моделей квартир, то SketchUp – идеальный вариант. Без сложных терминов и длительного обучения. Уже через 14 дней у вас на руках будет готовый проект для портфолио. Сможете воплощать смелые идеи и создавать оригинальный дизайн.(   Читать дальше...   )Производство: Учебный центр AMSЖанр: Дизайн, SketchUpПродолжительность: 28:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515FB0EBD7AF5E0E43B23D2FB9EF3537F2C40D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117995   (804800) от 29.03.2017
+
+Салават Загидуллин | Проектирование систем ОВиК в AutoCAD (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Станьте востребованным проектировщиком систем ОВиК в AutoCAD, сэкономив время и десятки тысяч рублей на обучении!
+Этот видеокурс для вас, если вы:
+Новичок в проектировании систем ОВиК в Автокаде
+Уже не новичок, но желаете делать проекты проще и быстрее, чем сейчас(   Читать дальше...   )Жанр: Строительство, проектированиеПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79C43BADC6C4430F54391533A5CAC8DBF056D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203212   (800543) от 01.01.2019
 
 НТВ | Дачный ответ - 2018 (Мегапак) [43 выпуска] (2018) SATRip
@@ -6,7 +118,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +197,7 @@ Monecle, Вилена Малая | Пошив сумок с нуля до рез
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -169,7 +281,7 @@ ZoomSchool, Екатерина Степанова | Пошив нижнего б
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -226,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -255,7 +367,7 @@ Betonmaster, Архипов Кирилл | Бетон 2.0 (2021) WEB-DL [Пак�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -284,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -313,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -339,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -365,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -446,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,112 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7DD0EC5F240FF6281C9E033E331B1DDF18FE784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137727   (666661) от 27.05.2017
-
-НТВ | Квартирный вопрос (27/05/2017) SATRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайнеры сделают интерьер гостиной таким же динамичным и ярким, как ее хозяева Айбулатовы: мама с папой - каратисты, а трое сыновей пробуют себя и в фигурном катании, и в аэробике, и в восточных единоборствах. Поэтому символом нового интерьера станет лошадь, бегущая во весь карьер.Телекомпания: НТВЖанр: ТВ-шоуПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2160B441AD0027854B038A375BE2B65B9DE28906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906000   (647013) от 07.06.2015
-
-Владимир Коваленко | Кладка бутового камня своими руками (2014) CamRip [H.264/720p]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647013.jpg" />
-</div>
-
-
-###  Подробнее
-
-"На сегодняшний день, кирпичной кладкой никого не удивишь, а вот кладкой бутового камня, можно не только удивить, но и зарабатывать очень приличные деньги. Кладка бутового камня, в последнее время набирает очень серьезные обороты, и даже есть каменщики с 20-30 летним стажем, которые не умеют правильно класть бутовый камень.
-
-С годами я выработал свою методику (   Читать дальше...   )Жанр: Строительство, Кладка бутового камняПродолжительность: 02:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7930F2D2582BFD762BCD69F8DBA7FF5C5E3993C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516239   (646622) от 01.07.2012
-
-Максим Попов | «МинПластан курс для мебельщиков» [2010] DVDRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В видеокурсе речь пойдет о технике изготовления изделий различного назначения по новейшей российской технологии "МинПластан". То, о чем будет рассказано в курсе, даст Вам знание и умение работать в освободившейся ввиду кризиса от засилья импортных материалов и технологий нише рынка.Жанр: Обучающее видеоПродолжительность: 05:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C428850E625C5732C7C6D4F35E2B4EDF2B5CA646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583851   (632931) от 09.04.2022
-
-Видеоурок | Мастер класс гальваника (2011) HDTVRip [1080p]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это видео предназначено для всех, кто интересуется практической гальваникой. В видео, мы постараемся простым языком изложить способы и приемы нанесения гальванических покрытий. Опишем, как можно самостоятельно изготовить оборудование для гальваники в домашних условиях. Так же с удовольствием выслушаем мнение экспертов и напечатаем их материалыЖанр: ВидеурокПродолжительность: 00:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87352DBC36FFAB3B5455B61AF16E9AEB97293E24
 ```
 
 https://mybot314.ru/tekegram_catalog/

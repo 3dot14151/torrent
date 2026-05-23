@@ -1,3 +1,107 @@
+###  Публикация: 1345040   (130986) от 08.12.2023
+
+Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [1995, TV, 29 из 29] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Потеряв Основу, мир Цефира погружается в хаос. Миры, расположенные неподалёку, преследуя каждый свою цель, стремятся захватить разрушающийся мир, а неведомая сила, средоточие зла, используя момент, собирается вообще уничтожить вселенную. И лишь легендарные Рыцари-маги могут восстановить былое равновесие.Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Жанна ТачёваЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 29 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345039   (130971) от 08.12.2023
+
+Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV, 20 из 20] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Три восьмиклассницы – Хикару, Юми и Фу – были на экскурсии в Токийской телебашне. Неожиданно странная сила захватила девочек и увлекла их в загадочный мир. Там их встретил таинственный учитель Клеф, который наспех объяснил пришелицам, что те перенеслись на Сефиро по воле принцессы Эмералд. Принцесса – душа этого мира, его правительница и магическая заступница – оказалась (   Читать дальше...   )Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Станислав ФроловЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 20 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345044   (130967) от 08.12.2023
+
+Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3] DVDRip 480p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Смогут ли три очаровательных беззаботных школьницы, случайно перенесенных в параллельную реальность, где правит изощренное волшебство, стать бесстрашными воительницами, магическая сила которых защитит обитателей этого мира?Производство: TMS / トムス・エンタテインメントЖанр: приключения, фэнтезиРежиссер: Хирано ТосикиПеревод: Жанна ТачёваЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 3 эп. по 45 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A19FFF9052F250A4867E95C02A1D91C8B36531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665831   (129623) от 10.12.2023
+
+Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch / Семейные обстоятельства легкомысленной ведьмы [2023, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Алиса — ведьма, живущая одна в лесу. Однажды она находит в глуши младенца с огромным количеством маны. Вначале Алиса впадает в замешательство, но потом решает вырастить малышку и назвать её Виолой. Спустя 16 лет, Виола вырастает не только в дочь, обожающую свою маму, но и в настоящую женщину, и теперь уже Виолу принимают за мать Алисы.Жанр: комедия, фэнтези, повседневность.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C115B1AE4A301666397A59B09D68EDF4DA07F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824327   (128932) от 14.10.2025
 
 Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читосэ внутри бутылки рамунэ [2025, TV, 2 из 13] WEBRip 720p raw
@@ -6,7 +110,7 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Maou 2099 | Повелитель демонов 2099 [2024, TV, 12 эп.] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Amrita no Kyouen | Праздник Амриты [2023, Movie] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Watashi no Oshi wa Akuyaku Reijou. / I'm in Love with the Villainess / Я пре
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Seiken Gakuin no Maken Tsukai / The Demon Sword Master of Excalibur Academy / М
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Seijo no Maryoku wa Bannou Desu 2 / The Saint's Magic Power is Omnipotent 2 / В
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Ojou to Banken-kun | A Girl & Her Guard Dog | Девушка и её сторо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Konyakuhaki Sareta Reijou o Hirotta Ore ga, Ikenai Koto o Oshiekomu / Я под�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +373,7 @@ S-Rank Musume | Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni N
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus Bride Season 2 | Невест�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Kizuna no Allele (2023) | Аллели Кидзуны [ТВ-2] [2023, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi. | Исто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Spy x Family 2 / Семья шпиона 2 [2023, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Potion-danomi de Ikinobimasu! / I Shall Survive Using Potions! / Я выживу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +638,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo / Сто девуш
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +664,7 @@ The Idolmaster Million Live! / IDOLM@STER Million Live! / Миллион iDOLM@S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,110 +677,6 @@ The Idolmaster Million Live! / IDOLM@STER Million Live! / Миллион iDOLM@S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99CFA67F8BB02FB5F6537C30AF25C5AB5630B192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667533   (126333) от 24.12.2023
-
-Atarashii Joushi wa Do Tennen | My New Boss Is Goofy | Мой новый босс — дурак [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kэнтapo Moмocэ — 26-лeтний oфиcный paбoтник. Heдaвнo oн cмeнил paбoтy из-зa нeaдeквaтнocти нaчaльникa. Oн oбecпoкoeн тeм, чтo нoвый бocc мoжeт oкaзaтьcя тaким жe и cдeлaeт жизнь Kэнтapo coвceм нeвынocимoй. Cтpecc дoвoдит eгo дo кoлик в жeлyдкe, и имeннo вo вpeмя пpиcтyпa пpoиcxoдит знaкoмcтвo c нoвым нaчaльникoм Юcэeм Щиpocaки. Юcэй oкaзывaeтcя нeмнoгo pacceянным (   Читать дальше...   )Производство: Япония, A-1 PicturesЖанр: комедия, повседневностьРежиссер: Абэ НориюкиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: Русские, Английские, ДРУГИЕПродолжительность: 12 эп. по 24 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592F930D0C2E492510BCBCE496A5DACD5019FBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625613   (126162) от 25.12.2023
-
-Dead Mount Death Play | Смертельная игра мёртвой горы [2023, TV, 24 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противостояние века подошло к концу, когда легендарный герой победил сильнейшего некроманта — Бога-мертвеца. В последние мгновения битвы Бог-мертвец сделал неожиданный ход — применил магию реинкарнации! В совсем другом мире парень по имени Полька Щинояма, несмотря на перерезанное горло, приходит в себя... точнее, не совсем в себя.Производство: Студия Geek ToysЖанр: приключения, фэнтезиРежиссер: Оно МанабуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151588AB9375103E93244F382FE35F27CD30FC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667839   (126152) от 25.12.2023
-
-Hoshikuzu Telepath / Stardust Telepath / Телепат звёздной пыли [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умика Конохощи — очень застенчивая девушка и ей сложно общаться с одноклассниками в школе. Однажды в её класс переводится новая ученица по имени Ю Акеучи. Она утверждает, что является инопланетянкой и обладает особой способностью «Одекопатией», которая позволяет ей понимать чувства других, когда её лоб касается лба другого человека (одеко — лоб на японском).Жанр: комедия, повседневность, сверхъестественное.Режиссер: КаориЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBBB54A30D5798559E49666EB80FFE3DDAEC4CD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667634   (126148) от 25.12.2023
-
-Saihate no Paladin: Tetsusabi no Yama no Ou | The Faraway Paladin: The Lord of Rust Mountain | Паладин издалека [ТВ-2] [2023, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переродившись в другом мире, Уилл, памятуя о прошлых ошибках, стал другим человеком, выбрал нелёгкую стезю паладина и стал служить богине света. Два года миновало с тех пор, как он покинул Город Мёртвых. Ему исполнилось 17, и дел у нашего героя невпроворот, ведь теперь он не просто странствующий воин, но и лорд всего Лихолесья. А тут ещё и приходят дурные вести: (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Иванага АкираПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B3559F65F4252142AEC2C8B13BFB500FF02A0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

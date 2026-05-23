@@ -1,3 +1,29 @@
+###  Публикация: 1283519   (739570) от 17.02.2019
+
+Синий бархат / Blue Velvet (1986) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В связи с болезнью отца Джеффри Бомон был вынужден на время оставить столичный колледж и вернуться в родной городок, и ему пришлось пережить целый ряд загадочных и страшных событий. Все началось с того, что неподалеку от дома он нашел человеческое ухо, которое сдал в полицию инспектору Уильямсу...Производство: США / De Laurentiis Entertainment Group (DEG)Жанр: Триллер, Драма, ДетективРежиссер: Дэвид ЛинчАктеры: Изабелла Росселлини , Кайл МакЛоклен , Деннис Хоппер , Лора Дерн , Хоуп Лэнг , Дин Стокуэлл , Джордж Дикерсон , Присцилла Пойнтер , Фрэнсис Бэй , Джек Харви , Кен Стовиц , Брэд ДурифПеревод: Профессиональный двухголосый, Авторский одноголосыйСубтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B21F97F89B3C5107552F65AAF7FC4E71CDF6230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283618   (739562) от 17.02.2019
 
 Снежная Королева: Зазеркалье  (2018) WEB-DL [720p] ATV
@@ -6,7 +32,7 @@
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ VA - Cuts Extraordinaire – Best of Jazzsticks 02 (2017) [AAC|~282 Kbps] <Drum 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +139,7 @@ VA - Cuts Extraordinaire – Best of Jazzsticks 01 (2014) [AAC|~283 Kbps] <Drum 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +168,7 @@ VA - Cuts Extraordinaire – Best of Jazzsticks 03 (2021) [AAC|~290 Kbps] <Drum 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +197,7 @@ VA - Balearic Sunset (The Buddha Ambient Edition), Vol. 1 (2022) [AAC|~279 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -200,7 +226,7 @@ VA - Lounge & Beauty, vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -229,7 +255,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection Night Session) (2018)
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +284,7 @@ VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +313,7 @@ VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -316,7 +342,7 @@ VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +371,7 @@ VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +400,7 @@ VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +429,7 @@ VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +458,7 @@ VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +487,7 @@ VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +516,7 @@ VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -519,7 +545,7 @@ VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,7 +574,7 @@ VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,7 +603,7 @@ VA - Beautiful Vocal Trance, ch. 6 (2022) [AAC|~332 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +632,7 @@ VA - Singing With The Stars, vol. 1 (2020) [AAC|~318 Kbps] <Nu Jazz, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -635,7 +661,7 @@ VA - Singing With The Stars, vol. 2 (2021) [AAC|~324 Kbps] <Nu Jazz, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -664,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -690,7 +716,7 @@ VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -704,35 +730,6 @@ VA - Sidewalk Bistro, Vol. 2 (2015) [AAC|~333 Kbps] <Lounge, Chill Out, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:313D7CAD5F6211C16F0D8446BF4E25EDDB53BBED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526369   (738519) от 24.01.2022
-
-VA - Sidewalk Bistro, Vol. 3 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Nambuco (7:15)
-02. Emelie Christiansson - Sunday Song (3:25)
-03. Urban Phunk Society - Shadow Play (3:11)
-04. Peter Pearson - All Phased Out (5:02)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1328FBB3663BCC0CCA48AF6C70E8BECE35CE729
 ```
 
 https://mybot314.ru/tekegram_catalog/

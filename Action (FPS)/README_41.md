@@ -1,3 +1,107 @@
+###  Публикация: 1700601   (117125) от 17.02.2024
+
+Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Terminator: Resistance – шутер от первого лица, являющийся приквелом для первой и второй части фильмов. Вы возьмете управление над рядовым Джейкобом Риверсом, бойцом из сопротивления группы Джона Коннора. Сражайтесь вместе со своей группировкой против Скайнет и их военных роботизированных разработок.Тип издания: RepackРазработчик: TeyonЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FA55BE7774647DD8BECD23DA98AC49118AC122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700492   (117097) от 17.02.2024
+
+Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Симулятор выживания, которого долго ждали любители реального истощения героя в условиях диких джунглей! Главный герой побывает в темных лесах Амазонки с одной только рацией из предметов «своего времени», а в помощь ему пойдут руки и голова, которые со временем начнут предавать. Green Hell - выживание, истощение, психически подорванное здоровье главного героя. За (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy JarЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3287C531DC2F441C190DB9EC1A5C098E4E974C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701121   (116819) от 19.02.2024
+
+Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Serious Sam: Siberian Mayhem – это возможность погрузиться в долгое и опасное путешествие по российским пустошам, где получится сразиться против сил Ментала. Игра является дополняющей частью к оригинальной серии, в которой получится взять под управление "Крутого" Сэма Стоуна. Придется столкнуться с полчищами тварей, что выползают на поверхность планеты (   Читать дальше...   )Тип издания: RepackРазработчик: Croteam, Timelock StudioЖанр: Action (Shooter), Add-On, 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700927   (116793) от 19.02.2024
+
+Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Skibidi Toilets: Invasion бросает вас в вихрь хаоса киборгов-туалетов. Сыграйте за секретного агента, вооруженного арсеналом оружия, которому поручено подавить восстание унитазов. Обнажите свою ярость в семи разнообразных локациях, от пустынных городских пейзажей до леденящих душу кладбищ, каждая из которых ставит перед вами уникальные стратегические задачи. Добро (   Читать дальше...   )Тип издания: RepackРазработчик: Quad LabsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A84FD510B05A808828FA25FF29475042077DEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681682   (116631) от 20.02.2024
 
 Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License GOG
@@ -6,7 +110,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack dixen18 [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +476,7 @@ CULTIC (2022) [Ru/En] (Build 20066947/dlc) Repack Other s [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Tom Clancy's Rainbow Six 3: Raven Shield и Athena Sword [Ru] (RePack) 2003 | Pi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +608,7 @@ Call of Duty: Modern Warfare 2 + All DLC + AlterIWnet [Ru] (RePack) 2009 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +634,7 @@ Witchaven [En] (RePack) 1995 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +660,7 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,110 +671,6 @@ Medal of Honor. Limited Edition / Medal of Honor. Расширенное изд�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E91764784632E72EA9E66AD064B4F18F2908DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477825   (86236) от 03.04.2012
-
-Painkiller: Recurring Evil / Painkiller: Абсолютное зло (2012) [Ru] (1.0.0.43) Repack R.G. UniGamers
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Painkiller: Recurring Evil продолжает события аддона Painkiller: Resurrection. Главный герой Билл Шерман становится хозяином Чистилища, наделенный силой Меча Серафима. Однако, падший ангел Самаэль (потерявший свои крылья после битвы с Белиалом в Painkiller: Overdose), который стал новым правителем Ада вместо Евы, крадет меч Билла и отправляет его в неизведанные места (   Читать дальше...   )Тип издания: RePackРазработчик: Med-ArtЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EFD21B08BF5669E9A31462FBED35C8539FD0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476457   (85785) от 01.04.2012
-
-World War Zero / Iron Storm / Коммандос: В тылу врага [En] (L) 2002
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра "Коммандос: в тылу врага" - первый серьезный проект французской компании "4X Studio". Разработчики не стали брать на вооружение чей-то лицензированный движок, а представили свой, Phoenix 3D - вполне достойный конкурент большинству шутеров прошлого года. Оригинальный сюжет игры основан на альтернативной истории Первой мировой войны, сочетающей достоверные и вымышленные события.Тип издания: ЛицензияЖанр: Action, ArcadeЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD53F5E19B9AB7C4343F8DBBB3D9C3C547B9CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475274   (85191) от 29.03.2012
-
-Vietcong / Вьетконг [Ru/En] (RePack) 2003 | Pilotus
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сыграйте во "Вьетконг" и ощутите опасность, страх и непредсказуемость смертельной схватки в джунглях. Действие этого шутера от первого лица разворачивается во время печально известного вооруженного конфликта в Юго-Восточной Азии. Войдите в ряды бойцов высокопрофессиональных Специальных подразделений Армии США. Под вашим командованием - группа самых лучших солдат из всех, существовавших в истории. Пора показать миру, из чего вы сделаны!Тип издания: RePackЖанр: Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский (Фаргус)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF816BC0ABDB0C48DA95EB7EB3C108CA72F7CB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475292   (85187) от 29.03.2012
-
-FireStarter [Ru] (RePack) 2003 | Pilotus
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры переносит игрока в 2010 год, где его сознание попадает в ловушку новейшего автомата виртуальной реальности FireStarter, пораженного компьютерным вирусом. Вызванный вирусом сбой привел к тому, что компьютер изменил правила игры - для того, чтобы выбраться из ловушки, игроку необходимо пройти игру за 48 часов. Погрузитесь в невероятный мир, созданный суперсовременным игровым автоматом, где Вам предстоит выйти победителем в переполняющем кровь адреналином действии...Тип издания: RePackЖанр: Трехмерный шутер от первого лицаЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99E7981DED0D700F9F09ED63BCF28E5DF345DC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

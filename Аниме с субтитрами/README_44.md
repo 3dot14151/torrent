@@ -1,3 +1,109 @@
+###  Публикация: 1522991   (755063) от 09.01.2022
+
+Log Horizon: Entaku Houkai | Log Horizon: Destruction of the Round Table | Лог Горизонта 3 [ТВ-3] [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Совершенно неожиданно несколько десятков тысяч игроков оказались заперты в мире популярной ММОРПГ Elder Tale! Они были шокированы этим, ведь их окружают жуткие монстры и магия. А город авантюристов-игроков, Акиба, превратился чёрт знает во что… Среди угодивших в ловушку оказался и Сироэ — юноша, которому трудно общаться с людьми. Вместе со своими верными друзьями (   Читать дальше...   )Производство: студия Studio Deen / スタジオディーンЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377E5AA33C30ABAC079FCD8B3A457FFA6C46660E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311738   (755036) от 10.07.2020
+
+Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учиться! [ТВ-1][2019, TV, 13 эп. + OVA 2 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нариюки Юйга — ученик последнего и самого тяжёлого класса. Чтобы заработать «особую ВИП-рекомендацию», которая гарантирует бесплатное обучение в университете, он должен помочь своим одноклассницам подготовиться к вступительным экзаменам. Ему поручили двух самых прекрасных и гениальных учениц школы: Фумино Фурухаси, «Спящую красавицу литературных лесов», и Ридзу Огату (   Читать дальше...   )Жанр: комедия, романтика, эттиРежиссер: Ивасаки ЁсиакиПеревод: Wakanim (TV); Gerale (OVA1); grrala (OVA2)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. + 2 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2CC8024776780803ADCE59846C3406407C8BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663413   (754877) от 31.05.2013
+
+Seirei no Moribito / Guardian of the Sacred Spirit / Хранитель Священного Духа [2007, TV, 26 ep.] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Женщина–воин, копьеносец Барса, странствует по городам в поисках работы. Барса – профессиональный телохранитель. Забота об экипировке приводит ее в Його, благополучную и богатую страну. Здесь Барса надеется всего-навсего починить сломанное копье, но неожиданно оказывается «при исполнении» - на мосту случается несчастный случай. Во время следования императорского кортежа опрокидывается повозка со вторым принцем Його, Его Высочеством Тягуму. Барса бросается в воду за мальчиком, не предполагая, что судьба накрепко свяжет ее со спасенным ребенком...
+
+© Анастасия Розанова, World Art; Полная рецензия от Расселла Д. ДжонсаЖанр: приключения, фэнтезиРежиссер: Камияма КэндзиПродолжительность: 26 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0FDA912C5CD2AD192C0827538F9CBD6146083E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202146   (754381) от 28.03.2018
+
+Mitsuboshi Colors | Звёздочки [2018, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В детстве все дела кажутся очень важными, даже самые пустяковые. Но в том и проблема взрослых, что мы не обращаем внимания на мелочи, а ведь они порой перерастают в настоящие трудности, от которых избавиться уже гораздо сложнее, нежели чем пресечь всё на корню. Но жители японского городка Уэно, в отличие от нас, могут спать спокойно, ведь на страже их города стоит (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Кавамура Томоюки / Kawamura Tomoyuki / 河村智之Перевод: AniPlay.TVЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F39147BF1776BDC9D965FB8EEFFE7907215008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196577   (754280) от 28.03.2018
 
 Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место, что дальше вселенной [2018, TV, 13] WEBRip 720p raw
@@ -6,7 +112,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место, что
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +141,7 @@ Yuru Camp | Laid-Back Camp | Лагерь на свежем воздухе [2018
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +167,7 @@ Karakai Jouzu no Takagi-san | Поддразнивание Такаги [2018, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +193,7 @@ Citrus / Цитрус [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +219,7 @@ One Off / Эпизод [2012, OVA, 4 ep.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +247,7 @@ Netojuu no Susume | Recommendation of the Wonderful Virtual Life | Гайд по
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +273,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +299,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +325,7 @@ Bokutachi wa Benkyou ga Dekinai! | We Never Learn: Bokuben Season 2 | Мы не 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +351,7 @@ Oshiete! Galko-chan | Расскажи нам, Гяруко-тян! [2016, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +377,7 @@ ViVid Strike! | Решающий удар! [2016, TV, 13 эп. + 2 SP] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +403,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Акашийские хрон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +455,7 @@ Juushinki Pandora | Last Hope | Небесная машина Пандора [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +481,7 @@ Obey Me! | Повинуйся мне! [2021, ONA, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +507,7 @@ Marmalade Boy (1995) | Marmalade Boy Movie | Мальчик-мармелад - �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +533,7 @@ Marmalade Boy | Мальчик-мармелад [1994, TV, 76 из 76] BDRip 960
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -453,7 +559,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +585,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +611,7 @@ Fate/Extra: Last Encore | Судьба: Дополнение [2018, TV, 13 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +639,7 @@ Ramen Daisuki Koizumi-san | Ms. Koizumi Loves Ramen Noodles | Коизуми-с�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +665,7 @@ Hakata Tonkotsu Ramens | Тонкоцу рамен из Хакаты [2018, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,112 +676,6 @@ Hakata Tonkotsu Ramens | Тонкоцу рамен из Хакаты [2018, TV, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0376B45C3A947CEC082CF03B2BA274CA6A682478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783235   (747000) от 03.05.2014
-
-Ano Natsu de Matteru | AnoNatsu | Waiting in the Summer | Ждём тебя летом [2012, TV, 12 эп.] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японским старшеклассникам летними ночами опасно подходить к местным водоемам! А вот 16-летний Кайто Кирисима не утерпел и пошел на ночь глядя пробовать новую кинокамеру, но не успел ничего снять, как в озеро упал космический корабль! Утром Кайто списал все на дурные сны и направился в школу. Смутные сомнения зашевелились в душе, когда Кирисима увидел новую ученицу по имени Итика Такацуки. Чувствуя, что его незримо тянет к красавице с ярко-красными волосами, герой никак не мог решиться, да помог Тэцуро, лучший друг и первый парень на деревне. Он представил Кайто как кинолюбителя и в шутку предложил новенькой стать звездой нового фильма. Та с удовольствием согласилась!
-
-Так все и завертелось перед летними каникулами. Сценарий взяла на себя таинственная малышка Рэмон, на вторые роли подписались одноклассницы героя Мио и Канна (причем одну из них вторая роль совсем не устраивала!). Сам же Кайто обнаружил, что под влиянием общения с Итикой таинственным образом раскрепощается и начинает вести себя не как хлипкий очкарик, (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Нагай ТацуюкиПродолжительность: 12 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E447D65BF9E083D763F8507499371899B0B4669F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396431   (746848) от 15.07.2020
-
-Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centimeters Apart. | Нас всегда разделяли 10 сантиметров [2017, TV, 6 из 6] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повествование о любовных историях между школьниками третьего курса: Нацуки Эномото, Юто Сетогучи, Соутой Мочизуки, Акари Хаясакой, Мио Айдой и Харуки Серизава. Помимо них, также рассказывают различные истории любви между людьми которые их окружают. История посвящена тому, как трудно рассказать о своих чувствах.Производство: Lay-duceЖанр: романтика, повседневностьРежиссер: Намба ХитосиПеревод: YakuSub Studio (Arashi-sama, Nika_Elrik)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2135AE17B9EBDFBE629357D0594ECACDECF44EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257815   (746213) от 11.02.2019
-
-Steins;Gate 0 | Врата Штейна 0 [2018, TV, 24 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Временная линия Бета, 1.129848%. После смерти Курису Макисе Ринтаро Окабе страдает от посттравматического стрессового расстройства, которое пытается излечить посредством гипнотерапии. Он отказывается вновь возвращаться в прошлое при помощи машины времени, избегает «Лаборатории гаджетов будущего» и отбрасывает личность Хооина Кёмы, живя жизнью обычного студента университета. (   Читать дальше...   )Производство: студия White FoxЖанр: триллер, фантастикаРежиссер: Кавамура КэнъитиПеревод: #1. AniPlay(01-23); #2. SovetRomantica (01-23);Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19F5AC824EF1F419DF9473924B819FB9C704F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783543   (745567) от 04.05.2014
-
-To Heart 2 | ToHeart 2 | Для сердца 2 (TV 2) [2005, TV, 13 + 1 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал основан на одноимённой игре от компании Aquaplus. Несмотря на цифру 2 в названии, не имеет ничего общего с первым сериалом ToHeart, вышедшим в 1999 году, кроме нескольких отсылок для наблюдательных. Новая история не отличается особой оригинальностью (как, впрочем, и большинство экранизаций хентайных игр), однако, всё же немного выделяется на фоне других вещей (   Читать дальше...   )Жанр: комедия, романтика, драма, школаРежиссер: Суто НорихикоСубтитры: •Продолжительность: 13 эп. + эп.-коллаж), 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ED52FD9CD1EC390C51B4E33A1EF32DD8B28288
 ```
 
 https://mybot314.ru/tekegram_catalog/

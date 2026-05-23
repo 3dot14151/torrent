@@ -1,3 +1,187 @@
+###  Публикация: 1324435   (422929) от 10.09.2019
+
+Очередное достижение: 2000 релизов от jemeljanov!!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 2000 релизов от jemeljanov!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 2000-м релизом!От всей души поздравляем
+jemeljanov
+с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324524   (422924) от 10.09.2019
+
+Плавучий атомный блок «Академик Ломоносов» досрочно прибыл на Чукотку
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Первый в мире промышленный плавучий атомный энергоблок (ПЭБ) «Академик Ломоносов» досрочно прибыл на место своей работы на Чукотке, сообщила в понедельник пресс-служба концерна «Росэнергоатом»."Девятого сентября 2019 года плавучий атомный энергоблок «Академик Ломоносов», отправленный 23 августа 2019 года из города Мурманска в сопровождении ледокола «Диксон» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064802   (422816) от 21.10.2016
+
+Абсолютная власть / Imperium (2016) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о молодом агенте ФБР, которому приходится работать под прикрытием, чтобы остановить белых расистов, готовящих теракт.Производство: СШАЖанр: Триллер, драма, криминалРежиссер: Даниэль РагуссисАктеры: Дэниэл Рэдклифф, Тони Коллетт, Трэйси Леттс, Сэм Трэммелл, Нестор Карбонелл, Крис Салливан, Сет Нумрик, Павел Жайда, Девин Друид, Берн ГорманПеревод: Профессиональный многоголосый (Paradox & Omsbird records)Субтитры: ОтсутствуютПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D582B2F3939BED55F247DC75CFC67FAB98F282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015199   (422807) от 21.10.2016
+
+Stellaris (2016) [Ru/Multi] (1.3/dlc) License CODEX [Galaxy Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь во Вселенную полную чудес и посвятите себя исследованию безграничного космоса! Компания Paradox Development Studio, создавшая знаменитые серии Crusader Kings и Europa Universalis, представляет новое слово в жанре глобальных стратегий.Тип издания: LicenseРазработчик: Paradox Development StudioЖанр: Strategy (Real-time, Grand strategy), 3DЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E49ED3DCDC519E6AC2B738DAE366A750169356E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324653   (422781) от 10.09.2019
+
+VideoHive - RTFX Generator [1000 FX elements] - 19563523 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обновленная версия RTFX Generator, которая представляет собой набор инструментов для разработчиков игр и дизайнеров VFX. Сценарий дает вам возможность комбинировать FX-анимации и быстро экспортировать их в виде спрайтов или последовательностей в игре (поддерживает любые игровые движки: Unity, UE и т. д.) Также вы можете создавать презентации для ваших пакетов анимации. (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786329AA3E2FD9BA7D66DB88A55BB3DA4648323F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324618   (422778) от 10.09.2019
+
+GreedFall (2019) [Ru/Multi] (1.0/dlc) License HOODLUM
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте новый таинственный мир, где царит могущественная магия и водятся невероятные существа. Только вы решаете, кому помочь, а кого предать. Применяйте силу, дипломатию и хитрость, чтобы влиять на судьбу живого, меняющегося мира и создавать свою собственную историю.Тип издания: LicenseРазработчик: SpidersЖанр: RPG (Open World), Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F27E105A8CC5B1CADD1EFEA0790D70B68CC3B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411551   (422577) от 27.09.2020
+
+Компания "Оптиковолоконные системы" за пять лет выпустила 7 млн км оптического волокна
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+ТАСС, 25 сентября. Компания "Оптиковолоконные системы" (ОВС, портфельная компания "Роснано") в пятницу отметила пятилетнюю годовщину, за это время на заводе было выпущено более 7 млн км оптического волокна - им можно 175 раз обернуть Землю по экватору. Продукция ОВС является ключевой компонентой в реализации национальной программы "Цифровая (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410714   (422296) от 27.09.2020
 
 Маугли (1973) DVDRip [H.264/1080p-LQ] [handmade remastered upscale AI]
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_422239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_421866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +322,7 @@ XCOM Enemy Unknown [Xbox 360] [ENG] [Region Free] [LT 3.0/XGD3/14719] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +352,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_420517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +405,7 @@ BELOFF 2016.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +457,7 @@ tinyCam Monitor PRO v7.1.1 [Ru/Multi] - Мобильное видеонаблю�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +483,7 @@ Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.1) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_419995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +587,7 @@ Deep Purple - Machine Head (1972) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Rock, Heav
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +616,7 @@ Cowon jetAudio 8.1.4.303 Plus Retail [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +642,7 @@ DisplayFusion Pro 7.3.1 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +668,7 @@ Call Of Duty: Advanced Warfare (2014) [PS3] [EUR] [3.55] [Cobra ODE / E3 ODE PRO
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,188 +679,6 @@ Call of Duty: Advanced Warfare — шутер от первого лица, ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E072895CD0CE7F01D3F44E27135C7CBACC1DD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251256   (419274) от 30.09.2018
-
-Инопланетная экспедиция / Alien Expedition (2018) WEB-DLRip [MVO] [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический исследовательский корабль, на борту которого находятся и люди, и андроиды, натыкается на планету, пригодную для жизни. Задача команды - исследовать потенциал новой планеты. Но отправленная на разведку экспедиция вскоре вынуждена вступить в сражение с негостеприимной фауной не на жизнь, а на смерть.Производство: США / Splendid filmЖанр: ФантастикаРежиссер: Уоллес БразерсАктеры: С.Дж. Бэйкер, Эдвард Гастс, Этан Макдауэлл, Грегори Нибел, Уитни Нилсен, Антуоне Торберт, Линда Вонг, Мотаун Морис, Янника Олин и др.Перевод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:34:23Реклама: Присутствуют вставки голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2958204B9211AE6AFAD3CD69D181514BDCEFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246597   (418995) от 20.10.2010
-
-Видеоклипы MTV HDTV Quality. Пиратская Вечеринка 2010. 80 клипов Club, Dance, Electronic, Pop, Trance 4,5 Gb
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоклипы в HDTV качестве. Коллекция музыкальных клипов ТВ разных стилей и направленийЖанр: TV, Club, Dance, Electronic, Pop, TranceПеревод: Не требуетсяПродолжительность: 04:48:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160772   (418721) от 19.09.2017
-
-Катастрофа европейского еврейства / Annihilation - The Destruction of Europe's Jews (2014) HDTVRip (8 серий из 8)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в истории историки и специалисты проведут полный анализ истории уничтожения еврейского народа во время Второй Мировой войны. Они попытаются установить причину возникновения геноцида и объяснить, почему евреи подверглись преследованию и массовому уничтожению нацистами сначала в Германии, а затем и по всей Европе. Сериал рассказывает об этапах, которые привели (   Читать дальше...   )Телекомпания: Франция, France Tlvision, Looks Films, Zadig ProductionsЖанр: Документальный, война, историяРежиссер: Вильям Карэл, Бланш ФигнерПеревод: ДублированныйПродолжительность: 8 х ~ 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B11F32C92754076ED11864978732725459D7708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167307   (418698) от 19.09.2017
-
-Малыш на драйве / Baby Driver (2017) WEB-DLRip [H.264] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой парень по прозвищу Малыш обожает стильную музыку, быструю езду и адреналин в крови. Вся его жизнь — это сплошные погони и перестрелки, ведь он работает водителем, который помогает бандитам скрыться с места преступления. Однажды он по-настоящему влюбляется и решает выйти из игры, но сначала ему предстоит выполнить еще одно задание, которое вполне может оказаться (   Читать дальше...   )Производство: Великобритания, США |  TriStar Pictures, Media Rights Capital (MRC), Double NegativeЖанр: Боевик, Криминал, ТриллерРежиссер: Эдгар РайтАктеры: Энсел Элгорт, Джон Бернтал, Джон Хэмм, Эйса Гонсалес, Лили Джеймс, Морган Браун, Кевин Спейси, С.Дж. ДжонсПеревод: Многоголосый закадровый, любительский / студия Paradox & Omskbird records (присутствует ненормативная лексика)Субтитры: английскиеПродолжительность: 01:52:39Реклама: отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF107CDBC1892D4D19F47AA2C962A9475514A65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803794   (418594) от 15.10.2014
-
-За пределами / Выжившая / Род человеческий / Extant (2014) HDTVRip (Сезон 1, серии 1-13 из 13) (Amedia)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футуристический триллер о женщине-астронавте, которая возвращается на Землю после космической экспедиции и пытается наладить отношения с семьей, но ее поступки загадочным образом изменяют ход истории всего человечества.Жанр: Фантастика, триллер, драмаРежиссер: Пэрис Барклай, Мэтт Эрл Бисли, Аллен КултерАктеры: Холли Берри, Брэд Бейер, Горан Вишнич, Пирс Гэнон, Камрин Менхейм, Тайлер Хилтон, Серджо Харфорд, Грэйс Гаммер, Майкл О’Нил, Жанетта Арнетт и др.Перевод: Профессиональный многоголосый закадровый - студия Кравец по заказу AmediaОзвучка: Марина Гладкая, Ксения Брзжесовская, Максим Сергеев, Сергей Куприянов и Вадим ПрохоровЯзык субтитров: РусскийФормат: AVIПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1227CD834C03C812EAA8665F9C31A76CEE58A072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065517   (418318) от 23.10.2016
-
-Снимки орбитального аппарата MRO проливают свет на случившееся с посадочным модулем Schiaparelli
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как мы рассказывали нашим читателям несколькими днями ранее, контакт с посадочным модулем Schiaparelli, являющимся частью российско-европейской миссии Exomars 2016 был потерян 19 октября 2016 года в 14:42 по времени Гринвичского меридиана незадолго после входа модуля в марсианскую атмосферу на гиперзвуковой скорости. Специалисты Европейского Центра космических операций (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065490   (418017) от 23.10.2016
-
-Spellforce (2005) [Ru/En] (1.54.75000/dlc) License GOG [Platinum Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418017.jpg" />
-</div>
-
-
-###  Подробнее
-
-SpellForce - это удивительный мир волшебства, могущественных и безумных магов. Под действием магии были освобождены Элементы, которые обладают невиданной разрушительной силой! Они повергли мир в хаос, Земля изменилась до неузнаваемости. Целые страны исчезли с лица Земли, континенты рушились и разделялись на мелкие кусочки... Зло исчезло так же неожиданно, как и появилось.Тип издания: LicenseРазработчик: JoWooD Productions SoftwareЖанр: Strategy (Real-time), RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E25B26F79E7774603536E014416F7E66AAD84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

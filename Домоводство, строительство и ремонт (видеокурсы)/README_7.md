@@ -1,3 +1,117 @@
+###  Публикация: 1626245   (199845) от 13.04.2023
+
+Зоя Ти | Актуальные тенденции в дизайне интерьера (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+УЗНАЙ О ИНТЕРЬЕРНЫХ ТРЕНДАХ 23/24 ВСЁ, ЧЕРЕЗ ПРИЗМУ ПСИХОЛОГИИ И РЕАЛЬНОЙ ТРЕНД-АНАЛИТИКИ
+
+1. Как меняются предпочтения потребителей в РФ
+2. Что будет пользоваться спросом у платежеспособной аудитории(   Читать дальше...   )Жанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4F8932B091A06C1100F92A556515EC55BAD884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632596   (198578) от 10.05.2023
+
+Учебный центр AMS, Надежда Бейнер | Визуализация и дизайн интерьера в HOMESTYLER (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+HOMESTYLER - это онлайн-инструмент для дизайна интерьера, созданный как для профессионалов, так и для любителей.
+
+Почему стоит идти на полное обучение HOMESTYLER в AMS³
+1) Удобство(   Читать дальше...   )Производство: Учебный центр AMSЖанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 12:18:10Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C38BCA543CE6F593076EABFE14CEAA4407266DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632615   (198574) от 11.05.2023
+
+my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+При поиске архитекторов я сталкиваюсь с одинаковыми ошибками.
+Многие вещи при оформлении для меня стали элементарными и я делаю их уже на автомате.
+Поэтому я собрала для Вас все самое полезное и делюсь этим в своем МК.Жанр: Дизайн, архитектураЯзык озвучки: РусскийПродолжительность: 00:39:05Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7868F7B70D772E1111D9F16A21EE338C3D22F14B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633924   (198299) от 17.05.2023
+
+Хочу Хобби, Евгения Петрова | Основы ландшафтного дизайна (2020) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Данный курс идеально подойдет тем, кто хочет обучиться ландшафтному дизайну с нуля!
+
+За 2 месяца преподаватель проведет вас, буквально, за руку в мир ландшафтного дизайна, поможет изучить основы и научит секретам профессионалов. Вы не просто узнаете о том, что такое ландшафт и с чем его едят. А полностью разберетесь в современных строительных материалах от плитки (   Читать дальше...   )Производство: Хочу ХоббиЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 31:02:26Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041A23A651E9C0522F568E0D1D14C12F4999C5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633787   (198269) от 17.05.2023
 
 Максим Евдокимов | Курс по электромонтажу (2021) WEB-DL [RU]
@@ -6,7 +120,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -34,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -63,7 +177,7 @@ Archtutors, Андрей Кузьменко | Научитесь проекти�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -91,7 +205,7 @@ Runn.consulting, Николай Русанов | Умный дом как биз
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -120,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -149,7 +263,7 @@ Geometrium, Павел Герасимов | Стань дизайнером ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -175,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -204,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -233,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -262,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -291,7 +405,7 @@ SchoolHomesPro, Александр Кузнецов | Отопление, вод
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -320,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +460,7 @@ MasterClass.com, Gordon Ramsay | Гордон Рамзи учит кулинар
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -372,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -401,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -429,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -458,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -487,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -544,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,118 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC60416EE0BF7000F0E964CFF1E33A73260D76E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668905   (173144) от 14.10.2023
-
-Лидия Лиханская | 111 уроков Хоумстейджинга (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоумстейджинг (англ. Home Staging — «инсценировка дома») — подготовка недвижимости к продаже или аренде, с учетом психологических, эстетических и маркетинговых принципов.
-Звучит непонятно и суховато.
-Добавим цифр - отстейдженные квартиры для продажи или аренды:
-✅выше в цене на 5-20% аналогичных;(   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 25:06:55Реклама: Присутствуют наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A85C1E8E4F44E6244A3FD817B9489B38ACA380C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 321595   (173079) от 14.10.2023
-
-Игорь Пелинский | Все о выращивании клубники [2011] DVDRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вырастить на своем участке вкусные и диетические ягоды клубники - мечта каждого дачника, ведь в клубнике содержится большое количество витаминов и микроэлементов. Несмотря на то, что клубника, казалось бы, достаточно неприхотлива, но для ее успешного выращивания и получения высокого урожая и вкусной ягоды, вам необходимо овладеть некоторыми важными секретами. Как (   Читать дальше...   )Жанр: Обучающая видеопрограммаПродолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFE1166F1AAEDD8D09CEF774AF7F8D9113BD432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485543   (172717) от 16.10.2023
-
-Подборка | Реставрация мебели (2019-2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка курсов и материалов по реставрации мебели:
-CapitoneRoom | Обучите обивщика мягкой мебели с  до профессионального уровня за 2 недели дистанционно (2019)
-Оксана Демикова | Комплект из 7-ми занятий курса «Реставрация мебели» (2020)
-Оксана Демикова | Реставрация мебели (2021)(   Читать дальше...   )Жанр: Реставрация мебелиПродолжительность: 96:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BEBAFE1D18324A17DF1491868A5CC64C606AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670230   (172169) от 19.10.2023
-
-Виталий Злобин | Основы архитектурного проектирования в SketchUP (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Овладейте навыками проектирования и за три недели создайте эскизный проект современного загородного дома под руководством профессионального архитектора
-Главная задача курса — овладеть навыками проектирования и создания 3D-моделей в программе SketchUp
-Вы поработаете над эскизным проектом своего дома: с нуля создадите планировочные и конструктивные решения, определите (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 19:25:26Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181671C213DA764063277B9B4F4EF1919EFB0338
 ```
 
 https://mybot314.ru/tekegram_catalog/

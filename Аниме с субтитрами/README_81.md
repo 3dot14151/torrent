@@ -1,3 +1,107 @@
+###  Публикация: 1313985   (371749) от 26.09.2019
+
+Karakai Jouzu no Takagi-san 2 | Озорная Такаги [ТВ-2] [2019, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"И чего она докопалась до меня?” - вопрошает в который раз несчастный Нишиката, которому крайне повезло сидеть рядом с Такаги. Настолько повезло, что буквально ни дня не обходится без того, чтобы она его не подколола, не задела, не разыграла и не высмеяла. Причина такого поведения неизвестна, возможно, ей просто нравится издеваться над Нишикатой, ведь, несмотря (   Читать дальше...   )Производство: Shin-Ei AnimationЖанр: комедия, романтикаРежиссер: Akagi HiroakiПеревод: SovetRomantica; AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DD44DB58338766A7A266FC67626914C899C882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313988   (371738) от 26.09.2019
+
+Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? | Влюбишься ли ты в извращенку, если она милая? [2019, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды после уборки в клубе каллиграфии Кейки Кирю находит неподписанное письмо с признанием в любви от девушки и женские трусики рядом. В процессе расследования, кто же эта Золушка, потерявшая трусики, он обнаруживает, что все кандидатки те ещё извращенки и очень хотят включить в свои игры главного героя.Производство: Geek ToysЖанр: комедияРежиссер: Имадзаки ИцукиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 12 эп по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8644F96091D723FA076C069193E7864605494F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238450   (370135) от 15.10.2018
+
+Tsukumogami Kashimasu | We Rent Tsukumogami | Цукумогами напрокат [2018, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в период Эдо в районе Фукагава старого Эдо (ныне Токио). Так как местность нередко страдает от пожаров и наводнений, её обитатели предпочитают не покупать всякую домашнюю утварь (горшки, футоны, одежду), а брать напрокат, чтобы не жалко было бросить, если вдруг придётся срочно эвакуироваться. Сейдзи и Око — брат (младший) и сестра (старшая) (   Читать дальше...   )Производство: Студия Telecom Animation Film / テレコム・アニメーションフィルムЖанр: повседневность, комедия, мистикаРежиссер: Мурата МасахикоПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB6E84A298CA13B139A358AD097D795ECEE6E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312925   (369606) от 27.09.2019
+
+Granbelm | Гранбелм [2019, TV, 13 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тысячу лет назад магия исчезла из этого мира, и люди совсем позабыли, что это такое. Но однажды в полнолуние Мангецу Кохината, самая обычная школьница, встречает Щингецу Эрнесту Фуками с лунным именем, как у неё самой, и магическую куклу Арманокс. В этот момент колесо судьбы Мангецу приходит в движение...Производство: студия NexusЖанр: приключенияРежиссер: Ватанабэ МасахаруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Русские;Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFFD44A1AD52CDC787BC6B70169ECB8825E41CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328104   (368006) от 28.09.2019
 
 Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский лев [ТВ-1 и ТВ-2] [2016, TV, 23 + 22] BDRip 1080p raw
@@ -6,7 +110,7 @@ Sangatsu no Lion S1+S2 | March Comes in like a Lion S1+S2 | Мартовский
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dororo | Дороро [ТВ-2] [2019, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Fukumenkei Noise | Anonymous Noise | Не скрывая крик [2017, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Konbini Kareshi | Convenience Store Boy Friends | Парни из магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! | High School 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Dagashi Kashi | Магазинчик дешёвых сладостей [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Miru Tights | Созерцая колготки [2019, Web, 12 эп. + 1 SP] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Aragne no Mushikago | Aragne: Sign of Vermilion | Клетка с насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Toaru Majutsu no Index III | A Certain Magical Index III | Индекс волш
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Tengen Toppa Gurren Lagann / Heavenly Breakthrough Gurren Lagann / Гуррен-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Dance In The Vampire Bund | Танец на Вампирском берегу [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ Jouran: The Princess of Snow and Blood | Смута. Принцесса снег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? / 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ Toaru Kagaku no Accelerator / Некий научный Акселератор [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ Lord El-Melloi II-sei no Jikenbo: Rail Zeppelin Grace Note | Lord El-Melloi II's
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? II / Danmachi II / Мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Macross 7 Dynamite / Макросс 7 Динамит [1997,OVA,4] DVDRip Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Kingyou Chuuihou! / Goldfish Warning! / Осторожно! Золотая ры�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Tensei Kenja no Isekai Life: Daini no Shokugyou o Ete, Sekai Saikyou ni Narimash
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,111 +668,6 @@ Beelzebub-jou no Oki ni Mesu Mama. | As Miss Beelzebub Likes. | Как госп�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA1B807DAA30ECEF48CB0CC3D3F5EE2496CFC263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328619   (361025) от 01.10.2019
-
-Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 из 25] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родина наследного принца Джорди была разрушена завоевателем Мардалом. Чтобы сбежать от злых уловок Мардала, Джорди тайно вырастил верный слуга королевской семьи. Однажды Джорди обнаруживает легендарного гиганта Галиента в пограничной долине. Используя Галиента, он решает бороться с Мардалом и вернуть свою землю.Производство: Студия Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: Faddeich; Ingvar; JarlyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4519BC35E45E8D563E4C91C868D1701E4593F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312614   (360452) от 01.10.2019
-
-Kanata no Astra | Astra Lost in Space | Астра, затерянная в космосе [2019, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360452.jpg" />
-</div>
-
-
-###  Подробнее
-
-2061 год. Космические путешествия стали возможными и коммерчески выгодными, и теперь ученики средней школы Кэрда отправляются в космический лагерь на планете МакПа. Но вскоре после того как они прибывают на место, таинственная разумная световая сфера отправляет всю группу из девяти человек в глубины космоса, за 5012 световых лет от их родной планеты. Там школьники (   Читать дальше...   )Производство: студия Lerche / ラルケЖанр: приключения, комедияРежиссер: Андо МасаомиПеревод: Funimation; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин. (первая и последняя серии сдвоенные)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C8D2ED98783C25EE5E53A7EE7C1BC4C8DA27D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294626   (360444) от 01.10.2019
-
-Fruits Basket (2019) | Корзинка фруктов [ТВ-2] [2019, TV, 25] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
-Ремейк историиПроизводство: Студия TMS / トムス・エンタテインメントЖанр: романтикаРежиссер: Ибата ЁсихидэПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780A8A6827842960A82710E658C00B81BA33A27C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254577   (359457) от 06.11.2010
-
-Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворецких! [2010, TV, 12 серий + SP 6] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359457.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летний Акихару Хино рано потерял родителей, а когда приемная семья дяди стала его тяготить, поступил в академию Хакурэй-Рё, уникальный интернат, разделенный на две секции. Первая, «дзёку» – обычная частная школа для богатых девушек, а вторая, «дзику» - школа для слуг, где девушки учатся на горничных, а немногочисленные юноши овладевают профессией дворецкого. Будущие (   Читать дальше...   )Производство: Жанр: комедия, этти, романтика, школаЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ТВ (12 эп. + SP 6), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB7A80AC7DB8DB88C358E5A4643692526DE17FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

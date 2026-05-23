@@ -1,3 +1,81 @@
+###  Публикация: 1757654   (36157) от 25.11.2024
+
+ГдеПосылка v3.47 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+ГдеПосылка — это универсальный и удобный сервис для отслеживания почтовых отправлений. Достаточно знать лишь трекинг-номер, чтобы легко найти посылку как в России, так и в США, Германии, Украине, Китае или Казахстане.Тип издания: AdfreeРелиз состоялся: 25.11.2024Разработчик: PackageRadarПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C44B92921850CB1D7C7C1C8C9FE3F5BFD4849C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762497   (36136) от 25.11.2024
+
+Менеджер Паролей / SafeInCloud 2 v24.17.8 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке. SafeInCloud — это не просто хранитель паролей, но и 2FA-аутентификатор, генерирующий одноразовые коды для любого (   Читать дальше...   )Тип издания: Pro / Extra ModРелиз состоялся: 25.11.2024Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762958   (35850) от 28.11.2024
+
+Строительные расценки Pro v39.0 by Timozhai [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Если Вы строитель, или же собираетесь строить дом или заняться ремонтом, то Вам не обойтись без знаний цен на строительные работы. В этом Вам поможет приложение "Строительные расценки Pro". При помощи данного приложения Вы в мгновение ока сможете узнать цены на строительные работы, составить смету, и произвести строительные расчеты. При помощи раздела "Строительные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.11.2024Разработчик: Flash-GПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761870   (35849) от 28.11.2024
 
 Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
@@ -6,7 +84,7 @@ Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Torrent Pro - Torrent Download v8 (11.76.51) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ AdGuard Ad Blocker  Nightly Premium [No-Root] v4.7.156 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +189,7 @@ Sleep Cycle: Sleep Tracker v4.24.46 Premium Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +216,7 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +268,7 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +294,7 @@ tinyCam Monitor PRO v17.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +320,7 @@ OsmAnd+  Карты & GPS Офлайн v4.9.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Word Learn Languages v5.9 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Word Learn Languages v5.9 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +399,7 @@ Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +425,7 @@ Alight Motion v5.0.271.1002592 Premium Mod by MustHave [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +451,7 @@ Root Booster v4.0.9 Mod by Balatan [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +477,7 @@ HiPER Calc Pro v10.5.6 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Electrical Calculations Pro / Электрические расчеты v10.2.1 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +555,7 @@ YTDLnis 1.8.1.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +581,7 @@ AI ChatBot AI Friend Generator v4.0.0.0 Mod by serborkr [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +607,7 @@ Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +659,7 @@ WPS Office + PDF v18.14 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,88 +670,6 @@ WPS Office - очень полезное, офисное приложение д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761685   (34804) от 08.12.2024
-
-Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение, призванное помочь улучшить восприятие речи слабослышащим. В наличии возможность записи с встроенного микрофона, микрофона наушников или BT-микрофона. В наличии несколько предустановок эквалайзера и настройка предусиления. Обработанные звукозаписи можно сохранять в памяти устройства.Тип издания: PremiumРелиз состоялся: 07.12.2024Разработчик: Ronasoft MediaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616CD09CF7DB48238CDF72E7564A55939FFFBDF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764870   (34745) от 09.12.2024
-
-Яндекс Музыка, Книги, Подкасты PLUS 2024.12.1 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яндекс.Музыку можно слушать онлайн и без интернета. Десятки миллионов треков в одном приложении.
-🔑 Активирована подписка Plus, удалена реклама, музыка в высоком качестве, работают тексты песен, поддержка arm7 и arm64 устройств.Тип издания: ModРелиз состоялся: 04.12.2024Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C538E8E868E9E372EA4F92E43FA0912032C60351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764829   (34736) от 09.12.2024
-
-MiHome v9.10.700 Mod by Vevs [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая быстрая и качественная модификация MiHome.
-Управление и связь с устройствами.
-Подключение устройств к сети.
-Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 9.12.2024Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944C880B6EDE2402002A5C0E690022994BD2617B
 ```
 
 https://mybot314.ru/tekegram_catalog/

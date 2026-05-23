@@ -1,3 +1,81 @@
+###  Публикация: 1735588   (50532) от 09.07.2024
+
+Книга джунглей 2 / The Jungle Book 2 (2003) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение невероятной истории об удивительном мальчике, выросшем в джунглях. После того, как Маугли вернулся жить в настоящую человеческую семью, он обрел настоящую дружбу и любовь, но его прошлая жизнь в джунглях продолжает напоминать о себе. Малыш соскучился по своим друзьям, оставшимся в лесу. Друзья Маугли во главе с веселым мишкой Балу тоже очень скучают по (   Читать дальше...   )Производство: США, Австралия, Франция / Walt Disney Pictures, DisneyToon Studios, Walt Disney Animation Australia, Walt Disney Television AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейный, музыкаРежиссер: Стив ТренбертАктеры: Джон Гудман, Хейли Джоэл Осмент, Мэй Уитман, Коннор Фанк, Боб Джоулз, Тони Джей, Джон Рис-Дэвис, Джим Каммингс, Фил Коллинз, Джефф БеннеттПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9A26D9259EA287AFD4256B65278564F778AB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735833   (50488) от 10.07.2024
+
+Последний дракон / Dragonkeeper (2024) WEB-DL [H.264/1080p] [звук с TS]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Говорящие драконы когда-то жили в гармонии с людьми. Но теперь их род в опасности, и только одна отважная девочка может спасти магических существ. Ее ждет полное опасности путешествие через самые волшебные места древнего Китая.Производство: Испания, Китай / Atresmedia Cine, China Film AnimationЖанр: мультфильм, фэнтези, приключенияРежиссер: Ли Цзяньпин, Сальвадор СимоАктеры: Марио Гас, Лусия Перес, Нано Кастро, Карлос де Луна, Йос Гомес, Сесар Диас, Исабель Гауди, Микель Родригес Рос, Альваро Наварро, Хорхе Гарсия ИнсуяПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: Русский, Румынский, АнглийскийСубтитры: АнглийскиеПродолжительность: 01:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF4F2D056CA16C2B121C90CBDE5882643FF06F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735797   (50447) от 10.07.2024
+
+Большой фильм про поросенка / Piglet's Big Movie (2003) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Друзья Пятачка отправились в Стоакровый Лес собирать мед, а его оставили дома, сказав ему, что он еще маленький. Когда Пух с друзьями вернулся, выяснилось, что Пятачок исчез. друзья пытаются найти Пятачка, используя его альбом воспоминаний...Производство: США, Япония / Walt Disney PicturesЖанр: мультфильм, мюзикл, комедия, детектив, приключения, семейныйРежиссер: Фрэнсис ГлебасАктеры: Джон Фидлер, Джим Каммингс, Андрэ Стойка, Кэт Суси, Никита Хопкинс, Питер Каллен, Кен Сэнсом, Том УитлиПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D005F3E91791CB01EFAA67B12666BB3F8C64342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736149   (50412) от 11.07.2024
 
 Пушистый вояж / Gracie and Pedro: Pets to the Rescue (2024) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,86 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1677818C89413B676BC13E3850B8915E02D034D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977456   (48842) от 26.07.2024
-
-Яблочное Семя. Альфа / Appleseed Alpha (2014) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой солдат Дюнан и киборг Бриарей, пережив третью мировую войну, путешествуют по апокалиптическому Нью-Йорку, в поисках легендарного города Олимпа, будущего оплота человечества. Действие посвящено боевой биографии Дюнан и Бриарея до попадания в Олимп.Производство: Япония, США, Sola Digital Arts, Stage 6 Films, Lucent Pictures EntertainmentЖанр: Боевик, Приключения, ФантастикаРежиссер: Синдзи АрамакиАктеры: Люси Кристиан, Дэвид Матранга, Элизабет Банч, Вендел Кэлверт, Адам Гиббс, Крис Хатчинсон, Брина Паленсиа и др.Перевод: Многоголосый закадровый (профессиональный)Продолжительность: 01:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8420092B7C70D1F22E799E01C6B84A4FEA74CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739221   (48787) от 26.07.2024
-
-Вэлиант: Пернатый спецназ / Valiant (2005) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48787.jpg" />
-</div>
-
-
-###  Подробнее
-
-На фронтах Второй мировой сражаются все. В том числе и птицы из Королевского голубиного управления. Их работа опасна, но престижна. И юный голубь Вэлиант больше всего на свете хочет стать членом этой команды.
-
-Однажды Вэлианту везет — ему доверяют переправить секретный документ от французского сопротивления к британскому командованию. От скорости и предприимчивости (   Читать дальше...   )Производство: Великобритания, США / Walt Disney Pictures, Ealing Studios, Odyssey Entertainment, Take Film Partnerships, UK Film Council, Vanguard AnimationЖанр: мультфильм, комедия, приключения, семейный, военныйРежиссер: Гари ЧэпманАктеры: Юэн Макгрегор, Рики Джервэйс, Тим Карри, Джим Бродбент, Хью Лори, Джон Клиз, Джон Хёрт, Пип Торренс, Рик Майял, Оливия УильямсПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB91E47FE112291E9FED843ED0927F60AC538C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739222   (48778) от 26.07.2024
-
-Лило и Стич 2: Большая проблема Стича / Lilo & Stitch 2: Stitch Has a Glitch (2005) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стич помогает Лило пойти по стопам ее матери в подготовке к большому танцевальному конкурсу на острове. Жизнь кажется идеальной, пока Стич не попадает в затруднительное положение, и тогда все идет наперекосяк. И вот пришла пора Лило, Нани, Джамба и их всей большой семье последовать законам «Оханы» и прийти на помощь маленькому веселому другу.Производство: США, Австралия / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фантастика, драма, комедия, семейныйРежиссер: Майкл ЛаБаш, Энтони ЛеондисАктеры: Крис Сандерс, Дакота Фаннинг, Тиа Каррере, Дэвид Огден Стайерз, Кевин Макдональд, Кунева Моок, Джейсон Скотт Ли, Уильям Дж. Капарелла, Холлистон Коулмэн, Мэтт КорбойПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русскиеПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9557DB1F50A2A94A252788384847C72027D2D98A
 ```
 
 https://mybot314.ru/tekegram_catalog/

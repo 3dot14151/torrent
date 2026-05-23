@@ -1,3 +1,81 @@
+###  Публикация: 1353090   (1023716) от 29.03.2021
+
+AirDroid v4.2.6.6 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+AirDroid - быстрое, а главное бесплатное приложение, которое позволяет управлять Вашим Android устройством без проводов из Вашего браузера. С его помощью вы сможете передавать файлами между вашими устройствами с большой скоростью, используя при этом свою внутреннюю сеть wi-fi. Так же вы сможете не только передавать файлы а и полностью управлять своим смартфоном, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28.01.2021Разработчик: SAND STUDIOПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037DE77CEA7E8F0C2868B30AC48EB41EE90BD10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458756   (1023656) от 30.03.2021
+
+Jeejen 3.1.20 Mod by Martin H3 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Jeejen - отличный минималистичный лаунчер, с большим интерфейсом для удобства использования. Этот лаунчер отлично подойдет как для пожилых, так и для людей с проблемами со зрением.Тип издания: Оригинал (Эксклюзив) + ModРелиз состоялся: 08.12.2018Разработчик: JeejenПоддерживаемая ОС: Android 2.1+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8361C6B7CE154B6B66C84FD205BD7CBD469F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459002   (1023441) от 31.03.2021
+
+Jasi Patcher 4.11 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Jasi Patcher — патчер для приложений. Программа для установки патчей к различным приложениям и играм для Андроид. С помощью данной утилиты любой пользователь сможет избавиться от проблем с разнообразными лицензиями и оповещениями о пиратских копиях приложений. Все это делается при помощи широкого функционала возможностей утилиты. Простой пользовательский интерфейс (   Читать дальше...   )Тип издания: ЭксклюзивРелиз состоялся: 02.06.2020Разработчик: Jasi2169Поддерживаемая ОС: Android 4.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DF0C42AC927F71F33C8E2097C81325EF184120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458972   (1023439) от 31.03.2021
 
 Tiny Scan: PDF Document Scanner 4.2.10 [Ru/En]
@@ -6,7 +84,7 @@ Tiny Scan: PDF Document Scanner 4.2.10 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ SwiftScan (Ранее Scanbot) 7.9.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Hi-Q MP3 Voice Recorder 2.9.0 Mod by Balatan, Rainontheradio, vars0ug [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Spotify Music 8.6.12.986 Mod by Balatan, Sentex, jwwwg [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Perfect365 One-Tap Makeover v8.57.17 [Ru/Multi] - создание виртуа�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Color Grab (Color Detection) 3.9.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Alarm Clock Pro 2.9.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Vimage 3.1.2.2 Mod by derrin, REALY [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +345,7 @@ aCalendar - Android Calendar 2.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +371,7 @@ MiXplorer 6.54.2-Silver Mod by VERGIL777, Mr. Ricatto [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Partitions Backup & Restore 2.3.0 Mod by mrfrost475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалите
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +449,7 @@ English Grammar in Use v1.11.40 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +478,7 @@ Dog Scanner v10.2.10-G [Ru] – Идентификация породы соба
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Cat Scanner v10.2.10-G [Ru] – Идентификация породы коше
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +558,7 @@ Talkao Translate - Перевести голос и словарь v314.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +587,7 @@ Investing v6.6.5 [Ru] - биржа, инвестиции, акции, финан
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +615,7 @@ Any Balance: баланс на экране v4.0.827 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +642,7 @@ REVER - Motorcycle GPS, Route Planner & Discover v5.0.5 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +668,7 @@ Perfectly Clear v4.3.7 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -602,84 +680,6 @@ Perfectly Clear позволяет создать идеальную фотог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEECEA41C8D5FCF721F4B6AB6341FB4436772940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409679   (1021583) от 11.04.2021
-
-Рецепты для детей. Детское меню. Питание и прикорм v5.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021583.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Рецепты для детей. Детское меню. Питание и прикорм» - это большой каталог самых разнообразных блюд и напитков для ваших маленьких сокровищ! Теперь все рецепты для детей от 6 месяцев до 3 лет и старше собраны в одном приложении! Выберите случайный рецепт или воспользуйтесь удобным поиском и начинайте готовить. Ваш кроха обязательно оценит!Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 07.04.2020Разработчик: Maksim E.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41CC4479883CD59F42763459946D2159ED6A755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461931   (1021575) от 11.04.2021
-
-Lapse It • Time Lapse • Pro v4.70 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемка и создание Time-Lapse видео. Снимайте удивительные time-lapse видео с помощью вашего Android-устройства.Тип издания: Пиратка (Paid)Релиз состоялся: 6 ноября 2014 г.Разработчик: Interactive UniverseПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC83B96E9E4613F9042CA6354D0258E3E1E3EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461836   (1021556) от 11.04.2021
-
-Scan & Translate+ Text Grabber v4.3.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите понимать, что написано на иностранных вывесках и знаках, которые встречаются при путешествиях за границу? Возникали ли у вас трудности с пониманием важного документа, написанного на иностранном языке? Нужен перевод во время совершения покупок, поиска или чтения любых текстов? Тогда это приложение для вас. Scan & Translate - это ваш персональный переводчик (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 5 апреля 2021 г.Разработчик: AISBERG LLCПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B298CEB921B428179EF6B5474B29AE328744A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

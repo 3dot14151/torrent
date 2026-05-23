@@ -1,3 +1,35 @@
+###  Публикация: 567702   (377397) от 11.11.2012
+
+Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра Deadlight, — это альтернативный 1986-й, когда мир столкнулся с новой апокалиптической угрозой — загадочной вирусной инфекцией, обращающей людей в «тени», или попросту в зомби. При этом, в отличие от подавляющего большинства подобных проектов, Deadlight, вы не поверите, — пазл-платформер. То есть придётся не столько стрелять, сколько думать.
+
+«1986-й выбран не случайно, — поясняет исполнительный директор студии Рауль Рубио (Raul Rubio). — Это время запомнилось активным освоением космоса и выходом таких фильмов, как Rambo: First Blood и Day of the Dead. Смешайте всё это — и получите уникальную визуальную стилистику».
+
+Перемещаясь по полумёртвому северо-западному побережью Британской Колумбии (Канада) и США, Рэндэлл Уэйн будет искать оружие и других выживших. «Вам не нужно биться за правду или спасать мир, — продолжает г-н Рубио. — Это история Рэндэлла, его проблем, чувств и желаний». Сценарий написан испанским драматургом Антонио Роджано (Antonio Rojano), который вдохновлялся произведениями Стивена Кинга, Джеймса Балларда и Кормака Маккарти.
+
+«Вы поймёте, что в этом мире даже простое действие вроде перехода улицы становится невероятно сложным и опасным», — продолжают девелоперы. Обещана достоверная физическая модель, на которой и будут базироваться головоломки. Созданием «альтернативного мира паранойи и хаоса» занимается команда из 22 человек, прежде работавших в таких компаниях, как Blizzard, Pyro Studios, Sony..(   Читать дальше...   )Тип издания: RepackРазработчик: Tequila WorksЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944679   (374131) от 24.10.2015
 
 Magnetic: Cage Closed (2015) [Ru/Multi] (1.09-p2/dlc) Repack R.G. Механики [Collector's Edition]
@@ -6,7 +38,7 @@ Magnetic: Cage Closed (2015) [Ru/Multi] (1.09-p2/dlc) Repack R.G. Механик
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +64,7 @@ Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Берм�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_373304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +91,7 @@ Farm Together (2018) [Ru/Multi] (1.0/dlc) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +117,7 @@ WWE 2K18 (2017) [Multi] (1.0/dlc) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +143,7 @@ AIRHEART - Tales of broken Wings (2018) [Multi] (1.09) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +169,7 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +195,7 @@ Alien Breed Trilogy (2010) [Ru/En] (12.10.2015) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +221,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +247,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +273,7 @@ SEUM: Speedrunners from Hell (2016) [Ru/Multi] (3266/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +299,7 @@ Velocity Stream (2015) [En] (1.0) License POSTMORTEM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +325,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.318) License EMPRESS [Premium Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +351,7 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +377,7 @@ Batman: Arkham Origins Blackgate (2014) [Ru/Multi] (F1-RLS-33278) SteamRip R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +403,7 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +429,7 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +455,7 @@ Streets of Rage 4 / Bare Knuckle 4 (2020) [Ru/Multi] (4g-r10450) Repack R.G. М�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +481,7 @@ Omensight (2018) [Ru/Multi] (1.04) License CODEX [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +507,7 @@ TEKKEN 7 (2017) [Ru/En] (3.30/dlc) Repack xatab [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +533,7 @@ Minoria (2019) [Ru/Multi] (1.05) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +559,7 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +587,7 @@ Mechanic Escape (2014) [En] (1.0/12.11.2016) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +613,7 @@ Creatures: Exodus / Creatures: Покорение космоса (2004) [En] (2.
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +639,7 @@ Omensight (2018) [Ru/Multi] (1.04) Repack R.G. Catalyst [Definitive Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -633,7 +665,7 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,32 +676,6 @@ Abyss Odyssey (2014) [Ru/En] (1.0.8767.0) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D87543A0DC0B842AA1D234117AE13C40DD8BA79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953136   (350549) от 03.11.2015
-
-Sonic Lost World (2015) [En/Multi] (2.0.0) License CODEX
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение легендарной серии, главным героем которой является ежик по имени Соник. Sonic: Lost World условно можно разбить на две разные игры. Первая - классическая двухмерная, когда герой бегает по красочным локациям, берет дерзкий разгон, в конце концов расшибается о какого-нибудь противника и теряет все кольца. Вторая подразумевает больше неприятного: еж бежит (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Sonic TeamЖанр: Arcade (Platform) / 3DЯзык озвучки: -/-Язык субтитров: Английский и другиеЯзык интерфейса: Английский и другие (русского языка нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27E82CA3FF256C7BD6AA195AEE60A0B72A4655B
 ```
 
 https://mybot314.ru/tekegram_catalog/

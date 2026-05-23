@@ -1,3 +1,55 @@
+###  Публикация: 1721340   (16318) от 30.05.2025
+
+Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей [ТВ-1] [2024, TV, 24 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лай Торден, воин и лидер гильдии, вместе со своей командой отправился в подземелье, чтобы спасти свою сестру Фалин от красного дракона. Но что-то пошло не так, и герои остались без припасов. И тогда Лай предложил нарушить табу, и чтобы не умереть от голода, есть местных монстров. Без особого восторга от такой перспективы команда согласилась, ведь иначе они не успеют (   Читать дальше...   )Производство: студия Trigger / トリガーЖанр: комедия, драма, фэнтезиРежиссер: Миядзима ЁсихироПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5554BF67F213742D911832C90CE53FBBEE448ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349610   (16284) от 30.05.2025
+
+Garo: Honoo no Kokuin / Garo the Animation / Гаро: Печать пламени [2014, TV, 24 эп. + SP] BDRip 1080p 10bit Raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Покой королевства Валианте издавна хранили светлые витязи, волхвы и ведьмы, боровшиеся с нечистью путем развития тайных сил. Однажды волхв Мендоса поддался искушению и сам стал монстром. Изгоняя призванных им же демонов, отступник вошел в доверие к королю Фернандо и начал охоту на бывших товарищей. Используя болезнь монарха, Мендоса обвинил в «порче» и отправил на (   Читать дальше...   )Производство: MAPPAЖанр: приключения, комедия, фэнтезиРежиссер: Хаяси ЮйтироПеревод: Shift (TV) | FRT Sora & KaijuKeizer (TV + OVA)Субтитры: РусскиеЯзык: ЯпонскийПродолжительность: 24 серии + 1 OVA по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC84F2189034279750E15A94D9F0E9B966ACD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721358   (16248) от 30.05.2025
 
 Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый брак [ТВ-1] [2023, TV, 12 эп. + OVA] BDRip 1080p raw
@@ -6,7 +58,7 @@ Watashi no Shiawase na Kekkon | My Happy Marriage | Мой счастливый 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Загадочные 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Hamefura. Movie | Bakarina. Movie | Gekijouban Otome Game no Hametsu Flag shika 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Gekijouban Overlord: Sei Oukoku Hen | Overlord: The Sacred Kingdom | Повел�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | The 100 Girlfrien
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Megami no Cafe Terrace (2024) | The Cafe Terrace and Its Goddesses (2024) | Бо
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Failure Frame | Hazure Waku no Joutai Ijou Skill de Saikyou ni Natta Ore ga Sube
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Hataraku Maou-sama!! | The Devil Is a Part-Timer! Season 2 | Повелител�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Hokkyoku Hyakkaten no Concierge-san | The Concierge at Hokkyoku Department Store
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Katsute Mahou Shoujo to Aku wa Tekitai Shite Ita. | The Magical Girl and the Evi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +504,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +583,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +609,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +635,7 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -622,59 +674,6 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E223A7D01B4A0060AB25520524CA3AAE310DF2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790231   (12819) от 02.07.2025
-
-Lazarus | Лазарь [2025, TV, 13 эп.] WEBRip 1080 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12819.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 2052 год — эпоха беспрецедентного мира и процветания во всем мире. Причина этого: человечество освободилось от болезней и боли. Лауреат Нобелевской премии нейробиолог доктор Скиннер разработал чудодейственное лекарство от всех болезней без видимых недостатков под названием Хапуна. Хапуна вскоре становится повсеместной... и необходимой. Однако вскоре после (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Ватанабэ СинъитироПеревод: MedusaSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A912096130EB8D42BB170D308523C2067133CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754918   (11800) от 11.07.2025
-
-Inazuma Eleven: Reloaded – Soccer no Henkaku | Inazuma Eleven: Reloaded – Reformation of Soccer | Одиннадцать Молний: Перезагрузка – Реформация Футбола [2018, Movie] BDRip 1080p 12-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Победив Зевса и став чемпионами «Футбольный Фронт», команда «Раймон Одиннадцать» возвращается в футбольный клуб. В отличие от предыдущего маршрута, в клуб не вторгаются инопланетяне. Вместо этого все поздравляют членов команды с их замечательными достижениями.
-Затем Кидо Юто и Гоенджи Шуя предлагают покорить мир. Заходит тренер Хибики Сейго и предлагает провести (   Читать дальше...   )Производство: OLMЖанр: спортРежиссер: Камакура ЮмиЯзык озвучки: ЯпонскийСубтитры: Английский (Unlatered by RyRo, Edited RyRo subs by Puto), Русский (koctik-2017)Продолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84B51509407CDA0BC10BF1C9CC5AF242D4363D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

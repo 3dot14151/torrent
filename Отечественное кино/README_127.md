@@ -1,3 +1,107 @@
+###  Публикация: 928476   (521632) от 17.08.2015
+
+Заяц над бездной (2006) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Заяц над бездной» по сценарию Дмитрия Иванова Тигран Кеосаян по заказу компании «Централ Партнершип» снимал в Молдове. Съемки начались в мае 2005 года и продолжались около двух месяцев на улочках старого Кишинева и в Вадул-луй-Водэ. В фантасмагории о прилете Брежнева в республику в 70-х годах прошлого века, о его невероятных приключениях здесь и свадьбе с (   Читать дальше...   )Производство: Россия / Студия "2В"Жанр: КомедияРежиссер: Тигран КеосаянАктеры: Богдан Ступка, Владимир Ильин, Юрий Стоянов, Михаил Ефремов, Сергей Газаров, Алена Хмельницкая, Елена Сафонова, Сержиу Финитти, Виктор Друми, Михай КурагэуПродолжительность: 01:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC5B5257A2E889D0405738E56C9F88C5842DCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928776   (521624) от 17.08.2015
+
+Устрицы из Лозанны (1992) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создав для себя и своих друзей фирму, Роман Лебедичкин набрал кредиты и… обанкротился. Дело сделали вместе, а сел он один. Отсидев часть положенного срока в тюрьме, откуда он имел возможность руководить делами фирмы, Лебедичкин вернулся в родные места, где его не только не ждали, но и сочли возвращение явно преждевременным…Производство: Россия / Студия АкцияЖанр: Боевик, КомедияРежиссер: Владимир ШамшуринАктеры: Александр Панкратов-Черный, Вера Глаголева, Владимир Ильин, Сергей Степанченко, Олег Шкловский, Лариса Удовиченко, Ирина Розанова, Александр ИльинПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E98BB3D2BE9D073FDAEBAF089ACF7D926ACB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928507   (521552) от 17.08.2015
+
+Заяц над бездной (2006) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Заяц над бездной» по сценарию Дмитрия Иванова Тигран Кеосаян по заказу компании «Централ Партнершип» снимал в Молдове. Съемки начались в мае 2005 года и продолжались около двух месяцев на улочках старого Кишинева и в Вадул-луй-Водэ. В фантасмагории о прилете Брежнева в республику в 70-х годах прошлого века, о его невероятных приключениях здесь и свадьбе с (   Читать дальше...   )Производство: Россия / Студия "2В"Жанр: КомедияРежиссер: Тигран КеосаянАктеры: Богдан Ступка, Владимир Ильин, Юрий Стоянов, Михаил Ефремов, Сергей Газаров, Алена Хмельницкая, Елена Сафонова, Сержиу Финитти, Виктор Друми, Михай КурагэуСубтитры: нетПродолжительность: 01:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D179801FA5E9A62EA344C05E935310288F0647DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928751   (521549) от 17.08.2015
+
+Устрицы из Лозанны (1992) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создав для себя и своих друзей фирму, Роман Лебедичкин набрал кредиты и… обанкротился. Дело сделали вместе, а сел он один. Отсидев часть положенного срока в тюрьме, откуда он имел возможность руководить делами фирмы, Лебедичкин вернулся в родные места, где его не только не ждали, но и сочли возвращение явно преждевременным…Производство: Россия / Студия АкцияЖанр: Боевик, КомедияРежиссер: Владимир ШамшуринАктеры: Александр Панкратов-Черный, Вера Глаголева, Владимир Ильин, Сергей Степанченко, Олег Шкловский, Лариса Удовиченко, Ирина Розанова, Александр ИльинСубтитры: нетПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8993C46F8CB658A9E72BA32824B27E3DE0720DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928640   (521548) от 17.08.2015
 
 Мой грех (2010) HDTVRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,111 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A73B5DA0F7388B9FDEFB6CB67BC294A9A083187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241686   (518116) от 19.08.2018
-
-Для всех я умерла (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настя Тарасова учится в одном из московских вузов, живёт в обычном общежитии. Она недовольна собой и своей жизнью. Однажды ночью Настя находит загадочный сайт "Нет человека-нет проблем" и заказывает свою смерть.Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Настя АнтоноваАктеры: Марина Калецкая, Яна Енжаева, Игорь Титов, Елена Нестерова, Валентин Самохин, Алексей ДмитриевСубтитры: ОтсутствуютПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E07DC4D46B59F51A3A108AF190BAC8DFF588325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929678   (518097) от 20.08.2015
-
-Батальонъ (2015) BDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна 1917-го года. Февральская революция изменила жизнь России и ход Великой войны. Государь уже отрёкся от престола. В окопах, где противостояние с немцами длится уже не один год, вовсю ведут свою пропаганду большевики. Они призывают к миру с неприятелем. Российское офицерство фактически ничего не может решить без одобрения так называемых солдатских комитетов. (   Читать дальше...   )Производство: Россия / Корнер Ворк, Art Pictures StudioЖанр: драма, военный, историяРежиссер: Дмитрий МесхиевАктеры: Мария Аронова, Мария Кожевникова, Ирина Рахманова, Марат Башаров, Янина Малинчик, Евгений Дятлов, Яков Шамшин, Алёна Кучкова, Валерия Шкирандо, Николай АузинПеревод: Не требуется (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0AC9B79EA06EAE2F0497AC5C5FABD495839CDC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241497   (517898) от 19.08.2018
-
-Гоголь. Вий (2018) Blu-ray [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писарь из Санкт-Петербурга Николай Гоголь бросает вызов загадочному тёмному Всаднику, который жестоко расправляется с девушками в окрестностях села Диканька. Собрав команду из местного полицейского, пьяницы-доктора, суеверного кузнеца и странствующего философа-экзорциста, Гоголь пытается заманить злодея в ловушку, но на его пути встает самое жуткое порождение нечистой (   Читать дальше...   )Производство: Россия / Продюсерская компания «Среда»Жанр: Детектив, Приключения, Драма, Ужасы, ТриллерРежиссер: Егор БарановАктеры: Александр Петров, Евгений Стычкин, Таисия Вилкова, Артем Ткаченко, Сергей Бадюк, Ян Цапник, Алексей Вертков, Марта Тимофеева, Юлия Франц, Ксения РазинаПеревод: Не требуется (Лицензия BD RUS)Субтитры: АнглийскиеПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B398079DC65F2D89F8C19CA5CC1277F4DE9BD1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929829   (517252) от 21.08.2015
-
-Братья Ч (2014) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517252.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета фильма — события одного летнего дня из жизни семьи Чеховых на даче в середине 80-х годов 19 века. 26-летний Антон самоотверженно, с трудом содержит большую и неблагополучную семью: разорившегося отца, болезненную мать, сестру, старших и младших братьев.
-С утра до вечера он занят поденной литературной работой — пишет короткие комические рассказы в (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Михаил УгаровАктеры: Егор Корешков, Артем Григорьев, Александр Молочников, Александра Ребенок, Яна Иртеньева, Сергей Греков, Роман Синицын, Татьяна Чепелевич.Продолжительность: 01:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B618018BFFD946CA4C0C3138224C2CBA3C863D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1707471   (62805) от 16.03.2024
+
+Udemy, Jacob Zirkle | Blender VFX Course: From Beginner To Pro! (2024) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе я хотел сосредоточиться на использовании Blender как инструмента для создания 3D-визуальных эффектов, чтобы мы могли создавать захватывающие миры и выводить их на большой экран.
+Мы начнем с изучения всех инструментов и основ Blender, затем мы погрузимся в захватывающий мир отслеживания камеры, где вы сможете отслеживать любые кадры, которые захотите, (   Читать дальше...   )Производство: UdemyЖанр: VFXЯзык озвучки: АнглийскийПродолжительность: 04:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A10EC219F7B3EAF1D0C327BB83C6BE4A12E2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707668   (62679) от 17.03.2024
+
+Udemy, 3D Tudor | Blender 4 Geometry Nodes for Beginners (2024) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на "Blender 4 Geometry Nodes for Beginners’, уникально структурированный курс, посвященный геометрическим узлам. Этот курс - идеальная отправная точка для тех, кто хочет погрузиться в мир 3D-моделирования и возможностей Blender 4!
+Геометрические узлы в Blender 4 меняют правила игры, предоставляя интерфейс на основе узлов для процедурного создания (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, Geometry NodesЯзык озвучки: АнглийскийПродолжительность: 04:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B889B5E42FE8DAC2BC8DD4A2FDCEF2FBC53766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708791   (62161) от 22.03.2024
+
+CG Cookie, Paul Caggegi | MODIFY: A complete guide on Blender's modifiers (2023) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Модификаторы Blender - это фундаментальная и мощная функция, которая составляет основу его недеструктивного моделирования и анимации. Эти универсальные инструменты позволяют 3D-художникам и дизайнерам гибко и динамично манипулировать объектами, сетками и анимацией без постоянного изменения базовой геометрии или анимационных данных.Производство: CG CookieЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 03:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85D7BB74066E676BAAB2813E0E1C3CFC89F2EA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709288   (61976) от 24.03.2024
 
 Ольга Захарова | Art дженерейшн (2024) WEB-DL [AD] [RU]
@@ -6,7 +86,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +113,7 @@ Creativo, Андрей Баталов | Инфографика для марке
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +142,7 @@ The Gnomon Workshop, Paul Ozzimo | Designing Sci-Fi Weapons for Film (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +169,7 @@ Udemy, Bharat Sharma | Old Stylized Character in Blender (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +195,7 @@ CG Fast Track | Blender Fundamentals Vol. 1-3 - Modeling, UVs, Texturing and Sha
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +224,7 @@ Udemy, Nikolay Naydenov | Arm and hand anatomy exercises course (2024) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -202,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -231,7 +311,7 @@ Videosmile, Михаил Бычков | Супер After Effects (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -260,7 +340,7 @@ Canopy Games, Erindale Woodford | Advanced Geometry Nodes for Blender 3.3+ (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -286,7 +366,7 @@ Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -312,7 +392,7 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -339,7 +419,7 @@ CG Masters, Chris Plush | 3D Cars: Inside and Out in Blender [Chapters 1-37] (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -366,7 +446,7 @@ GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -395,7 +475,7 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +502,7 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +530,7 @@ Udemy, 3D Tudor | Blender Basics Geometry Node Brick Walls Workshop (2024) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +557,7 @@ DoubleJump Academy, Post Processed | Unreal Engine Complete Automotive Mastercla
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +584,7 @@ fxphd, Liam Whitehouse | Automotive Cinematography in Unreal Engine, Part 1 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +610,7 @@ Udemy, Nick Stanchev | Unreal Engine 5 - The Complete Automotive Cinematic Cours
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +636,7 @@ Udemy, 3D Tudor | Blender Geometry Node Fire Animation (2024) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +663,7 @@ Udemy, FastTrack Tutorials, Emiel Sleegers | Creating Advanced Trim Sheet Textur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +689,7 @@ LiveClasses, Константин Тимофеев | Основы моделир
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,87 +701,6 @@ LiveClasses, Константин Тимофеев | Основы моделир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48EDF26CF9A9E91D67C55EA69F077FD7011801D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623994   (51249) от 03.07.2024
-
-CG Boost, Martin Klekner | Master 3D Environments in Blender (2022) WEB-DL [RU]
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите создавать крупномасштабные 3D-пейзажи в Blender, но не знаете как?
-Все, что вам нужно узнать, в одном месте
-В этом курсе вы изучите все важные рабочие процессы для создания ландшафта в Blender без использования каких-либо платных дополнений или ресурсов.
-Вы узнаете, как создавать горы, океаны, леса, пустыни, облака и погодные эффекты. Не нужно искать онлайн-видеоролики, (   Читать дальше...   )Производство: CG BoostЖанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 12:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C3588AE7A0BE482E38721ECDDE14F819103F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734842   (51023) от 05.07.2024
-
-The Gnomon Workshop, Thomas Butters | Creating a Hero Weapon for Games (2024) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь с головой в процесс создания некстген оружия, готового для игр. Следите за тем, как Томас Баттерс, ведущий художник по оружию и реквизиту в Facepunch Studios, делится своими знаниями, рабочим процессом и советами по созданию высококачественных художественных работ, начиная с самого начального этапа сбора референсов и заканчивая созданием красивых снимков (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 06:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1895E9428382247D04CB6388F7F0542F6FC498E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740818   (48014) от 03.08.2024
-
-YanSculpts | Master Sculpting Heads - 3D Blender Course (V1.3) (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скульпт может быть сложным занятием, но в то же время это один из самых приятных навыков, которым можно овладеть. Это удивительный навык, и с помощью этого курса вы сможете начать осваивать скульпт головы в Blender, как мужской, так и женской!Жанр: 3D моделирование, СкульптингЯзык озвучки: АнглийскийПродолжительность: 23:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BF2036BF1604F9CF70228921ED2B931006A9B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

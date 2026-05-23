@@ -6,7 +6,7 @@ Sign of the Wolf - Sign of the Wolf (2025) [MP3|320 Kbps] <Hard Rock>
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 

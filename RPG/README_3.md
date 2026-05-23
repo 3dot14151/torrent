@@ -1,3 +1,81 @@
+###  Публикация: 1843942   (1049664) от 23.12.2025
+
+Lost in Random: The Eternal Die (2025) [Ru/Multi] (build 85239/dlc) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Lost in Random: The Eternal Die объединила динамичный экшен в реальном времени, тактические бои и механику игры в кости. Станьте главной фигурой истории королевы Александры, некогда великой правительницы Случая, которая отправляется на поиски мести и искупления. Вооружитесь арсеналом из четырех видов оружия, откройте мощные способности, основанные на картах, используйте (   Читать дальше...   )Тип издания: RepackРазработчик: Stormteller GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E05F860DC1C06B3555A9560CC2C2E83C6BBE1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843662   (1049563) от 21.12.2025
+
+Realmz (1999) [En] (7.1.2) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Realmz - это фэнтезийная приключенческая ролевая видеоигра, впервые разработанная и изданная компанией Fantasoft в 1994 году для Apple Macintosh в качестве условно-бесплатной игры. В 1999 году Fantasoft выпустила версию, совместимую с Microsoft Windows.Тип издания: LicenseРазработчик: FantasoftЖанр: Приключение, Ролевые игрыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BF2F93A11D50E7356E4CE72A7D3A84538A3F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843234   (1049094) от 19.12.2025
+
+Chaos Galaxy II (2) (2022) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Chaos Galaxy 2 – это экономическая, политическая и военная стратегия, в которой игроку предстоит командовать силами целой планеты. Народ должен жить не только в достатке, но еще и в мире, чего очень сложно достигнуть на фоне текущей войны. Народы сцепились между собой, желая отхватить себе во владения как можно больше территорий, некоторые из которых станут просто (   Читать дальше...   )Тип издания: LicenseРазработчик: Han ZhiyuЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096FE68875A895CFC251E85F00A53BD667519F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842921   (1049060) от 17.12.2025
 
 WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [Deluxe Edition]
@@ -6,7 +84,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179951/dlc) Repack HardwareMining [D
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Three Kingdom: The Journey (2022) [Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Anima Gate of Memories: I&II Remaster (2025) [Multi] (20722096) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Elder Scrolls IV (4): Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack HardwareMining 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Drova - Forsaken Kin (2024) [Multi] (1.3.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Monster Hunter Stories 2: Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Fit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (12101/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.96) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Shin Megami Tensei III Nocturne HD Remaster (2021) [Multi] (20657000/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Eschalon: Book (2007-2014) [Ru] (1.06/1.05/1.021/dlc) Repack Nelex [Трилог
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Shana priestess of Tona (2025) [Ru/Multi] (1.0.0) Repack Let'sРlay [Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Quartet (2025) [En] (1.2.20251019.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Shadows of Doubt (2024) [Ru/Multi] (41.04) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Two Worlds 2 (2010) [Ru/En] (2.0.6/dlc) License GOG [Epic Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +604,7 @@ One Piece Odyssey (2023) [Ru/Multi] (01.00/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Demons Roots (2023) [Multi] (1.01/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack DjDI
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF34AC32C50805A993F0131D0C88127C015AC1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606959   (1044179) от 24.01.2023
-
-Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драконы... за ними охотились, их убивали, но настал час расплаты. Освободись от оков человеческого тела и вознесись в небо в этом легендарном ролевом приключении, чтобы испытать свою смекалку и сразиться с тысячами противников. Расправь крылья, испепели врагов - стань драконом! Divinity II: Developer’s Cut включает в себя последнее издание Divinity II: более 100 (   Читать дальше...   )Тип издания: LicenseРазработчик: Larian StudiosЖанр: Ролевая игра, От третьего лица, ФэнтeзиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D96A43195C51ED679CD899C31EE29F88CC2AEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508488   (1044102) от 25.01.2023
-
-Hero Siege (2014) [Ru/Multi] (5.6.0.0/dlc) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hero Siege - это игра в жанре Hack 'n' Slash с элементами Roguelike и ролевых игр. Уничтожайте полчища монстров, взращивайте свое древо умений, подыскивайте снаряжение получше и исследуйте до 7 актов, наслаждаясь прекрасной пиксельной графикой.Тип издания: LicenseРазработчик: Elias Viglione, Jussi KukkonenЖанр: Action, Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7089CE68E0E6FFA84F9CD818514E2991D70611BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508755   (1043979) от 26.01.2023
-
-Blue Reflection: Second Light (2021) [Multi] (1.02/dlc) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую игру серии BLUE REFLECTION - вас ждет история обычных девушек о дружбе и поиске себя с великолепными полупрозрачными иллюстрациями Мэру Кисиды! Три девочки очутились в плывущей по волнам школе. Вместе с другими девочками главная героиня осваивается в странной дрейфующей школе и ищет подсказки, которые помогут им вернуться в родной мир.Тип издания: LicenseРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: RPGЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552CF8FA3C08F00AF4286A06C7EB500E1022EF3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

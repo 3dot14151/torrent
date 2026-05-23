@@ -1,3 +1,81 @@
+###  Публикация: 1751274   (42537) от 24.09.2024
+
+Майк Викинг | Hygge (Хюгге). Секрет датского счастья (2019) [MP3, Иван Калинин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Рейтинге стран мира по уровню счастья ООН датчане регулярно занимают первое место. Но как им удается радоваться жизни, когда за окном скверная погода, день так короток, что его и не заметишь, а на работе нескончаемый аврал? Для этого у датчан имеется собственная жизненная философия, которая укладывается в несколько немудреных правил, позволяющих создать атмосферу (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 03:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AB139AE2BCACE7390658F367CBED68166C037B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751350   (42534) от 24.09.2024
+
+Никита Киров | Волков (Книга 8). Волк. Лихие 90-е (2024) [MP3, Илья Кочетков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+После несчастного случая я снова оказался в 1997 году, в то лето, когда потерял родных и друзей. Но в этот раз у меня есть шанс исправить всё. Цены считают в миллионах, деньги есть только у коммерсантов и бандитов, а народ с опаской ждёт, чем ещё удивят лихие 90-е. Ну а я отберу у этой эпохи всё, что она у меня забрала. Отберу с процентами, которые она должна.Жанр: Боевики, Криминальные боевикиИздательство: ЛитРес: чтецПродолжительность: 09:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20DAF86087A42CE4020AAF499B4E7F4C7831B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751788   (42186) от 27.09.2024
+
+Глеб Носовский, Анатолий Фоменко | Библейская Русь (Книга 6). Новая Хронология (2009) [MP3, Саша Полтавский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В настоящей книге мы опираемся на новую хронологию, установленную на основе математических методов и эмпирико-статистических результатов, изложенных в ХРОН1-ХРОН3, а также в ХРОН6,гл.19. Основные хронологические сдвиги, обнаруженные в "древней" и средневековой истории, предъявлены на глобальной хронологической карте - ГХК, созданной А.Т.Фоменко в 1975-1979 (   Читать дальше...   )Жанр: История, новая хронологияИздательство: Аудиокнига своими рукамиПродолжительность: 49:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182043DBDD5BF791AE75CADC6EF2E81D55D12ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752216   (41991) от 29.09.2024
 
 Александр Чижевский | Земное эхо солнечных бурь (2013) [MP3, Светлана Репина]
@@ -6,7 +84,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,86 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C171831B4338CB419EFBDEB2347EEAC598C5F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763005   (35735) от 29.11.2024
-
-Лууле Виилма | Прощаю себе (Книга 1). Душевный свет (2011) [MP3, Елена Калабина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор серии книг, специалист с многолетним опытом в области медицинских и духовных практик, рассказывает о разработанном ею учении. Серия книг адресована тем людям, кто пытается понять, что для них необходимо, а что нет. Научившись общаться со стрессами, Вы научитесь понимать, что есть Человек. Вы обнаружите, что Человек с большой буквы не из области бесплодных мечтаний. (   Читать дальше...   )Жанр: Эзотерика, парапсихологияИздательство: АудиокнигаПродолжительность: 09:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBDD73FF85291625F71EBB95FDE503B6B9E03CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763200   (35649) от 30.11.2024
-
-Александр Соколов | Мифы об эволюции человека (2024) [MP3, Евгений Полтавский]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35649.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мифы об эволюции человека» — научно-популярная книга Александра Соколова, главного редактора портала «Антропогенез.ру».
-В книге автор собрал коллекцию мифов о происхождении человека и проверил, насколько они состоятельны. В простой и понятной форме он перебирает самые известные заблуждения о теории эволюции и даёт на них контраргументы.Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 10:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BB426650B6C7792FE48470E2857E3EFBF6CD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763198   (35625) от 30.11.2024
-
-Евгений Рыбалтовский | Змеи (2024) [MP3, Иван Букчин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему змеи великолепны? Всегда ли люди боялись змей? Может ли гадюка быть безопасной? И какая цель у каждой уважающей себя змеи? Ищите ответы в книге профессионального зоолога!
-Люди думают, что делятся на множество категорий. На самом деле люди делятся всего на два типа – на тех, кто при слове змея испытывает ужас, отвращение, омерзение и страх, и на тех, кто, увидев (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 04:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C45CAD186E28CE4F98971C3CB9686239B813FE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

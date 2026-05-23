@@ -1,3 +1,107 @@
+###  Публикация: 1244845   (477630) от 03.09.2018
+
+TimeShift (2007) [Ru] (1.02) Repack xatab
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, полковник в отставке Майкл Свифт, выступает в роли испытателя двух величайших изобретений века — Квантового Костюма и Квантового Транспортера. Но тщательно подготовленный эксперимент летит в тартарары, когда за мгновение до его начала в лабораторию врывается вооруженный человек.Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20A013E5D4AE742C23EC05594844D5E9ADF2297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206272   (476400) от 02.09.2020
+
+Desolate (2018) [Ru/En] (1.3) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хоррор выживание от первого лица. Собери команду из четверых и исследуй открытый мир, наполненный тайнами и опасностями. Или ты готов отправиться на остров в одиночку? Два года назад остров Граничный оказался в эпицентре крупномасштабной катастрофы. Конгломерат «Новый свет» скрыл информацию о трагедии и теперь пытается исправить последствия. В рамках этой кампании (   Читать дальше...   )Тип издания: RepackРазработчик: NeargaЖанр: Action, RPG (Open World), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8102070C84C79F448BF893F107D2B63A92FCC41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546978   (475553) от 14.09.2012
+
+TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вас зовут Джет Брэдли, и вы больше не человек. Вас перевели в цифровой формат, и вы очутились внутри глобальной компьютерной системы TRON. Здесь вы должны найти своего отца, похищенного обезумевшим искусственным разумом. Это задачка посложнее Quake III - вокруг кишат почти неуязвимые существа, запрограммированные только на ваше убийство. Они рыщут в недрах компьютеров, чтобы найти вас, впиться в ваше тело и высосать всю информацию! Вооружитесь до зубов фантастическими автоматами, дробовиками, лазерными снайперскими винтовками, ракетницами, гранатометами и метательными дисками. Отправляйтесь в запутанные лабиринты, где засели полчища жестоких противников. Уничтожьте их всех - и вновь станьте человеком! (   Читать дальше...   )Тип издания: RepackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC26392BD56B32B1843FC2F2FFA9A1EC2016095C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245012   (475542) от 04.09.2018
+
+Witch Blood (2018) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По легенде, много веков назад наша деревня была проклята ведьмами. Наши предки покинули земли после кровавой войны против ведьм, Мы думали, что проклятие закончилось, и мы снова заявили о своих землях в мире... Но однажды ночью деревня снова столкнулась с ведьмами живого леса. Теперь пришло время сделать все, что я знаю. Для спасения города и его народа охота на (   Читать дальше...   )Тип издания: LicenseРазработчик: Kerim KumbasarЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Корейский, ТурецкийЯзык интерфейса: Русский, Английский, Корейский, Турецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD6A2B05C0EF9CA5C00D244439DB2C1BD8E067C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244984   (475532) от 04.09.2018
 
 Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
@@ -6,7 +110,7 @@ Witch Hunt (2018) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Witch Blood (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Soldier of Fortune (2001) [En] (1.07fHF) License GOG [Platinum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl - Конец Света (2014) [Ru] (1.0/upd
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Zero Tolerance (1994) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Overhead (2018) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Ocean Nomad: Survival on Raft (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Kingpin: Life of Crime (1999) [Ru/En] (1.21) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ The Solus Project (2016) [Ru/Multi] (1.13) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Project Remedium (2017) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Stairs (2015) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Rise of the Triad: Dark War (1994) [En] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Nevermind (2015) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Syndrome (2016) [En] (1.03f) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Syndrome является научно-фантастической игрой �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34FE2F938FA789FD4914CD3F9439D43CDA8C7919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145363   (454150) от 03.09.2017
-
-Get Even (2017) [Ru/Multi] (1.0/u1) Repack R.G.Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Get Even - это шутер от первого лица, от создателей Painkiller, действие игры разворачивается в воспоминаниях главного героя, пытающегося узнать больше о своем прошлом. Дыши... Вспоминай: девушка, стул, бомба. Не бойся… Иди на голос в глубины памяти. Расслабься… Ищи воспоминания в мрачных уголках своего разума. Ты найдешь ее? Времени мало… Это – часть твоего лечения.Тип издания: RepackРазработчик: The Farm 51Жанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9440A0177E719DD515F3D6488A4F92D3CF60C97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942543   (452822) от 01.10.2015
-
-Crysis 2 (2011) [Ru] (1.9/dlc) Repack =nemos= [Maximum Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир потрясла серия экологических катастроф, и человечество находится на грани вымирания. Инопланетяне вернулись с твердым намерением стереть людей с лица земли и начали при этом с одного из самых культовых земных городов. Улицы Нью-Йорка наводнили инопланетные захватчики, и волна оживших кошмаров постепенно захлестывает город и его жителей.Тип издания: RepackРазработчик: CrytekЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7D388C5BE9C1263D359F345AB07F4D59947E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247407   (452320) от 15.09.2018
-
-Burden (2018) [Ru/En] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Созданная по мотивам любимых тем загадочных постапокалиптических вселенных, игра Burden кинет тебя прямо в самый центр одного из таких миров, полного загадок и тайн, а также постоянных угроз и экшена. В Burden каждый прожитый день – это не просто приключение, которое может привести к любому исходу, а вызов, бросаемый судьбе. От обогащения добычей и нахождения таинственных (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Book DevelopmentЖанр: Adventure, Action, 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E936B877BA4347D3595024F66DADF685105DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163165   (452150) от 04.09.2017
-
-Evil Park (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evil Park - атмосферная игра ужасов, основанная на моделировании неясных ситуаций бедствия, отсутствия безопасности и беспокойства. Повествование представлено концептуально, и каждый игрок должен интерпретировать события индивидуально. Главный герой по умолчанию не существует. Вы будете контролировать самого себя.Тип издания: LicenseРазработчик: MobsoftwareЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ECE62B87C1D9CD131BD5E2936AD32748B2EA4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

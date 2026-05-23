@@ -1,3 +1,159 @@
+###  Публикация: 1529338   (732677) от 06.02.2022
+
+Сигнал. Фильм / Gekijoban: Signal / Signal: The Movie (2021) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2021 год. По вине водителя лимузина-такси происходит ДТП, в котором погибает высокопоставленный чиновник. Детектив Саэгуса и его команда сомневается в причине аварии и виновнике, ведь в деле много несостыковок, поэтому решают провести собственное расследование. Между тем, в 2009 году много административных служащих погибали в ДТП, однако полиция объявляла их все (   Читать дальше...   )Производство: Япония, Just Creative Studio, A Really Happy FilmЖанр: Детектив, фантастика, криминалРежиссер: Хадзимэ ХасимотоАктеры: Кэнтаро Сакагути, Кадзуки Китамура, Митико Китисэ, Юити Кимура, Тэцухиро Икэда, Каэдэ Аоно, Цуёси Ихара, Тэцуси Танака, Тэтта Сугимото, Такэси КагаПеревод: RomarylloСубтитры: Русские, английские, китайскиеПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90D5530263BBDDC9A68B500E3E66FBA60B797CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529550   (732526) от 07.02.2022
+
+Гамера против Вираса / Gamera tai uchu kaiju Bairasu / Gamera vs. Viras (1968) BDRip [H.264/720p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Космические пришельцы расы Вирас отправляют к земле свой космический корабль. Их цель - захватить и колонизировать нашу планету. Но её защитница - суперчерепаха Гамера расправляется с захватчиками и уничтожает их корабль. Тогда, пришельцы отправляют к Земле второй звездолёт, который цепляет к Гамере устройство контроля мозговых волн и берёт в заложники двоих бойскаутов. (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: фантастика, боевикРежиссер: Нориаки Юаса, Сигэо ТанакаАктеры: Кодзиро Хонго, Тору Такацука, Карл Крэйг, Митико Яэгаки, Мари Ацуми, Дзюнко Ясиро, Питер Уильямс, Кодзи Фудзияма, Ёсиро Китахара, Мунэхико ТакадаПеревод: Одноголосый любительский (Emslie)Субтитры: АнглийскиеПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F294C4A099DCDDA7A6F9CC48FBAC05B3788AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529624   (731862) от 08.02.2022
+
+Работа с древесиной! / Wood Job!: Kamusari nana nichijo / Wood Job! (2014) BDRemux [H.264/1080p] [АVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Хирано Юки - городской мальчик до мозга костей. Живет себе припеваючи, пока в один прекрасный день не проваливает вступительные. А потом его ещё и девушка бросает. Чем не повод напиться с друзьями? А в порыве чувств Юки может плюнуть на всю прошлую жизнь, и пойти работать в лес. А что такого? Образование побоку, опыт не важен – желание есть, и нет проблем. Вот только (   Читать дальше...   )Производство: Япония, Tokyo Broadcasting System (TBS), Toho Company, Mainichi Broadcasting System (MBS), NikkatsuЖанр: Комедия, приключенияРежиссер: Синобу ЯгутиАктеры: Масами Нагасава, Сёта Сомэтани, Нана Сэйно, Хидэаки Ито, Юки Фурукава, Акира Эмото, Юка, Кэн Мицуиси, Наоми Нисида, Ёсимаса КондоПеревод: 2 х Авторский (Александр Смиронов, Андрей Дольский), 2 х Одноголосый закадровый (D.I.M., aleksei80)Субтитры: Русские, английские, чешские, японскиеПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3CA598B566876E3AEDE4DCC638461EC4EAF04B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529698   (731858) от 08.02.2022
+
+Гамера против Гирона / Gamera tai daiakuju Giron / Gamera vs. Guiron (1969) BDRip [H.264/720p-LQ] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Из космоса на Землю начинают поступать таинственные сигналы. Все астрономы мира ломают головы, пытаясь разобраться в их происхождении и источнике. Тем временем, двое мальчишек, занимаясь исследованием звёздного неба через телескоп, обнаружили снижающийся космический корабль. Он приземлился неподалёку и ребята на следующий же день отправились искать его. На борту (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: фантастика, боевик, приключения, семейныйРежиссер: Нориаки ЮасаАктеры: Нобухиро Кадзима, Миюки Акияма, Кристофер Мерфи, Юко Хамада, Эидзи Фунакоси, Кон Омура, Хироко Кай, Рэйко Касахара, Акира Нацуки, Наоюки АбэПеревод: Одноголосый любительский (Emslie)Субтитры: английскиеПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D013655B34D3D7E21E6C6F470CF58BE006152307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127290   (731717) от 21.04.2017
+
+Мстители в масках / Masked Avengers (Cha shou) (1981) Blu-ray [H.264/1080p] [Custom]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа преступников-убийц, прячущие свои лица под масками, терроризируют и держат в страхе население, оправдываясь громким названием "Мстители в масках". Всего лишь три человека решились бросить им вызов. Выстоять против преступников и их страшного оружия почти невозможно, потому что под маской может оказаться кто угодно. Это может быть и сосед, живущий (   Читать дальше...   )Производство: Гонконг, Shaw BrothersЖанр: Боевые искусстваРежиссер: Че ЧангАктеры: Филип Квок, Сиу-ху Чин, Шенг Чианг, Ке Чу, Фенг Лу, Ванг Лье, Хеи Чан, Куо ЧаоПеревод: Авторский (Сергей Кузнецов)Субтитры: Английские (на китайскую дорожку)Продолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D285677862D67E08D596B280CA4626D875D1C6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530088   (730657) от 09.02.2022
+
+Дверь в лето / Natsu e no Tobira: Kimi no Iru Mirai e / The Door Into Summer (2021) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По роману Роберта Хайнлайна. Действие фильма разворачивается в 1995 году. Молодой учёный Такакура работает над созданием робота и находится на пороге нового революционного открытия. Но героя предают партнёр по бизнесу и его невеста. В результате, он остаётся один и ни с чем. Решив погрузить себя в анабиоз до лучших времён, Такакура просыпается в 2025 году...Производство: Япония, TohoЖанр: фантастика, драмаРежиссер: Такахиро МикиАктеры: Кэнто Ямадзаки, Кая Киёхара, Наохито Фудзики, Бекон, Кэнта Хамано, Таидзо Харада, Хидэкадзу Масима, Нацуна Ватанабэ, Томорово Тагути, Рин ТаканасиПеревод: любительский двухголосый (АрхиAsia (Verner и Filiciya))Субтитры: русские (ФСГ SubQueens  Palanika Chan), английскиеПродолжительность: 01:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC22D490D169C802B8E082102BCC909D337EA58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530038   (728808) от 11.02.2022
 
 Наперегонки со временем / Chu Bao / Caught in Time (2020) BDRemux [H.264/1080p] [DVO]
@@ -6,7 +162,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_728045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_723636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,162 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B623FB0B621FD17F0DD52CF11A698E07B8D79A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668560   (714907) от 19.06.2013
-
-Полный беспредел / Autoreiji: Biyondo (2012) Blu-Ray [1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_714907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Криминальная семья Санно выросла в огромную организацию, чья власть распространилась на политику и крупный легальный бизнес. Амбициозный детектив Катаока при помощи тайных заговоров и грязных трюков провоцирует конфликт Между Санно и их давними врагами Ханабиши, надеясь, что они окончательно уничтожат друг друга. Но козырем в руках Катаоки может стать тот факт, что (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Такеши КитаноАктеры: Такеши Китано, Рё Касэ, Сюн Сугата, Тосиюки Нисида, Мачико Оно, Кен Мицуйси, Фумиё Кохината, Ютака Мацусигэ, Кента Киритани, Томокадзу МиураПеревод: Многоголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532388   (714735) от 19.02.2022
-
-Девушки, танцующие хулу / Hura garu / Hula Girls (2006) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1965, Япoния пepexoдит c yгля нa нeфть. Углeдoбывaющaя пpoмышлeннocть в yпaдкe, шaxты пoвceмecтнo зaкpывaютcя, ocтaвляя тыcячи людeй бeзpaбoтными. B oднoм из ceвepныx шaxтepcкиx гopoдoв Япoнии былo peшeнo, иcпoльзoвaв pecypcы гopячиx иcтoчникoв, пocтpoить гaвaйcкий цeнтp, кoтopый бы oбecпeчил нoвыe paбoчиe мecтa для мecтнoгo нaceлeния и пpивлeк тypиcтoв c paзныx (   Читать дальше...   )Производство: Япония, Black Diamonds, Cine Quanon, Happinet, Japan Digital Contents Trust (JDCT), Stardust Pictures (SDP)Жанр: Драма, комедияРежиссер: Ли Сан-ильАктеры: Ясуко Мацуюки, Эцуси Тоёкава, Ю Аои, Сидзуё Ямадзаки, Сёко Икэдзу, Эри Токунага, Койо Мияке, Сусуму Тэрадзима, Масару Сига, Хироси ОкотиПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайские, японскиеПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725B0770C97F5B85E359F400E2C6549B93B67E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791673   (714001) от 31.05.2014
-
-Добро пожаловать в Донгмакгол / Welkkeom tu Dongmakgol (2005) BDRip [H.264/720p-LQ]  [Hi10P]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь сельских жителей переворачивается с ног на голову, когда к ним с неба падает сбитый американский летчик. А спустя некоторое время в деревню вторгаются солдаты Северной и Южной Кореи.Жанр: Драма, Комедия, ВоенныйРежиссер: Кван-Хюн ПакАктеры: Чон Чжэ Ён, Син Ха Гюн, Кан Хё Чжун, Лим Ха Рён, Со Чжэ Кён, Рю Док Хван,Чжэ-Чжин ЮнгПеревод: Авторский (одноголосый, закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A404FFB5E39AEA02A2BC1E8FB889990284E3F6EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892235   (712682) от 29.04.2015
-
-Ип Ман 2 / Ip Man 2 / Yip Man 2 (2010) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая Мировая война закончилась, но Китай все еще слаб и беден. Ип Ман открывает свою школу боевых искусств, однако завоевать свое место под солнцем оказывается непросто — чтобы избежать проблем, Ип Ману нужно сначала завоевать уважение представителей других кунгфу-школ, а председательствующему в их ассоциации Хунгу Ип Ман не понравился с первого взгляда. А тем (   Читать дальше...   )Производство: Гонконг, Китай / Henan Film & TV Production Group Henan Film Studio, Mandarin Films Distribution Co., Beijing ShengShi HuaRei Film Investment & Management Co.Жанр: боевик, драма, биография, история, спортРежиссер: Уилсон ИпАктеры: Донни Ен, Хуан Сяомин, Саммо Хунг Кам-Бо, Линн Хун, Кент Чэн, Даррен Шалави, Ю-Ханг То, Чарльз Майер, Канин Нго, Кэлвин Чэн Ка-СиньПеревод: Двухголосый закадровыйЯзык субтитров: Русский , AнглийскийПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD3C353D343684E56A2062BC99AA1174A2537F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892192   (712680) от 29.04.2015
-
-Ип Ман / Ip Man / Yip Man (2008)  BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ип Ман — признанный мастер кунг фу, живущий в Фуошане, городе, славном своими школами боевых искусств. Ип Ман практикует Вин Чун и хотя является сильнейшим бойцом города, своей школы у него нет, и он не берет учеников. Дома он проводит лишь легкие спарринги с приятелями, чтобы указать на ошибки друг друга. Проходят годы, Китай захватывают воинственные японцы, и Ип (   Читать дальше...   )Производство: Гонконг, Китай / Beijing ShengShi HuaRei Film Investment & Management Co., China Film Co-Production Corporation, Mandarin Films Co. Ltd., New Film Studio of Beijing Starlight International Media Co. Ltd., Shanghai Film Group, Time Antaeus Media GroupЖанр: Боевик, Драма, Биография, ИсторияРежиссер: Уилсон ИпАктеры: Донни Ен, Саймон Ям, Ка Танг Лам, Фан Сю-Вонг, Линн Хун, Хироюки Икэути, Юй Син, Чен Зи Хуи, Ю-Нам Вонг, Чжан БоПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский (Forced), Русский , Aнглийский, Датский, Голландский, Персидский, Французский, Румынский, КитайскийПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F9263E1738BF0A53ADF8BB12E998037DA8A91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219451   (709639) от 16.04.2018
-
-Выход Дракона / Enter the Dragon / Long zheng hu dou (1973) BDRip [H.264/720p] [40th Anniversary Remastered Edition]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709639.jpg" />
-</div>
-
-
-###  Подробнее
-
-События переносят нас на остров, превращенный в крепость главарем боевиков, открывшим там школу боевых искусств, которая является лишь ширмой, маскирующей контрабандный бизнес. В эту цитадель проникает герой Брюса Ли и становится участником жестокого турнира…Производство: США, Гонконг / Concord Productions Inc., Sequoia Productions, Warner Bros. Pictures Co.Жанр: Боевик, Триллер, Криминал, ДрамаРежиссер: Роберт КлаузАктеры: Брюс Ли, Джон Сэксон, Анджела Мао, Джим Келли, Роберт Уолл, Боло Йенг, Бетти Чунг, Джеффри Викс, Питер Арчер, Хо Ли ЯнПеревод: Дублированный, профессиональный (многоголосый, закадровый), профессиональный (двухголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: Русские, английскиеПродолжительность: 01:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E57FAF097EC1762A37FCB4C93CDFF8C5C5426F
 ```
 
 https://mybot314.ru/tekegram_catalog/

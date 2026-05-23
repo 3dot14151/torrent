@@ -1,3 +1,55 @@
+###  Публикация: 919087   (20225) от 26.04.2025
+
+Машина времени в джакузи: Дилогия / Hot Tub Time Machine: Dilogy (2010, 2015) BDRip [H.264] [Theatrical cut]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда Лу попадает в беду, Ник и Джейкоб решают воспользоваться машиной времени в джакузи, чтобы вернуться в прошлое, но неожиданно оказываются в будущем с Адамом младшим. Теперь им придется изменить будущее, чтобы исправить события в прошлом.Производство: США / Metro-Goldwyn-Mayer (MGM), Paramount PicturesЖанр: фантастика, комедияРежиссер: Стив ПинкАктеры: Роб Кордри, Крэйг Робинсон, Кларк Дьюк, Адам Скотт, Гиллиан Джейкобс, Чеви Чейз, Коллетт Вульф, Бьянка Хаазе, Джейсон Джонс, Кумэйл НанджианиПеревод: Дублированный (Лицензия R5)Язык субтитров: Английский (Full + SDH)Качество: BDRipПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8834D26DF0AA9F40D41E9426BBC1369DD511671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 620016   (20137) от 27.04.2025
+
+Титаны - Дилогия: Битва Титанов / Clash of the Titans (2010), Гнев Титанов / Wrath of the Titans (2012) BDRemux [H.264/1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Спустя десятилетие после героической победы над чудовищным Кракеном Персей пытается жить спокойной жизнью деревенского рыбака и отца-одиночки. В то же время между титанами и богами начинается борьба за власть. Олимпийцы, утратившие былую преданность людей, теряют контроль над тюрьмой, в которой заключены титаны и их глава Кронос. Сила титанов растет, в то время как (   Читать дальше...   )Производство: Legendary Pictures / Warner Bros. PicturesЖанр: Фэнтези, боевик, приключенияРежиссер: Джонатан ЛибесманАктеры: Сэм Уортингтон, Лиам Нисон, Рэйф Файнс, Эдгар Рамирез, Тоби Кеббелл, Розамунд Пайк, Билл Найи, Дэнни Хьюстон, Джон Белл, Лили ДжеймсПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (BD, Е. Воронин), английский (полные, SDH)Продолжительность: 01:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA117D269128CD6D29BCB1359B1AF437CF2621C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274281   (20035) от 28.04.2025
 
 Короткое замыкание / Short Circuit (1986, 1988) BDRemux [H.264/1080p] [Дилогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A124D4276FDA1BF4511A9024AE5ACE58917B7DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811164   (8893) от 08.08.2025
-
-Золотые прииски Колара / K.G.F. (2018, 2022) BDRip [AV1/2160p] [4K, SDR,10-bit] [handmade Upscale AI]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дилогия относится к двухсерийной индийской серии фильмов. Действие сериала, снятого режиссером Прашантом Нилом с Яшем в главной роли, разворачивается на фоне золотых приисков Колара (KGF) в 1970-х годах и рассказывает о возвышении влиятельной фигуры по имени Рокки.Производство: Индия / Hombale FilmsЖанр: боевик, драма, триллер, криминалРежиссер: Прашантх Нил, ДжокиАктеры: Яш, Равина Тандон, Шриниди Шетти, Рао Рамеш, Т.С. Нагабнарана, Рамачандра Раджу, Анант Наг, Сриниваса Муртхи, Балакришна, Рамеш ИндхираПеревод: Дублированный, ДвуголосыйЯзык озвучки: русский, каннадаСубтитры: русские, индийские, английскиеПродолжительность: 02:33:42 | 02:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EED995ACABD25740936FF36414D6AECEFAEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741356   (8178) от 13.08.2025
-
-Полицейская академия / Police Academy (1984,1985,1986,1987,1988,1989,1994) Blu-ray [H.264/1080p] [The Complete Collection]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейская Академия - сногсшибательный сатирический салют мужчинам, женщинам и лицам неопределенного пола, которые призваны защищать общество от людей, очень похожих на них самих. Кoмедия, которая пользовалась сокрушительным успехом более десяти лет и вдохновила на еще шесть фильмов-продолжений и мультипликационный ТВ-сериал.Производство: США / Warner Bros. PicturesЖанр: Комедия, КриминалРежиссер: Хью Уилсон, Джерри Пэрис, Джим Дрейк, Алан Майерсон, Питер Бонерз, Алан МеттерАктеры: Стив Гуттенберг, Ким Кэтролл, Дж. У. Бейли, Бубба Смит, Донован Скотт, Джордж Гейнс, Эндрю Рубин, Дэвид Граф, Лесли Истербрук, Майкл Уинслоу, Мэрион Рэмси, Коллин Кэмп, Ховард Хессеман, Арт Метрано, Тим Казурински, Боб Голдтуэйт, Шэрон Стоун, Лэнс Кинси, Мэтт МакКойПеревод: дублированный, многоголосый, двухголосый, одноголосый, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: Русские, АнглийскиеЯзык: Русский, Украинский, АнглийскийПродолжительность: фильмы по ~01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE502926A283A7E45F6DE1578AEBB412D8D69E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

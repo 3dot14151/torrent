@@ -1,3 +1,81 @@
+###  Публикация: 1467147   (1018051) от 02.05.2021
+
+Справочник Сварщика Pro v2.1 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Приложение практически не занимает места на устройстве, не требует никаких разрешений и работает без доступа к интернет. Подробное описание большого количества марок и типов электродов для сварки, таблицы подбора тока и диаметра, описание к вольфрамовым электродам, области применения электродов и их особенности. В справочнике сварщика имеется таблица соответствия (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 14 марта 2021 г.Разработчик: master199Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B7C6A31574794A12C4AC517B3922E015144424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467435   (1017914) от 03.05.2021
+
+Стали и сплавы - марочник v1.1.6 [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит свойства к 3300 сталям, сплавам и металлам и ссылки на ГОСТ. Все стали и сплавы хранятся на устройстве и доступны без доступа в интернет.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 18 октября 2020 г.Разработчик: OreXПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F1537D81264592A9502CD99E543B85EE71EE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467414   (1017897) от 03.05.2021
+
+Расчет кубатуры Pro v3.1.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Расчет кубатуры Pro - это приложение для быстрого и удобного расчета кубатуры кругляка, оцилиндрованного бревна и пиломатериалов с возможностью сохранения всех данных на телефоне и отправки их по электронной почте в формате xls.Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 31 октября 2020 г.Разработчик: Mobile ShiftПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75908AAED5E97E273DBDE3F69F4017D07679C620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467452   (1017857) от 03.05.2021
 
 Электрик - Электромонтаж v1.0.0.3 [Ru]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +113,7 @@ SketchCut PRO v3.9.45 [Ru/Multi] - Раскрой под рукой
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +140,7 @@ Hotspot Shield Free VPN  v8.6.0 Premium [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +166,7 @@ Classic Notes + App Box 1.0.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +192,7 @@ Voicella v0.75 [Ru] - создание видео субтитров автом�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +218,7 @@ VIP electronics v1.0.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +273,7 @@ Podcast Republic v21.5.4R [Ru] - Podcast Player & Podcast App
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +299,7 @@ Electrohelper: EE Toolbox Pro v2.1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +325,7 @@ Electronic toolbox Pro v5.1.15 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +351,7 @@ radio.net PRIME v5.4.1.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +380,7 @@ XiiaLive™ Pro - Internet Radio v3.3.3.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +406,7 @@ Cloud Radio Pro v8.1.0 [Ru] - Record , Lyrics & Music
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +432,7 @@ Audials Play Pro v9.4.2-0-gaa8f88d97 [Ru] – Radio & Podcasts
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +537,7 @@ Stellio Player v6.2.14 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +564,7 @@ MediSafe Meds & Pill Reminder Premium   v9.09.10574 [Ru/Multi] - Напомин�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +668,7 @@ BZ Напоминания и Дни Рождения v3.1.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -601,84 +679,6 @@ BZ Напоминания и Дни Рождения v3.1.4 [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3434FD4E2501F0DD25D1BDDCABBF9EEF02994BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469658   (1016284) от 13.05.2021
-
-GIF Maker Pro 1.7.66 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Теперь вы можете создавать/редактировать бесплатные, четкие, простые, быстрые, плавные и не испорченные водяными знаками GIF анимации. С помощью красивого и мощного интерфейса, вы сможете без каких-либо водяных знаков - конвертировать видео и набор изображений в GIF, редактировать GIF, создавать GIF прямо с камеры вашего устройства, сжимать GIF файлы, поворачивать (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.10.2020Разработчик: GIF Maker & GIF Editor & Video MakerПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4CA9026D8853D8C1B093B444B4A404AED6868A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469708   (1016253) от 13.05.2021
-
-nPlayer Pro 1.7.7.7_191219 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нет необходимости конвертировать видео в формат MP4 для просмотра на мобильном устройстве. С nPlayer вы сможете просматривать видео в любом формате. Одним касанием пальца Вы сможете управлять воспроизведением, субтитрами, громкостью и яркостью.Тип издания: ProРелиз состоялся: 10.01.2020Разработчик: Newin Inc.Поддерживаемая ОС: Android 4.2+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C910980879A9AC661476934079D4F5369D142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469764   (1016060) от 14.05.2021
-
-Polaris Office Pro 9.0.12 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polaris Office - мобильное офисное приложение, позволяющее конечным пользователям легко читать и редактировать различные форматы документов в мобильной среде. В дополнение к высокой производительности и высокому качеству рендеринга, Polaris Office позволяет пользователю интуитивно управлять различными функциями редактирования с помощью Whiz UI®, который является (   Читать дальше...   )Тип издания: ProРелиз состоялся: 21.01.2021Разработчик: Polaris Office Corp.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1781A453E4473CB5679335F83AA360BFBC412458
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 942617   (451180) от 02.10.2015
+
+Барби: Рок-принцесса / Barbie in Rock 'N Royals (2015) WEB-DL [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь принцессы Кортни переворачивается с ног на голову, когда она меняется местами со знаменитой рок-певицей Эрикой. При отправлении в летний лагерь случается организационная путаница, и принцессу Кортни отправляют в лагерь для поп-певиц, а Эрику — в королевский лагерь. Пока начальники лагерей пытаются устранить беспорядок, Эрика и Кортни приспосабливаются к новой (   Читать дальше...   )Производство: США, Universal StudiosЖанр: Мультфильм, фэнтезиРежиссер: Карен Дж. ЛлойдАктеры: Джейсон О’Мара, Томас Гибсон, Морена Баккарин, Джанкарло Эспозито, Дэвид МакКаллум, Ксандер Беркли, Шон Маэр, Фред Татаскьор, Брюс Томас, Стюарт АлланКарен Дж. ЛлойдПеревод: Многоголосый, профессиональныйПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2116A834378EC0F5F62967A0756791C7AE5F085A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247649   (450178) от 16.09.2018
+
+Тайна магазина игрушек / Чайные питомцы / A tang qi yu / Tea Pets (2017) WEB-DLRip [H.264/720p-LQ] [MVO] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о том, как встречаются технологии будущего с традициями поколений. А-Тан - фигурка для чайных церемоний и у него много друзей. По традиции все они должны обливаться чаем и тем самым предвещать нечто хорошее своим хозяевам. Изготовление таких фигурок - древнее ремесло, поэтому каждая фигурка обладает не только своими особыми уникальными предназначением и способностью, (   Читать дальше...   )Производство: Китай, Light Chaser Animation StudiosЖанр: Компьютерная анимация, Сказка, ПриключенияРежиссер: Гэри ВанПеревод: Многоголосый закадровыйОзвучка / Автор перевода: Студийная банда, проект AnidubСубтитры: Китайские, английские (вшитые, неотключаемые)Продолжительность: 01:43:10Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107CC8B2A87E25AC95390BDCAFC8F08DCC20614F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569812   (449414) от 14.08.2022
+
+Фиш и Чип. Вредные друзья / Fish N Chips: The Movie (2013) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Котенок Чип и золотая рыбка Фиш никак не могут определиться, кто они – враги или друзья. Смышленый Фиш то и дело встает на пути у озорного Чипа, и без забавных приключений тут не обойтись.Производство: Канада / Fish 'n Chips ProductionsЖанр: МультфильмРежиссер: Дэн КречАктеры: Джон Легуизамо, Марио Кантоне, Мартин Виллафана, Йен Башер, Джессика Гринберг, Дэн Петрониевич, Джули Лемье, Шоун Мюнье, Роджер Ст. Дэнис, Джордж БьюзаПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3009C569EB2E501A8822102F2B27F88B23C91B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569783   (449408) от 14.08.2022
 
 Базз Лайтер / Lightyear (2022) UHD WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30355B54447D4F50FB03CE677CE1F8280B180A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164376   (441202) от 09.09.2017
-
-Беовульф / Beowulf (2007) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Дании VI века. Король Хротгар празднует завершение строительства медового зала — Хеорота. Звуки музыки и веселья пробуждают и злят монстра Гренделя, который нападает на праздновавших. Но когда Хротгар вызывает его на битву, чудовище возвращается к своей матери — демону воды. Король закрывает свой зал и предлагает половину своего (   Читать дальше...   )Производство: США | ImageMovers, Paramount PicturesЖанр: мультфильм (компьютерная анимация), фэнтези, боевик, драма, приключенияРежиссер: Роберт ЗемекисПерсонажи: Рэй Уинстоун, Энтони Хопкинс, Робин Райт, Джон Малкович, Криспин Гловер, Брендан Глисон, Анджелина Джоли, Костас Мэндилор, Пол Бэйкер, Джон БилезикджянПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:54:42Реклама: Отсутствуют
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BAA94A1A6AE9B043B2D39BA4B41F0A610FA0D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553688   (440474) от 29.09.2012
-
-Замбезия / Zambezia (2012) [H.264/1080p-LQ] [Hi10P] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440474.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мультфильме рассказывается история жизни юного соколёнка по имени Кай, его приключения, характер, комичные ситуации в которые он попадает на пути к своей главной цели, на пути к заветному птичьему городку Замбезия, в котором он от всей души желает отыскать новых друзей, которые бы скрасили его одиночество и не оставили в беде. Однако для начала ему необходимо преодолеть (   Читать дальше...   )Производство: ЮАРЖанр: Комедия, МультфильмРежиссер: Уэйн ТонлиАктеры: Эбигейл Бреслин, Кори Бертон, Джим Каммингс, Норин ДеВулф, Ли Дуру, Джефф Голдблюм, Ричард Э. Грант, Таня Гунади, Сэмюэл Л. Джексон, Том КенниПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AE6AFD741D737C93F7A43E23FF259AC7F4E8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 828129   (439369) от 06.10.2014
-
-Эпик / Epic (2013) BDRip [720p] [hand made 60fps]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439369.jpg" />
-</div>
-
-
-###  Подробнее
-
-После долгой разлуки юная Мэри Кэтрин возвращается в дом, где отшельником живет ее отец, безумный профессор Бомба. Однако тот совсем не обращает внимания на дочь и одержим лишь одной идеей — изучить скрытый от посторонних глаз таинственный лесной мир. Девушка отказывается верить, что под ногами человечества идет вечная борьба между армиями, воюющими на сторонах добра (   Читать дальше...   )Жанр: Детский, Приключения, КомедияРежиссер: Крис УэджПеревод: Дублированный (лицензия)Субтитры: Русские | Полные, Английские | ПолныеПродолжительность: 01:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCA68A37C7CAA32CACA0A9D1F4E79AFA93C5C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

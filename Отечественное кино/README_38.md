@@ -1,3 +1,107 @@
+###  Публикация: 985203   (935111) от 11.02.2016
+
+Он – дракон (2015) HDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В разгар свадьбы княжну Мирославу похищает дракон, унося в свой замок на острове. В прошлом остались родные, жених, теперь только каменный плен в компании прекрасного Армана… но кто он и как оказался на острове? Мира поймет это слишком поздно: любовь к нему, человеку-дракону, откроет ей горькую истину — любить страшно.Производство: Россия / Базелевс ПродакшнЖанр: ФэнтезиРежиссер: Индар ДжендубаевАктеры: Мария Поезжаева, Матвей Лыков, Станислав Любшин, Иева Андреевайте, Петр Романов, Андрей Лебединский, Марта Тимофеева, Иво Господинов, Егор Зубарчук, Виктория РунцоваПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C80A0F58D91E1D7DC2724EAACBEA96253C3010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985094   (934976) от 11.02.2016
+
+Чудо (2013) WEB-DLRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в русской деревенской местности. Натурализм и быт жителей переплетается с магическим реализмом: каждый из героев переживает момент столкновения со сверхъестественным. В каждой из пяти новелл («Пастух», «Встреча», «Голоса», «Судьба», «Мать») — один-два героя. Это разные стилистически, разные по жанру истории, с разными актерами, но объединенные (   Читать дальше...   )Производство: Россия  / Антей ФильмЖанр: Драма, Комедия , Мелодрама,Режиссер: Антон ДоринАктеры: Вадим Афанасьев, Максим Пинскер , Анна Овсянникова , Бронислава Захарова , Андрей Батуханов , Николай Чиндяйкин , Юлия Назаренко , Ирэна Кокрятская , Николай Качура , Мария Клюквина , Михаил Фатеев, Алексей Харченко.Продолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55678B4A3C9EF6915F74E8B59FD37A3BD8B420F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093305   (934700) от 14.01.2017
+
+Дуэлянт (2016) BDRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Санкт-Петербург 1860 года. Капитан в отставке Яковлев (Петр Федоров) зарабатывает тем, что по заказу вызывает на дуэль и убивает состоятельных дворян. Ему очень нужны деньги, потому что на самом деле он – лишенный дворянства и звания бывший военный, который живет под чужим именем и копит на взятку, необходимую для помилования. Когда Яковлев узнает, что его дуэли (   Читать дальше...   )Производство: Россия, Non-Stop ProductionЖанр: ДрамаРежиссер: Алексей МизгирёвАктеры: Пётр Фёдоров, Владимир Машков, Юлия Хлынина, Франциска Петри, Мартин Вуттке, Сергей Гармаш, Павел Табаков, Юрий Колокольников, Александр Яценко, Пьер БуреПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9911A1E5868235B62D956341A4725F16B098362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093112   (934690) от 14.01.2017
+
+Дуэлянт (2016) Blu-ray [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета профессиональный дуэлянт, который зарабатывает на жизнь, участвуя в поединках за других людей.Производство: Россия, Нон-стоп ПродакшнЖанр: ДрамаРежиссер: Алексей МизгирёвАктеры: Пётр Фёдоров, Владимир Машков, Юлия Хлынина, Франциска Петри, Мартин Вуттке, Сергей Гармаш, Павел Табаков, Юрий Колокольников, Александр Яценко, Пьер БурельПеревод: Не требуется (Лицензия BD EUR)Субтитры: ОтсутствуютПродолжительность: 01:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6631AD035B49C9CB99ADEA3BBA32AB400379C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093239   (934685) от 14.01.2017
 
 Дуэлянт (2016) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E28543042DC1F4C8171311F3FABF2F244605FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674403   (931475) от 16.01.2017
-
-Легенда №17 (2013) BDRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931475.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 сентября 1972 года. Монреаль. Хоккейная сборная СССР с разгромным счетом 7:3 победила канадских профессионалов из НХЛ в стартовом матче эпохальной Суперсерии СССР-Канада. Это была не просто игра, это была битва за свою страну, которая перевернула мировое представление о хоккее. Теперь весь мир знал его просто по номеру «17». Валерий Харламов, забивший в том матче (   Читать дальше...   )Жанр: Спорт, Драма, БиографияРежиссер: Николай ЛебедевАктеры: Данила Козловский, Олег Меньшиков, Владимир Меньшов, Борис Щербаков, Роман Мадянов, Светлана Иванова, Дарья Екамасова, Гёц Отто, Алехандра Грепи, Александр РагулинЯзык субтитров: ОтсутствуетПродолжительность: 02:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4262882A993D644BAFC9F878A6051605F11A43F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365017   (931397) от 06.03.2020
-
-Танец с саблями / Sabre Dance (2018) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931397.jpg" />
-</div>
-
-
-###  Подробнее
-
-История создания известного шедевра, «непокорного и шумливого дитя» Арама Ильича Хачатуряна «Танец с саблями».
-Холодная осень 1942 года. Второй год войны. Город Молотов — переименованная перед самой войной Пермь. Сюда эвакуирован Ленинградский академический театр оперы и балета имени Кирова. Мир театра в эвакуации — призрачный, голодный, холодный. Жизнь глубокого (   Читать дальше...   )Производство: Россия, Армения / Марс Медиа Энтертейнмент, Sharm PicturesЖанр: драма, история, биографияРежиссер: Юсуп РазыковАктеры: Амбарцум Кабанян, Александр Кузнецов, Сергей Юшкевич, Вероника Кузнецова, Инна Степанова, Иван Рыжиков, Вадим Сквирский, Алексей Назаров, Арман Навасардян, Александр ИльинПеревод: Многоголосый профессиональный (на армянскую речь) | iTunesЯзык озвучки: Русский, армянскийСубтитры: ОтсутствуютПродолжительность: 01:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F30080A952AC9526FF0C805666045B42B9F251E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 754884   (931111) от 08.02.2014
-
-Друзья друзей (2013) Blu-Ray [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931111.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Нового года пересекаются истории промоутера, впервые оставшегося дома с пятилетним ребенком, трех музыкантов из филармонии, решившихся на ограбление сурового бизнесмена, на домашнюю вечеринку к которому их отправил тот самый промоутер, и бедного студента, пригласившего на первое свидание в дорогой ресторан дочку того самого сурового бизнесмена. В результате, (   Читать дальше...   )Производство: Россия / Enjoy MoviesЖанр: КомедияРежиссер: Артем Аксененко, Араик ОганесянАктеры: Нюша Шурочкина, Гарик Харламов, Юрий Стоянов, Николай Наумов, Александр Ильин мл., Тимур Батрутдинов, Александр Молочников, Андрей Гайдулян, Олег Верещагин, Александр БулатовПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB9082C61B0F41FBC9F93CB2F7CE3EA802D7237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177350   (930534) от 21.02.2010
-
-Неслужебное задание-2: Взрыв на рассвете (2005) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильмаЖанр: Боевик, Драма, ВоенныйРежиссер: Виталий Воробьев, Иван КриворучкоАктеры: Павел Майков, Юрий Мосейчук, Евгений Пронин, Дмитрий Клоков, Кирилл Плетнев, Лариса Наумкина, Александр Кольцов, Егор Рыбаков, Максим Дрозд, Юрий Гумиров,...Продолжительность: 01:21:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

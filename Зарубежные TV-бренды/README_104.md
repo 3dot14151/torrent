@@ -1,3 +1,55 @@
+###  Публикация: 1549691   (233400) от 23.05.2022
+
+Динозавры: Последний день с Дэвидом Аттенборо / Dinosaurs - the Final Day with David Attenborough (2022) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Сэр Дэвид Аттенборо представляет этот знаменательный документальный фильм, в котором с беспрецедентными подробностями оживает затерянный мир самых последних дней существования динозавров. Обыскивая холмы Северной Дакоты, палеонтолог Роберт ДеПальма делает невероятное открытие на доисторическом кладбище, известном как Танис, — окаменелые существа, удивительно хорошо (   Читать дальше...   )Производство: ВеликобританияЖанр: ДокументальныйРежиссер: Мэттью ТомпсонПеревод: Двуголосый закадровыйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A2E1F0703C6EFE5F59227320F5672D5DD291A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506487   (232490) от 28.05.2022
+
+NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Тихий океан - самый большой и глубокий океан на нашей планете. Эта серия фильмов демонстрирует множество невероятных существ, которые стали называться тихоокеанским домом.Производство: Новая Зеландия / Natural History New Zealand Ltd.Жанр: Документальный, Природа, Фауна, ФлораРежиссер: Лорн ТаунендПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 2 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CB9ADF69CFAC568C4C1BDCCA17F8B50C0043CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579565   (232263) от 29.09.2022
 
 Путешествие в бесконечность / A Trip to Infinity (2022) WEB-DL [H.264/1080p] [EN / RU, UA, EN, Sub]
@@ -6,7 +58,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Discovery. Махинаторы. Машина мечты / Wheeler Dealers: Drea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +422,7 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -397,7 +449,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Unchar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -423,7 +475,7 @@ NG: Последствия: Преданные Солнцем / Aftermath: Betra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -449,7 +501,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -501,7 +553,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -527,7 +579,7 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -579,7 +631,7 @@ Discovery. Смертельный улов / Deadliest Catch (2015) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +657,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +668,6 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:410F4724C847BE023B394EEB9233241F8650693B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266033   (226088) от 11.12.2018
-
-Брэд Мельцер: расшифровка / Brad Meltzer: Decoded (2011) HDTVRip (2 сезон: 11 серий из 13) (Обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный писатель Брэд Мельцер рассматривает древние и современные вещи, которые передают нам секретные послания, закодированные в кодах и символах.Производство: США, A&E Television NetworksЖанр: Документальный, история, расследованиеПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 11 x ~ 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822C68F67036EADE32736AA7A0D75F42D9A01D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261230   (226054) от 11.12.2018
-
-Шон Бин при Ватерлоо / Sean Bean on Waterloo (2015) HDTVRip (2 серии из 2)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голливудский актер Шон Бин рассказывает историю сражения при Ватерлоо, одной из самых значимых битв истории. Рассказ Шона вдохновлен его собственным опытом игры наполеоновского солдата Ричарда Шарпа в телевизионных фильмах на основе бестселлеров Бернарда Корнуэлла. В фильме он опирается на свидетельские показания солдат, которые сражались при Ватерлоо, чтобы рассказать (   Читать дальше...   )Производство: Великобритания, History ChannelЖанр: Документальный, война, история, исследованиеРежиссер: Патрик МакГрэйдиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 2 x ~ 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46384DE2FC0AEAC69679C702594109C5ECF17793
 ```
 
 https://mybot314.ru/tekegram_catalog/

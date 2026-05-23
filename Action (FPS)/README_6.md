@@ -1,3 +1,107 @@
+###  Публикация: 1101444   (895403) от 06.02.2017
+
+Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip Other s [Digital Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Battlefield 1 погружает вас в эпоху Первой мировой войны, когда новые технологии и глобальный конфликт навсегда изменили принципы военного дела. Участвуйте в каждой битве, управляйте каждой огромной машиной, выполняйте маневры, меняющие исход всего боя. Весь мир охвачен войной. Узнайте, что ждет вас на линии фронта. Сражайтесь в роли пехотинца или управляйте потрясающей (   Читать дальше...   )Тип издания: RipРазработчик: EA DICEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A181A7A7B1C8199A893F8A116DBB2FA4AB162D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069578   (893292) от 04.09.2021
+
+Call of Duty: Infinite Warfare (2016) [En] (6.0.1211685) License RELOADED
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty: Infinite Warfare – очередная часть в популярной серии шутеров от первого лица Call of Duty, в которой вас ждут грандиозные сражения, незабываемые персонажи, увлекательный кинематографический сюжет, а также новый эпический сеттинг. Впервые в истории серии противостояние развернется за пределами Земли на обширных пространствах Солнечной системы.Тип издания: LicenseРазработчик: Infinity Ward и High Moon StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE64247653A13CE56E4E83AE03F3C08E712782BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993853   (893104) от 06.03.2016
+
+Duke Nukem Forever (2011) [Ru] (1.0.244/dlc) Repack =nemos=
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь перевоплотиться в самого крутого, безбашенного и отчаянного героя в истории компьютерных и видеоигр. С момента его последнего приключения прошло уже почти десять лет, но игроки всего мира ни на минуту не теряли надежды на новую встречу с ним. И вот их мечты стали реальностью - мир наводнили орды инопланетных захватчиков, а значит - Дюк Нюкем возвращается! (   Читать дальше...   )Тип издания: RepackРазработчик: Gearbox, Triptych Games, 3D Realms Entertainment и Piranha GameЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BADFDB726E59AACB24247C6D380A9DADFE691A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371256   (891444) от 30.03.2020
+
+Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack =nemos=
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Bright Memory — это сверхскоростной микс из жанров FPS и экшен, созданный студией разработки FYQD, за которой стоит всего один человек, на базе движка Unreal Engine. Объединяйте широкий спектр умений и способностей, чтобы обрушить на врагов умопомрачительные комбо-атаки. Приключение Шелии, агента SRO (Организации Сверхестественных Научных Исследований) вот-вот начнется.Тип издания: RepackРазработчик: FYQD-StudioЖанр: Action, Adventure, 1st Person, 3DЯзык озвучки: Английский, Китайский, ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80796CDF2C6DF4033EACF543DCE557A30D174EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994852   (887236) от 09.03.2016
 
 Call of Duty: Advanced Warfare (2014) [Ru] (1.22.01/dlc) Rip xatab
@@ -6,7 +110,7 @@ Call of Duty: Advanced Warfare (2014) [Ru] (1.22.01/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Feelings Adrift (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5.0/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Dark Shores (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Thief (2014) [Ru/En] (1.7 u8/dlc) Repack R.G. Games [Master Thief Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Borderlands 2 (2013) [Ru/En] (1.8.4/dlc) Repack R.G. Механики [Game of t
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ DOOM VFR (2017) [Ru/Multi] (6.1.1.1930) Repack xatab [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ ANNIE: Last Hope (2020) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Obscuritas (2016) [En/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Shadow Warrior: Anthology (1997-2016) [Ru/Multi] (1.1.6/1.5.0/1.1.2/1.1.9.0/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +660,7 @@ Beyond Enemy Lines (2017) [En] (30120) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,111 +671,6 @@ Beyond Enemy Lines (2017) [En] (30120) License SKIDROW
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F48902D2A8BE79009A9BF7F5C75EFA5A0BDF8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089385   (865912) от 21.09.2021
-
-The Town of Light (2016) [Ru/Multi] (2.2/dlc) Repack Other s [Limited Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865912.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Town of Light - психологическое приключение с повествованием от первого лица. События игры развиваются в первой половине 20-го века, в Италии, в реально существовавшем месте, аспекты и детали которого были тщательно реконструированы. Исследование окружающего мира и взаимодействие с ним - ключ к раскрытию тайны судьбы главного персонажа, история которого будет (   Читать дальше...   )Тип издания: RepackРазработчик: LKAЖанр: Adventure, 1st Person, 3DЯзык озвучки: Английский, Итальянский, Немецкий, ЯпонскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778168CE9006CFA17444377350828F52528D9C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107777   (865475) от 23.02.2017
-
-NecroVision (2009) [Ru] (1.2) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война — это ад. NecroVision — это шутер от первого лица, который проведет игроков через безумные поля сражений Первой мировой войны и сквозь темные подземелья, полные вампиров, демонов и темной магии. В поисках приключений, молодой американец Саймон Бакнер присоединился к британской армии в разорванной войной Европе в 1916 году. Во время особенно ожесточенного сражения, (   Читать дальше...   )Тип издания: RepackРазработчик: The Farm 51Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0C77181E47152BE4C112818452EC5E54310BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999462   (861963) от 23.03.2016
-
-Burn / Пекло (2007) [Ru] (1.0) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в пекло беспощадных сражений будущего!
-Год 2055. Отгремела мировая война, и загадочный Дарк, непобедимый наемник, презревший убеждения, за деньги сражающийся на чьей угодно стороне, ни разу не потерпевший поражения, стал неугоден бывшим нанимателям. Правительства стран-участниц конфликта объявили награду за голову Дарка, но чтобы заслужить право (   Читать дальше...   )Тип издания: LicenseРазработчик: Destan EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4510F71CC8F58ADB039039E0C8EBC54F8B0715B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108666   (861903) от 25.02.2017
-
-Absent Mind (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Absent Mind — игра, рассказывающая короткую историю человека проводящего остаток жизни в больнице перед смертью, которая служит мостом к загробной жизни. Предполагается, что эта история есть ничто иное, как воображение, которое позволяет увидеть какие-то ранее недоступные вещи. Это игра-головоломка с элементами ужаса. Вам придется увидеть больницу с совершенно другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Dylan LathamЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABD41D7E207B05B483B502A519FCC530D106C92
 ```
 
 https://mybot314.ru/tekegram_catalog/

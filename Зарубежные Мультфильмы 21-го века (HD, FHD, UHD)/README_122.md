@@ -1,3 +1,81 @@
+###  Публикация: 1716442   (59655) от 15.04.2024
+
+10 жизней / 10 Lives (2024) IPTVRip [H.264/1080p] [EN]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Все прекрасно знают, что у котов девять жизней. А еще говорят, что коты ленивые, капризные и довольно агрессивны к окружающим. И все-таки даже самые заносчивые из них просто душки по сравнению с пушистой бестией по имени Беккет. Но его будни скоро изменятся. Притом, целых десять раз! Коту предстоит побывать в шкуре совершенно разных животных, чтобы, наконец, начать (   Читать дальше...   )Производство: Великобритания, Канада, GFM Animation, Align, Quad, The Happy ProducersЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Крис ДженкинсАктеры: Мо Гиллиган, Симон Эшли, Софи Оконедо, Зейн Малик, Дилан Ллевелин, Джереми Свифт, Билл НайиПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: ОтсутствуютПродолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F3BD7EDFA7660DB406942341BF2EEC85940151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716583   (59539) от 16.04.2024
+
+Беовульф / Beowulf (2007) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на древнеанглийской эпической поэме " Беовульф "... В 507 году Беовульф, храбрый воин, прибывает на корабле в земли датского короля Хротгара, чтобы помочь ему избавиться от страшного монстра, по ночам убивающего датчан. Беовульфу удаётся победить чудовище голыми руками. Однако радость победы длится недолго, ибо у поверженного Гренделя есть (   Читать дальше...   )Производство: США, Великобритания / ImageMovers, Paramount Pictures, Shangri-La EntertainmentЖанр: фэнтези, боевик, приключения, мультфильмРежиссер: Роберт ЗемекисАктеры: Рэй Уинстон, Энтони Хопкинс, Робин Райт, Джон Малкович, Криспин Гловер, Брендан Глисон, Анджелина Джоли, Костас Мэндилор, Пол Бэйкер, Джон Билезикджян, Род Д. Харбор, Брайс Мартин, Сонье Фортаг, Шарисс Бэйкер-Бернар, Шарлотта СолтПеревод: дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские ( BD RUS; Киномания / Позитив), английскиеПродолжительность: 01:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CCDC48EE97A377AEBAC51D1EC2E7FEBE4C7C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716995   (59353) от 18.04.2024
+
+Неуязвимый: Атомная Ева / Invincible: Atom Eve (2023) WEB-DL [H.264/1080p-LQ] Flarrow Films
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Саманта Ева Уилкинс - не обычный ребенок. Она с раннего возраста могла видеть молекулы окружающего мира. Её считали странным ребенком, ведь именно их она рисовала и строила, используя конструктор LEGO. Саманта Ева начинает свою историю супер героя. Девушка способна манипулировать материями в суб-атомном диапазоне. Она трансформирует вещества, создает энергетическое (   Читать дальше...   )Производство: США / Amazon Studios, Den of Geek, Skybound EntertainmentЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, триллер, драмаРежиссер: Хейли ХеррикАктеры: Стивен Ян, Сандра О, Джей Кэй Симмонс, Крис Диамантопулос, Татьяна Маслани, Лэнс Реддик, Грэй ДеЛайсли, Фил ЛаМарр, Стивен Рут, Лорен Коэн, Джейкоб Тремблэ, Жазлин Ионе, Ария КейнПеревод: Дублированный (Flarrow Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63C6D2EFD27D313759B15347DA8C527AE400C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717583   (59091) от 20.04.2024
 
 Исчезновение Харухи Судзумии / Suzumiya Haruhi no Shoushitsu / The Disappearance of Haruhi Suzumiya (2010) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B89C44F7C9646830F2D0E79D2EE824E1B3FC729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726103   (55222) от 27.05.2024
-
-Четыре души Койота / Kojot negy lelke / Four Souls of Coyote (2023) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венгерский анимационный фильм о том, как коренные американцы борются за свою землю, протестуя против строительства нефтепровода на их территории. Индейцы желают жить в гармонии с природой, но нефтяная корпорация жаждет проложить свой нефтепровод через исторические земли, имеющие ценность для коренного населения. Старейшина рассказывает молодым потомкам древний миф (   Читать дальше...   )Производство: Венгрия / Cinemon EntertainmentЖанр: мультфильм, боевик, драма, приключенияРежиссер: Арон ГаудерАктеры: Карин Энглин, Кле Беннетт, Джон Эрик Бентли, Янош Папп, Петер Божо, Герда Пикали, Петер Шерер, Тамаш Селеш, Балинт Вида, Сара ВидаПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:06Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0251F87BEE6301A9188A50787E47CC283E0B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726249   (55215) от 27.05.2024
-
-Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
-По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный, МногоголосыйЯзык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B405C2FCF7B8A6E2E15EE63E4145A813AE5CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726297   (55122) от 28.05.2024
-
-Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.
-По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный (Red Head Sound), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CB9AB1D040538B433D561F5BF9F44031403888
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1063755   (432153) от 17.10.2016
+
+Discovery. Техногеника. Шагающий экскаватор (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шагающий экскаватор «Уралмаш ЭШ 65/100» — самый большой в России и самый мощный в мире экскаватор с традиционным ковшом. Первая цифра в его названии обозначает объем ковша в кубометрах, а вторая — вылет стрелы в метрах. Трудится этот монстр в Тулунском угольном карьере, расположенном в Иркутской области, и из-за невероятных габаритов его издалека видно водителям, (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667C649EA863204A83EB17A399CCEF7BA7B2339F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945769   (431569) от 11.10.2015
+
+Мастера шпионажа / Master Spies (1997) TVRip (3 серии из 3)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У каждой страны есть свои секреты и тайны, а соответственно и свои разведчики и шпионы. Этот сериал расскажет о войне между разведслужбами. Это схватки скрытности, обмана и предательства. Оружие в этом сражении - ум, смелость, отвага и шпионская техника.Телекомпания: DiscoveryЖанр: Документальный, спецслужбы, история, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCCA0FD38B918C760AFBE95E7B7E42A8CC4FF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945735   (431279) от 11.10.2015
 
 BBC Horizon: Человек на Марсе. Экспедиция на красную планету / Man on Mars. Mission to the Red Planett (2014) IPTVRip
@@ -6,7 +58,7 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NGW: Волк против медведя / Wolf vs. Bear (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG. Пропавшие города Амазонии: Легенда стано�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Зыбучие пески: невидимая опасность / Danger Qu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ History Channel: Большая история / Big History (2013) HDTVRip [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Мыши
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_428639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ NGW: Дикая природа Аргентины. Безжалостные го
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_426150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ NGW. Окаванго: Река мечты / Okavango: River of Dreams (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ NG: Леопарды дельты Окаванго / Leopards of Dead Tree Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ NG: Затерянная гробница Александра Великого 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ NGW: Невероятная Африка. Последний лес / Extraordin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,58 +674,6 @@ NGW: Невероятная Африка. Последний лес / Extraordin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ABB81A033E060C09DC53E23F2D37E6D127EDDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166461   (423594) от 17.09.2017
-
-Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глядя на дошедшие до нас памятники древних цивилизаций, трудно поверить, что задолго до появления современных технологий и мощной строительной техники удавалось возводить столь величественные сооружения. Программа Discovery Channel «Взрывая историю» ищет ответ на вопрос, как архитекторам и строителям давних эпох удавалось опередить свое время. С помощью компьютерных (   Читать дальше...   )Производство: США, Windfall Films, Discovery ChannelЖанр: Документальный, наука, история, археологияРежиссер: Джеймс Франклин, Каролин Ли, Том РенсонПеревод: Одноголосый закадровый, профессиональный (Кириллица)Субтитры: отсутствуютПродолжительность: 6 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A4FEF7FF5DF0D2E21F110E792B21AE3515EC18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166429   (423465) от 17.09.2017
-
-Непризнанные / Unacknowledged (2017) WEBRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная лента исследует вопрос о присутствии представителей инопланетной расы на Земле.Производство: США, Auroris MediaЖанр: Документальный, познавательныйРежиссер: Михаэль МаззолаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D690A338148632B461C12862BBDBCA41B4784246
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1242820   (513119) от 24.08.2018
+
+Н.И. Большаков | Источник живой воды (1999 (Репринт 1910 года)) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Великий молитвенник и чудотворец, святой праведный отец Иоанн Кронштадтский (1829—1908) — воистину “источник живой воды” для русского народа, ревностный пастырь Церкви Христовой, Пророк, явленный нашему Отечеству в годину великих испытаний.
+
+Предлагаемое читателю описание жизни и деятельности святого, составленное редактором и издателем журнала “Кронштадтский маяк” (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1403DCC41F4E8230FF94338333923EBC7819DED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242775   (513064) от 24.08.2018
+
+П. Гольбах | Галлерея святых [Исследование образа мыслей, поведения, правил и заслуг тех лиц, которых христианство предлагает в качестве образцов] (1937) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+„Галерея святых" — одно из наиболее значительных произведений Гольбаха, направленных против религии и церкви. Автор проводит перед читателями всех действительных и вымышленных „героев" ветхого и нового завета, „святых" и „отцов церкви", вскрывает истинное лицо насильников, обманщиков, фанатиков и показывает, какой вред их учение и деятельность (   Читать дальше...   )Жанр: История, политология, религиоведение, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E759F5F5D1B527F1DEFD6F672324099FED5E8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242774   (513062) от 24.08.2018
+
+П. А. Павёлкин | Религиозные суеверия и их вред (1951) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Правильное объяснение развития религии можно дать только с позиций революционного рабочего класса, с позиций единственно научного мировоззрения — диалектического и исторического материализма.
+
+«Религия есть опиум народа, — это изречение Маркса есть краеугольный камень всего миросозерцания марксизма в вопросе о религии. Все современные религии и церкви, все и всяческие (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12DD5BCCAA10600BDBE685CB243E2950C611E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242742   (513056) от 24.08.2018
+
+А.З. Лобанова (сост.) | Святой Андрей (2017) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Святых, носящих имя Андрей, в жизни Русской Православной Церкви очень много. Один из них — святой апостол Андрей Первозванный, который был со Спасителем всё время Его земного служения и проповеди. Очень любят и чтут в народе ещё одного святого, наречённого именем Андрей. Это святой благоверный князь Андрей Боголюбский (сын Юрия Долгорукого и внук Владимира Мономаха). (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC67C0FF71046F5314BE878142B92AEE37C246A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931082   (513022) от 25.08.2015
 
 В.В. Степанов | Вавилов Дол. Святая контрреволюция (1930) [DJVU]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,112 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DA449186BB3ED1E51DA1B976938D2F416A3969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243024   (495727) от 25.08.2018
-
-Мария Кикоть | Исповедь бывшей послушницы (2016) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная версия истории бывшей послушницы, прожившей несколько лет в одном из известных российских женских монастырей. Эта книга была написана не для публикации и даже не столько для читателей, сколько прежде всего для себя, с терапевтическими целями. Автор рассказывает, как попробовала идти по пути монашества, попав в образцово-показательный монастырь. Она никак не (   Читать дальше...   )Жанр: Биографии и мемуары, ХристианствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026DF949AB42CD5F52E899D65B8A6E6563D5CB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318393   (494695) от 06.08.2019
-
-Александра Никифорова (сост.) | Святой Стилиан. Молитвы о детях (2013) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494695.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Однажды я проходил мимо церкви святого Стилиана в восточной части Афин. Это было в день памяти святого Стилиана. С удивлением я заметил, как, несмотря на сильный холод, туда стекались сотни родителей с маленькими детьми из близлежащих и отдалённых районов Афин. Я поинтересовался, почему так много детей. Мне ответили: “Святой Стилиан — покровитель детей. Такую благодать (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70161A2AF24F0E716494A0992F3F4638B29563BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243220   (494230) от 26.08.2018
-
-В. Г. Яковлев | «Добро» и «зло» в христианском вероучении (1973) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра посвящена выяснению места и значения религиозной демонологии в христианском духовно-практическом комплексе. Опыт антирелигиозной работы свидетельствует, что «идея бога мира сего» — дьявола играет особенно заметную роль в идеологии и деятельности различных христианских сект. С точки зрения верующих, сущность всемирной истории составляет борьба добра и зла, (   Читать дальше...   )Жанр: История, политология, религиоведение, этикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602816B47EA1E302CBCDAAD279FCAFBB07E2A1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243212   (494220) от 26.08.2018
-
-Н. А. Смирнов (отв. ред.) | Церковь в истории России [IX в. - 1917 г.] (1967) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494220.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой читателю книге освещается экономическое и политическое положение церкви, ее роль в колонизаторской и русификаторской политике царизма, в социальном и национальном угнетении народов, ее участие в подавлении освободительной борьбы и революционного движения, в подавлении свободы совести.
-
-В книге раскрывается реакционная деятельность церкви, направленная (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE6672CB1F8CA8AC13B152AA027E92BE479457E
 ```
 
 https://mybot314.ru/tekegram_catalog/

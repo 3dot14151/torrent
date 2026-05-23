@@ -1,3 +1,30 @@
+###  Публикация: 1342274   (225184) от 01.12.2019
+
+Следи за дорогой / Adopt a Highway (2019) WEB-DL [1080p] (MVO) ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Рассел вышел на свободу, отсидев 20 лет в тюрьме. Он пытается приспособиться к жизни, работая в закусочной и проживая в маленькой убогой квартире. Однажды ночью в мусорном баке он находит младенца и решает заботиться о нем.Производство: США / Divide/Conquer, Blumhouse Productions, Under the InfluenceЖанр: ДрамаРежиссер: Логан Маршалл-ГринАктеры: Итэн Хоук, Крис Салливан, Кристофер Хейердал, Илэйн Хендрикс, Энн-Мари Джонсон, Бетти Гэбриел, Мо, Нат Муни, Дон Норвуд, Милона Джексон, Крис Уильямс, Дайан Маршалл-Грин, Джереми Харрис, Хорхе Диас, Лони ЛавПеревод: Любительский двухголосый (Voice Project Studio)
+Присутствует ненормативная лексика!Субтитры: Русские (FOCS), английскиеПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0DC1D42FCC29F0F9DDC2E85D6EE94F5568E2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342156   (225060) от 01.12.2019
 
 Иные / Freaks (2018) WEB-DL [1080p] ATV
@@ -6,7 +33,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +85,7 @@ VA - Urban Orange Music 1: Downtempo Experience (2020) [AAC|~311 Kbps] <Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -87,7 +114,7 @@ VA - Urban Orange Music 2: Downtempo Experience (2020) [AAC|~316 Kbps] <Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -196,7 +223,7 @@ VA - This Is Soulful House 2 (2019) [AAC|~331 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -225,7 +252,7 @@ VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -254,7 +281,7 @@ VA - Music for Mindfulness, vol. 3 (2019) [AAC|~317 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -283,7 +310,7 @@ VA - Music for Mindfulness, vol. 6 (2021) [AAC|~317 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -312,7 +339,7 @@ VA - Music for Mindfulness, vol. 1 (2017) [AAC|~308 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -341,7 +368,7 @@ VA - Luxury Kingsize Lounge, Vol. 4 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +397,7 @@ VA - This Is Soulful House 3 (2021) [AAC|~316 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -399,7 +426,7 @@ VA - This Is Soulful House 1 (2018) [AAC|~335 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -428,7 +455,7 @@ VA - This Is Soulful House 4 (2021) [AAC|~331 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +484,7 @@ Dabro - Лучшие песни (The Best) (2020) [AAC|~306 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +513,7 @@ De-Phazz - The Instrumental Versions (2021) [AAC|~367 Kbps] <Nu-Jazz, Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -515,7 +542,7 @@ VA - Music for Mindfulness, vol. 4 (2020) [AAC|~323 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -544,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -573,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -599,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -626,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -653,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -679,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -690,32 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BB5EC8331919DF3FC4A38B65B937A23A6AB8F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513520   (223661) от 29.11.2021
-
-Соблазнитель / Kokowaah (2010) BDRip [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Генри страдает от неразделённой любви и творческого кризиса. Как снег на голову на него сваливается предложение о работе над сценарием киноленты, в которой примет участие его бывшая подруга Катарина, в которую он влюблён и поныне. Возникает надежда на второй шанс, но появление восьмилетней Магдалены всё меняет.Производство: Германия / Warner Bros. GmbH, Sat.1, barefoot films, Béla Jarzyk ProductionЖанр: мелодрама, комедияРежиссер: Тиль Швайгер, Торстен КюнстлерАктеры: Тиль Швайгер, Эмма Швайгер, Жасмин Герат, Самуэль Финци, Мерет Беккер, Фридерике Кемптер, Миранда Леонхардт, Анна Юлия Капфельшпергер, Джессика Рихтер, Мишель МатичевичПеревод: ДублированныйСубтитры: русскиеПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB32ED108F11535373032379C8C2C78089B4465
 ```
 
 https://mybot314.ru/tekegram_catalog/

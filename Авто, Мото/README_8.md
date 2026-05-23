@@ -1,3 +1,168 @@
+###  Публикация: 1203205   (788525) от 01.02.2018
+
+Зеленый Ад / The Green Hell (2017) WEB-DL [H.264/1080p-LQ] [VO]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шикарный документальный фильм об истории самого легендарного, требовательного и смертельного гоночного трека в мире - Нюрбургского кольца.Телекомпания: Германия, Moonlake EntertainmentЖанр: Документальный, СпортРежиссер: Ханнес Майкл ШаллеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 1:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FE4D095C2BFD87D66DC2D2C05DF5BD47F252E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274745   (787163) от 18.01.2019
+
+Дакар 2019 вместе с КАМАЗ-мастер (2019) WEB-DL [H.264/1080p-LQ] (Серии 1-14 из 14)
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Великий ралли-рейд "Дакар 2019" вместе с легендарной командой КАМАЗ-мастерПроизводство: КАМАЗ-мастерЖанр: Спорт, АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:10:00 - 00:25:00 — серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE468577E0FB3203F3622B84891CDBAD9BD1C823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274536   (786945) от 19.01.2019
+
+Дакар 2019. Обзор / Dakar 2019 (2019) IPTV [H.264/1080i-LQ] (Этапы 0-10 из 10)
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Дакар-2019" станет первым ралли-марафоном, который пройдет на территории одной страны - Перу. Ранее Аргентина, Чили, Парагвай и Боливия отказались от организации гоночного мероприятия по экономическим соображениям.Телекомпания: Eurosport HD, Матч ТВЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: выпуски по ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D6FE525D3298CF2D9AC2F444C4CF5DD17BEB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388933   (785147) от 08.06.2020
+
+Серия Кубков NASCAR 2020. 10-й Этап. Атланта 500. Гонка / NASCAR Cup Series 2020. Round 10. Folds of Honor QuikTrip 500. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+07 июня 2020 года. Хэмптон (штат Джорджия, США).
+10-й Этап. Атланта 500 (Folds of Honor QuikTrip 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0581045888B393447FC6BEB8C84EFB203958C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390517   (782676) от 16.06.2020
+
+Серия Кубков NASCAR 2020. 12-й Этап. Хоумстед-Майами 400. Гонка / NASCAR Cup Series 2020. Round 12. Dixie Vodka 400. Race (2020) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+14 июня 2020 года. Хоумстед (штат Флорида, США).
+12-й Этап. Хоумстед-Майами 400 (Dixie Vodka 400)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD253C3CE169994824389E8028EFD1BDBDB83392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391993   (770677) от 23.06.2020
+
+Серия Кубков NASCAR 2020. 13-й Этап. Талладега 500. Гонка / NASCAR Cup Series 2020. Round 13. GEICO 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+21-22 июня 2020 года. Талладега (штат Алабама, США).
+13-й Этап. Талладега 500 (GEICO 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D155CAB8485BE084025F139FC32A994A2D128DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393062   (768953) от 28.06.2020
 
 Серия Кубков NASCAR 2020. 14-й Этап. Поконо 325. Гонка / NASCAR Cup Series 2020. Round 14. Pocono Organics 325. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +171,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -232,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -260,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -289,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,178 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:262307BFB0685C038119F4440737883D54A356B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399766   (725074) от 02.08.2020
-
-Формула-2. Сезон 2020. 4-й Этап. Гран-при Великобритании. Гонка 1 (01.08.2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725074.jpg" />
-</div>
-
-
-###  Подробнее
-
-4-й Чемпионат ФИА Формула-2. Сезон 2020 года
-01 августа 2020, суббота. 18:45 МСК
-4-й Этап. Гран-при Великобритании. Сильверстоун (Великобритания)
-Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C10456743EBAFBE8992A3C250D2477C4B12F02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400244   (721292) от 04.08.2020
-
-Серия Кубков NASCAR 2020. 20-й Этап. Нью-Гэмпшир 301. Гонка / NASCAR Cup Series 2020. Round 20. Foxwoods Resort Casino 301. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
-02 августа 2020 года. Лоудон (штат Нью-Гэмпшир, США).
-20-й Этап. Нью-Гэмпшир 301 (Foxwoods Resort Casino 301)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6565CF1F0CA9412A6D2D456B0F6586CAC152D180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400770   (716851) от 06.08.2020
-
-Формула Е 2019-2020. 6-й Этап. еПри Берлина I. Гонка / Formula E Championship 2019-2020. Round 06. Berlin E-Prix I. Race (2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716851.jpg" />
-</div>
-
-
-###  Подробнее
-
-6-й сезон Формула Е 2019-2020 года, чемпионат мира среди автомобилей с электроприводом, признанный Международной автомобильной федерацией (FIA) как самый высший класс электрических гоночных автомобилей с открытыми колесами.
-05 августа 2020, среда. 20:03 МСК
-6-й Этап. еПри Берлина I-1. Берлин (Германия)
-Кругов:	37(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27AE498A893458B009ECE3B26424B3B697E8F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400869   (714768) от 07.08.2020
-
-Формула Е 2019-2020. 7-й Этап. еПри Берлина I. Гонка / Formula E Championship 2019-2020. Round 07. Berlin E-Prix I. Race (2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714768.jpg" />
-</div>
-
-
-###  Подробнее
-
-6-й сезон Формула Е 2019-2020 года, чемпионат мира среди автомобилей с электроприводом, признанный Международной автомобильной федерацией (FIA) как самый высший класс электрических гоночных автомобилей с открытыми колесами.
-06 августа 2020, четверг. 15:00 МСК
-7-й Этап. еПри Берлина I. Берлин (Германия)
-Кругов:	37(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34962626BF30A012D75116FD1BC87EA2DD92C47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401312   (711479) от 09.08.2020
-
-Формула-3. Сезон 2020. 5-й Этап. Гран-при 70-летия. Гонка 2 (09.08.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711479.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-й чемпионат ФИА Формула-3. Сезон 2020 года
-09 августа 2020, воскресенье. 10:45 МСК
-5-й Этап. Гран-при 70-летия. Сильверстоун (Великобритания)
-Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D2B77260A729D45A33EEB979741D40294B1C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401207   (711330) от 09.08.2020
-
-Формула-2. Сезон 2020. 5-й Этап. Гран-При 70-летия. Гонка 1 (08.08.2020) HDTVRip [H.264/720p-LQ] [ hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по авто гонкам в классе Формула 2. Этап 5. Гран-при 70-летия. Гонка 1.
-Арена: Автодром СильверстоунТелекомпания: Матч Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09AAF1B1D3EC3957DFF40DAD5FDC614A36D4900E
 ```
 
 https://mybot314.ru/tekegram_catalog/

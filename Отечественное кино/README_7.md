@@ -1,3 +1,108 @@
+###  Публикация: 1615553   (1037569) от 26.02.2023
+
+Капитан Голливуд (2020) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Летом 99-го в одном из городов на юге России произошел террористический акт — взрыв жилого дома. Трагедия унесла жизни множества людей, дело стало резонансным для всей страны. Расследование возглавил оперативный сотрудник ФСБ — капитан Андрей Верещагин по прозвищу Капитан Голливуд. За работой Верещагина пристально следили начальство и СМИ, любой прокол мог ему дорого (   Читать дальше...   )Производство: Россия | «Кинопрограмма ХХI век»Жанр: детектив, драмаРежиссер: Евгений ТатаровАктеры: Евгений Шириков, Антонина Дивина, Алексей Нестеренко, Владимир Роганов, Артём Мельничук, Анастасия Ярёменко, Алёна Козырева, Евгений Чернорай, Юрий Пимкин, Владимир МалининСубтитры: ОтсутствуютПродолжительность: 01:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B1BA0030EC335A46560CB307F4C5A56F8D2A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441617   (1037377) от 22.01.2021
+
+Ржев (2019) BDRemux [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1942 год. Ржевская битва. После боёв под селом Овсянниково от роты советских солдат осталась только треть. Бойцы пытаются продержаться до прихода подкрепления. Но из штаба поступает приказ удержать деревню любой ценой. Значит, отступать нельзя… Каждый из героев понимает, что выбраться живыми из этого переплёта почти невозможно. В этот момент в Овсянниково, едва не (   Читать дальше...   )Производство: Россия / 3xMedia, KinoallianceЖанр: Военный, Драма, ИсторияРежиссер: Игорь КопыловАктеры: Сергей Жарков, Иван Батарев, Олег Гаянов, Арсений Семёнов, Александр Горбатов, Александр БухаровПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF86A7214D095C53E8B4874D0A582209240AFD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364712   (1037370) от 22.01.2021
+
+Обмен (2019) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Основано на реальных событиях. Сценарий написан по мотиву книги "Люди А" Алексея Филатова. 1997 год. Зима. Москва. Шведское посольство. Один террорист и один заложник.Производство: РоссияЖанр: Короткометражный, драма, криминалРежиссер: Аксинья ГогАктеры: Федор Лавров, Юрий БорисовСубтитры: ОтсутствуютПродолжительность: 00:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9369A88AA8F791C3DC570CEFDB604BCA074D9166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441729   (1037362) от 22.01.2021
+
+Временная связь (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Снято по рассказу Кира Булычёва «Можно попросить Нину?».
+Москва. 2020 год. СМИ предупреждают, что скоро с огромной скоростью рядом с Землёй пронесётся опасный метеорит. Но обеспеченному ресторатору Вадиму всё нипочём, поэтому он не меняет своих планов и спешит отпраздновать покупку нового заведения. По дороге к ресторану Вадим звонит подруге Нине, чтоб пригласить (   Читать дальше...   )Производство: Россия / Кинокомпания Connect FilmЖанр: Короткометражный, фантастикаРежиссер: Дмитрий АболмасовАктеры: Сергей Пускепалис, Софья Лебедева, Наталия Кислицына, Юрий Назаров, Валерий Новиков, Андрей МатвеевСубтитры: ОтсутствуютПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB53C4AC21F1DC83E75FB05BA528D5F25044F2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441860   (1037121) от 23.01.2021
 
 Последствия (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,112 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67FDB5FE10D9C236A0C5770A32438CCE264F8ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444140   (1034855) от 31.01.2021
-
-Комерс (2021) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражный фильм "Комерс" - это история про современные реалии ведения бизнеса в наше время, в котором на каждую рыбку, найдется рыбка побольше.Производство: Россия / Close Up ProductionЖанр: Короткометражный, драма, криминалРежиссер: Алексей НебоженкоАктеры: Александр Ревенко, Наталья Рудова, Василий Шевелилкин, Софья Золотая, Роман Лянчук, Тарас Локотко, Алексей Шраменко, Тимур Бурин, Алексей НебоженкоСубтитры: Отсутствуют
-Внимание! Присутствует ненормативная лексика.Продолжительность: 00:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A335E8FE00707A3137474AA366460E5914C52C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441367   (1034606) от 01.02.2021
-
-Свинцовая Анна (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по рассказу Юрия Буйды.
-60-е годы прошлого века. Провинциальный город. Школьная уборщица, мечтавшая стать балериной, обрела волшебную способность исполнять сложнейшие балетные прыжки. Помог ей в этом странный учитель, преподававшей в этой же школе танцы и пение.Производство: Россия / Gold MediumЖанр: ДрамаРежиссер: Алексей ГоровацкийАктеры: Александр Яцко, Зоя Елагина, Вера Бабичева, Валентин Самохин и др.Субтитры: ОтсутствуютПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47612AEAF284C472014E053655B1D8B55EB229B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444415   (1034579) от 01.02.2021
-
-Менялы (1992) HDTV [H.264/1080i-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остроумная, остросюжетная комедия рассказывает об «авантюре времен денежной реформы» 1961 года, когда «весь многомиллионный советский народ» запустил в космос Гагарина, а иностранцы, «не раздумывая, меняли один американский доллар на 65 советских копеек». «Всего лишь 20 лет отделяли тогда наш народ от светлой эры всего человечества», а два человека тем временем, (   Читать дальше...   )Производство: Россия, США / СЛАВУТИЧ, 12А, TWELVE L.A. Inc.Жанр: КомедияРежиссер: Георгий ШенгелияАктеры: Владимир Ильин, Андрей Пономарев, Вадим Захарченко, Юрий Горин, Валентина Теличкина, Оксана Мысина, Ренат Давлетьяров, Наиль Идрисов, Олег Дурыгин, Алла МещеряковаСубтитры: ОтсутствуютПродолжительность: 01:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27550F55BF39BDA1B66EA25BB03178DA95B63864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443992   (1034506) от 01.02.2021
-
-Молодое вино (2019) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивая и уверенная в себе Мила пытается найти жениха тихой и застенчивой Любе. Однажды вечером они едва уносят ноги от местной шпаны и оказываются в уютном домике местного парня Славы. Здесь же их находит любимец женщин Коля, с которым у Милы когда-то был роман. В итоге незаметная и неудачливая Люба уводит любимого человека у яркой и успешной Милы и уезжает с ним (   Читать дальше...   )Производство: Россия | «Hit Film Production»Жанр: ДрамаРежиссер: Петр ОлевскийАктеры: Катерина Шпица, Валерия Бурдужа, Нил Кропалов, Данила Рассомахин, Екатерина Волкова, Александр Яценко, Анастасия Стежко, Анна Любименко, Майя Чухланцева, Денис СвистунПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0D8B446D35C744CFC3938395F9770B58BDA0D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

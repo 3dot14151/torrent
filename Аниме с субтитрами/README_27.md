@@ -1,3 +1,111 @@
+###  Публикация: 639368   (892971) от 04.04.2013
+
+Shiranpuri / Minding My Own Business [2012, TV-special] HDTV 720p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это история о жизни школьника, которого шпыняют свои же одноклассники. Он только наблюдает со стороны, когда некоторые из его одноклассников издеваются над другим слабым мальчиком. Не вмешивается, чтобы спасти себя от превращения в мишень.Жанр: комедия, приключенийРежиссер: Миясита Симпэй / Miyashita ShinpeiПеревод: Amarillis | Dreamers TeamЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 25 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371340   (892036) от 30.03.2020
+
+Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+26 лет назад братья Тацуя и Кадзуя Уэсуги впервые привели школу Мейсей на Национальные соревнования по бейсболу среди старших школ Японии, и она победила на Кошиене. С тех пор школьная команда не показывала высоких результатов, но теперь талантливые сводные братья Тоума и Сейчиро Тачибана стремятся вернуть Мейсей на Кощиен. Снова попасть туда будет непросто, тем (   Читать дальше...   )Производство: Студия OLM / オー・エル・エムЖанр: повседневность, романтика, спортРежиссер: Ватанабэ ОдахироПеревод: naiveЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A352EA57C32E67D3589DE249FD21DA34F0CB3933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061996   (892016) от 08.02.2017
+
+Отважные ведьмы / Brave Witches [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Второе ответвление. (Strike Witches)
+
+В конце ХХ века планету ожидала военная катастрофа. Новый враг пришёл неожиданно, и был невероятно силён. Естественно, люди не знали способов борьбы с ним – на тот момент простые военные технологии были бесполезны. Прозванный Невроем, враг беспощадно разрушал всё на своём пути. Выжженные земли, бездушные руины – вот всё, что (   Читать дальше...   )Жанр: приключенияРежиссер: Такамура КадзухироЯзык озвучки: ЯпонскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18063C4520629E9BC94C4733D8A77D5C7BD59166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762412   (891911) от 02.03.2014
+
+Musekinin Kanchou Tylor | The Irresponsible Captain Tylor | Безответственный капитан Тайлор [1993,TV, 26] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Джасти Уэки Тайлор не может похвастаться ничем - ни профессиональными навыками, ни лидерскими качествами, ни быстротой мышления. Зато он обладает невероятным везением, которое перекрывает все недостатки, раз за разом выручая его в жизненных передрягах. По чистой случайности Тайлор оказывается спасителем любимых внучек самого адмирала, командующего Космическим Флотом Объединённых Планет. И в благодарность за это тот производит бездельника Тайлора сразу в капитаны, назначив под его командование славный эсминец "Ветерок". Сбылась мечта Тайлора - блестящая карьера, беззаботное существование в почёте и достатке...
+
+Но старый адмирал оказался не таким уж безумным. Эсминец "Ветерок", позор всего флота и свалка всех его человеческих отбросов, можно было назвать славным только в издёвку. Назначив Тайлора его капитаном, старик убил сразу двух зайцев - и дал "награду" за спасение внучек, и закрыл чёрную дыру, где дела были столь плачевны, что испортить что-либо уже не представлялось возможным. (   Читать дальше...   )Жанр: приключения, комедия, фантастикаРежиссер: Масимо КойтиПродолжительность: 26 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38041C6536157BA4C4B185902C8445ADED14C54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371236   (891769) от 30.03.2020
 
 Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращение и покажи трусики 2 [2019, OVA, 6] BDRip 1080p raw
@@ -6,7 +114,7 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +141,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +167,7 @@ Housekishou Richard-shi no Nazo Kantei | The Case Files of Jeweler Richard | З�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +194,7 @@ ID:Invaded | ID: Вторжение [2020, TV, 13 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +220,7 @@ Aria The OVA: Arietta | Ария OVA-1 [2007, OVA] BDRip 716p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +246,7 @@ Aria The Natural | Ария (второй сезон) [TV-2][2006, TV, 26 эп. 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +272,7 @@ Aria The Origination | Ария (третий сезон) [TV-3][2008, TV, 13 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +298,7 @@ Golden Time / Золотая пора [2013, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +324,7 @@ Aria The Animation | Ария (первый сезон) [TV-1][2005, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +352,7 @@ Higurashi no Naku Koro ni: Gou | Higurashi: When They Cry - Gou | Когда п�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +378,7 @@ Denpa Onna to Seishun Otoko | Радиосигнал от чудачки, Юно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_890514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +404,7 @@ Gekijouban Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer the Movie: Mugen Tr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +432,7 @@ Ijiranaide, Nagatoro-san | Don't Toy With Me, Miss Nagatoro | Не издева�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +459,7 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +485,7 @@ Gekijouban Blood-C: The Last Dark / BLOOD-C: Последний Тёмный [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +515,7 @@ Aria the Avvenire | Ария: Будущее [2015, OVA, 3 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +544,7 @@ Ixion Saga: Dimension Transfer / ИКСИОН САГА: Пространстве
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +572,7 @@ Kud Wafter | Куд Вафтер [2020, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -493,7 +601,7 @@ Uchuu Senkan Yamato 2199 | Star Blazers 2199 | Space Battleship Yamato 2199 | К
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -519,7 +627,7 @@ Aria the Crepuscolo | Ария: Сумерки [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -545,7 +653,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, Web, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,7 +680,7 @@ Jashin-chan Dropkick | Dropkick on My Devil! | Пинок с наскока Дз
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,110 +691,6 @@ Jashin-chan Dropkick | Dropkick on My Devil! | Пинок с наскока Дз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A635CC97721A54CCBEC857C9EE6022740F05DA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371866   (888377) от 01.04.2020
-
-Batman Ninja | Бэтмен-ниндзя [2018, Movie] BDRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Горилла Гродд, заклятый противник Бэтмена, создаёт машину перемещения во времени и с её помощью закидывает Тёмного Рыцаря, включая некоторых его союзников и многих злейших врагов, во времена феодальной Японии. Там его враги принимают на себя роли феодальных вассалов с Джокером во главе угла. Привычные высокотехнологичные гаджеты Бэтмена становятся здесь бесполезны, (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Мидзусаки ДзюмпэйПеревод: UGN SUBZ Translators (субтитры сделаны под английскую озвучку)Язык озвучки: #1: Японский; #2: Английский;Субтитры: #1: Русские; #2: Английские;Продолжительность: 85 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBF0892EAF1E8FF9DF3EA6F3CC6D3AF884B499C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308175   (888329) от 01.04.2020
-
-Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на человечество напали загадочные летающие объекты Дзай, понадобилось оружие для противостояния им. Так началась разработка особых истребителей Дочерей, пилотами которых стали похожие на девушек механизмы Анимы. Старшеклассник Кэй Нарутани плыл в Японию, когда на корабль напал Дзай. Во время эвакуации Кэй видит светящийся красным истребитель, который сбивает (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: приключенияРежиссер: Оно КацумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074CD6AE070E272F074D49567E50E4BEEF71C428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354840   (888115) от 01.04.2020
-
-Runway de Waratte | Smile Down the Runway | Улыбайся на подиуме [2020, TV, 12] WEBRip 720p Raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888115.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Чиюки Фудзито есть мечта — стать моделью и выступить на неделе моды в Париже. Но героиня столкнулась с большой проблемой, которая, казалось, может поставить крест на мечте: её рост остановился на 158 см. У её одноклассника, бедного парня по имени Икуто Цумура, тоже есть мечта — стать модельером. Это история о двух людях, которые искренне следуют за своими мечтами, (   Читать дальше...   )Производство: EzolaЖанр: повседневностьРежиссер: Нагаяма НобуёсиПеревод: Wakanim (дехардсаб legion-mia)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB950D243CADD232E6CAAA66C39DDEFF0188ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350928   (887914) от 01.04.2020
-
-Pet | Питомец [2020, TV, 13 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существуют в мире люди, обладающие способностью проникать в разум людей и управлять их воспоминаниями. Такие способности очень полезны для решения загадок и раскрытия преступлений, но страшно то, что их можно также использовать и для убийств. Мощь подобных способностей может быть настолько велика, что в состоянии просто-напросто уничтожить человеческий разум. Однако (   Читать дальше...   )Производство: Geno StudioЖанр: мистика, психология, сверхъестественное, сэйнэнРежиссер: Омори ТакахироПеревод: Arashi-sama & Nika_Elrik (YakuSub Studio)Язык озвучки: ЯпонскийПродолжительность: 13 эпизодов по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E6B5FFAD737F5D8F8E7702D6E4EE07DE087674
 ```
 
 https://mybot314.ru/tekegram_catalog/

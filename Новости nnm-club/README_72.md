@@ -1,3 +1,186 @@
+###  Публикация: 1504249   (809473) от 24.10.2021
+
+Петровы в гриппе (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Петровы — самая обычная семья. Он — автослесарь, она — библиотекарь, у них есть сын, но вместе они не живут. Казалось бы, ничего особенного. Но повседневная реальность взрывается в тот момент, когда семья заболевает гриппом, и жизнь наполняется безумием, фантастикой и сюрреализмом.Производство: Россия, Франция, Швейцария, Германия, Фонд «Кинопрайм», Bord Cadre Films, CharadesЖанр: драма, фантастикаРежиссер: Кирилл СеребренниковАктеры: Семён Серзин, Чулпан Хаматова, Юлия Пересильд, Юрий Колокольников, Юра Борисов, Иван Дорн, Александр Ильин мл., Сергей Дрейден, Тимофей Трибунцев, Владислав СемилетковПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B712E26627AE63CB1F9A1FC21079D722556271F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503342   (809471) от 24.10.2021
+
+KMS Tools Portable by Ratiborus 18.10.2021 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BACC253697ECFB157DB2F8940CAF6DBE47D173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504154   (809470) от 24.10.2021
+
+Дюна / Dune (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: Венгрия, Канада, США, Legendary Pictures, Villeneuve Films, Warner Bros.Жанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный (iTunes) Профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (Forced, full), английские (full, SDH)Продолжительность: 02:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA70A96FBFA062FDA51A80308DD6A8BF3806DADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078196   (809397) от 10.01.2018
+
+Darksiders (2016) [Ru/Multi] (1.0.2679) Repack =nemos= [Warmastered Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Поддавшись лживым вестям сил зла о конце света, один из четырех всадников апокалипсиса, Война, обвиняется в нарушении священного закона и провоцирования войны между Раем и Адом. В невероятных битвах, проходивших во время той войны, победу одержали силы зла - и они же потребовали власти над Землей.Тип издания: RepackРазработчик: KAIKO, Vigil GamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285283475581C4E9DCA75D945BBD3DC34EDF37AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198224   (809394) от 10.01.2018
+
+HTML Academy | Интенсивный онлайн-курс «Базовый HTML и CSS» (2017) PCRec [H.264] [Обновленная программа]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+HTML Academy — стандарт в обучении фронтендеров. Наша задача — сделать из любого новичка полноценного и востребованного специалиста, готового работать в веб-индустрии.Жанр: Веб-дизайн, HTML, CSSПродолжительность: 26:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DA8FCED37B5A8405FA044CDE9FCADD3FFED158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197359   (809391) от 10.01.2018
+
+Яркость / Bright (2017) WEBRip [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Лос-Анджелесе, в вымышленном фантастическом мире, где царствуют не только высокие технологии, но и магия. В городе бок о бок с людьми живут эльфы, орки и другие сверхъестественные существа. Главный герой служит в полицейском департаменте, в специальном отделе, занимающимся раскрытием преступлений, в которых замешаны магические силы. Пытаясь (   Читать дальше...   )Производство: США, Clubhouse Pictures (II), Overbrook Entertainment, NetflixЖанр: Фантастика, Фэнтези, Триллер, БоевикРежиссер: Дэвид ЭйрАктеры: Уилл Смит, Нуми Рапас, Джоэл Эдгертон, Люси Фрай, Джей Эрнандес, Эдгар Рамирес, Айк Баринхолц, Вероника Нго, Хэппи Андерсон,  Брэд Уильям ХенкеПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские (форсированные, полные), английскиеПродолжительность: 01:57:46Реклама: Без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C5CD6FB91264633B2D8C2EE15F14048F8AFC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383363   (809248) от 16.05.2020
+
+Cимуляторы офисных звуков с чавкающими коллегами и скрипящими креслами
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кому не хватает болтовни коллег, жужжащего принтера и скрипящих кресел мы собрали 3 сайта-симулятора офисного шума.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383627   (809234) от 16.05.2020
 
 Windows 10 Pro 1909 b18363.836 x64 ru by SanLex (edition 2020-05-15) [Ru]
@@ -6,7 +189,7 @@ Windows 10 Pro 1909 b18363.836 x64 ru by SanLex (edition 2020-05-15) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +241,7 @@ Uninstall Tool 3.4.5 Build 5430 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +267,7 @@ UC Browser 5.6.11651.1013 Portable by Sitego [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +321,7 @@ WinPE 10 Sergei Strelec (x86/x64) 2016.04.21 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +347,7 @@ Nero 2016 Platinum 17.0.04500 Retail + ContentPack [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +399,7 @@ Jetbrains PhpStorm 2017.1 Build #PS-171.3780.104 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +426,7 @@ Geekbrains | PHP. Уровень 1 Основы веб-разработки (201
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +507,7 @@ Skype 8.13.0.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +559,7 @@ BioShock Remastered Dilogy (2016) [Ru] (1.0.122872/1.0.122864) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +585,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +611,7 @@ Opera Developer 38.0.2205.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_807032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -483,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,191 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB930070E9F94DD5620F69E7EFEE51B1F1090D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119547   (806652) от 28.03.2017
-
-Mozilla Firefox 52.0.2 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5E446852E01D25366BBA431171EF56719C5561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119141   (806643) от 28.03.2017
-
-Мираж - Снова вместе (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Млечный путь [4:28]
-02. Где я [4:40]
-03. Море грёз [4:33]
-04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BE4841B3DD9E405FC339282FF55786A72AB2149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119035   (806638) от 28.03.2017
-
-Проекты - VideoHive - Backstage Promo - 17258484 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамичной презентации, состоящей из трех вариантов различной продолжительности.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E3DADC29E5677B14B51C0A8EF0D9C13795E9A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119599   (806556) от 28.03.2017
-
-Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) BDRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Великобритания / Allison Shearmur Productions, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Диего Луна, Алан Тьюдик, Донни Йен, Вэнь Цзян, Бен Мендельсон, Форест Уитакер, Риз Ахмед, Мадс Миккельсен, Джимми СмитсПеревод: Дублированный (iTunes)Субтитры: Русские (форсированные, полные),  Английские (Full, SDH)Продолжительность: 02:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA663955FA6883479F0186276F5C4268884CA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829731   (806464) от 03.04.2015
-
-Cross Ange: Tenshi to Ryuu no Rondo | Крест Анжи: Танец ангела с драконом [2014, TV, 25 эп.] HDTV 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806464.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом мире все владеют маной – магической энергией, позволяющей творить чудеса и вести безбедную жизнь. Правда, изредка рождаются «нормы», не способные использовать ману – таких убивают или изгоняют, их не считают за людей. Все это отлично знала Анжелиза, 16-летняя наследница трона империи Мисуруги. Но даже в страшном сне девушка не могла заподозрить, что она – (   Читать дальше...   )Жанр: приключения, меха, юриРежиссер: Асино ЁсихаруСубтитры: русские отПродолжительность: 25 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A656A4112C5E202535940B20BF19923965D2D2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884146   (806459) от 03.04.2015
-
-Игра в имитацию / The Imitation Game (2014) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1941 год. Английскому математику Алану Тьюрингу поручено расшифровать секретный код Третьего рейха — Enigma. Тьюринг действует по поручению Британской разведки в центре, специализирующемся на взломе шифров и кодов. Для выполнения сверхсекретного задания здесь собрана целая команда талантливых ученых, которым предстоит создать первый в мире компьютер.Производство: Великобритания, США / Black Bear Pictures, Bristol AutomotiveЖанр: Триллер, Драма, Военный, БиографияРежиссер: Мортен ТильдумАктеры: Бенедикт Камбербэтч, Кира Найтли, Мэттью Гуд, Рори Киннер, Аллен Лич, Мэттью Бирд, Чарльз Дэнс, Марк Стронг, Джеймс Норткот, Том Гудман-ХиллПеревод: Дублированный (Лицензия «R5»), Одноголосый закадровый, любительский (А.Матвеев)Субтитры: Вшитые отключаемыеЯзык субтитров: Русский (Full / А.Матвеев), Украинский (Full), Английский (Full, SDH, SDH-Colored)Продолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8B2A3F4DC94C8296ECE745C5F859CC6ADA894D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884428   (806454) от 03.04.2015
-
-War for the Overworld (2015) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806454.jpg" />
-</div>
-
-
-###  Подробнее
-
-War for the Overworld – стратегия в реальном времени, вдохновленная такими известными проектами как Dungeon Keeper, Overlord и Evil Genius. В War for the Overworld вы выступите в роли владыки подземного царства, задача которого укрепить и максимально развить свою империю зла. Стройте огромные подземелья, командуйте армиями злобных прислужников, создавайте ужасные (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Subterranean GamesЖанр: Strategy (God Sim / Real-time) / 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, русский, французский, итальянский, немецкий, испанский, польскийЯзык интерфейса: Английский, русский, французский, итальянский, немецкий, испанский, польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B66D4639AAEFDB688D76C11927A5AAE08752C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

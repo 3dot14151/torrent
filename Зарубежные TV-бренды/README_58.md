@@ -1,3 +1,55 @@
+###  Публикация: 1230087   (618964) от 10.06.2018
+
+NGW: Там, где встречаются океаны / Where Oceans Collide (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Совершите вместе с нами путешествие в Центральную Америку, этот своеобразный кластер из шести стран, расположившихся на территории, являющейся домом для самых разнообразных представителей дикой природы.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид ХэмлинПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCED9C4BE651C8CE0C32C3E4446598AF640F106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032770   (618734) от 21.07.2016
+
+BBC. Преступники Британии: разбойники, пираты и бандиты / BBC. Britain's Outlaws: Highwaymen, Pirates and Rogues (2015) HDTVRip (1-3 серия из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Несколько исторических фигур Британии запомнились людям как беззаконники. Благодаря своим дерзким выходкам и романтике жизни вне закона разбойники, удалые пираты, неуловимые городские воры и бандиты стали самыми известными антигероями своего времени. Их боялись богачи, ими восхищались бедные, а писатели посвящали им книги. В этом трехсерийном фильме доктор исторических (   Читать дальше...   )Телекомпания: Великобритания, ВВСЖанр: Документальный, познавательный, историяПеревод: ДублированныйПродолжительность: 3 х ~ 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA249C48939917C4D2EC61E103E1ED1AAAFEFED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522035   (618345) от 15.07.2012
 
 NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012) HDTVRip
@@ -6,7 +58,7 @@ NG.Запреты: Подростковый секс / NG.Taboo: Tenn Sex (2012)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: 42 способа убить Гитлера / National Geographic 42 Ways to
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_618066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG. Эвакуация Земли / Evacuate Earth (2013) HDTVRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_616957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ BBC: Выдающиеся женщины ХХ столетия. Жозефина
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG: Осушить океан: глубокое погружение. Сабот
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NGW: Акула против тунца / Shark vs Tuna (2018) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ History Channel: Жизнь после людей / Life After People (2009) HDT
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Discovery: Головоломы (Мозголомы): Насилие над на
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ NG: С точки зрения науки: Магнитное поле Земл�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTVRip [Сер
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Discovery. Ванная под ключ / King of Thrones (2013) HDTV [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ NGW: Самые опасные животные Африки: Ботсвана /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ History Channel. Бойцовский клуб Юрского периода / J
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ NG: Суперсооружения: Мегазаводы. Бакарди / MegaS
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +589,7 @@ Animal Planet: Земля динозавров (Юрский период) / Whe
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +615,7 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTV 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +667,7 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +678,6 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:518B36A3D5F0CB1E37EF2FB44402B798517218D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296333   (613301) от 16.04.2019
-
-Animal Planet. Человек и львы (История одного сафари) / The Lion Man: One World African Safari (2013) HDTVRip [H.264/720p-LQ] (серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крейг Буш вырос на ферме и сам научился всем премудростям общения с большими кошками. Крейг помогает ловить браконьеров и бороться с лесными пожарами. В заповеднике под Йоханнесбургом он создал рай для редких представителей кошачьих: белых бенгальских тигров, барбарийских львов и белых львов. Крейг Буш вместе с группой энтузиастов, посвятивших свою жизнь животным, (   Читать дальше...   )Производство: США, One World Pictures, New Visions Pictures, Animal PlanetЖанр: Документальный, природа, флора, фаунаРежиссер: Грэм СвейнполПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: серии x ~ 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6A506DCE1993F3DDE4FC3AA71F59CF5D1CB26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524491   (613064) от 18.07.2012
-
-NG: Explorer (Исследование). Наука о кошках / Explorer. Science of Cats (2008) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это единственный зверь, который одомашнил себя сам. Однажды кошка, которая гуляет сама по себе, вышла из леса и приняла нас на своих условиях. С тех пор кошки остаются самыми своенравными домашними животными. Сегодня они населяют буквально все уголки нашей планеты, но остаются одновременно любящими и равнодушными, дикими и в то же время ручными. И теперь исследователи попробуют расшифровывать генетический код этого уникального животного, чтобы узнать, что же на уме у кошек, и как же дикий хищник превратился в домашнего зверя?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAA69E0DCC6F68E781B25B12D5C8DB566857319
 ```
 
 https://mybot314.ru/tekegram_catalog/

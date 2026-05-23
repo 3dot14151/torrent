@@ -1,3 +1,107 @@
+###  Публикация: 1097641   (913876) от 27.01.2017
+
+Полцарства за любовь (2014) WEB-DLRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Кристина, студентка английского университета, приезжает на каникулы в дом к своему отцу, успешному бизнесмену. Мужчина давно потерял жену и знакомит дочку со своей новой любовью Натальей. Однако взбалмошная, избалованная, привыкшая к роскоши и легким деньгам Кристина не желает принимать ее.Производство: Россия / "Русское"Жанр: МелодрамаРежиссер: Александр ХванАктеры: Юлия Паршута, Сергей Марин, Владимир Литвинов, Анна Полупанова, Татьяна Чернопятова, Татьяна Ухарова, Ангелина Притуманова, Анастасия ИсаковаПродолжительность: 01:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAED78FB5ED0D11896E2E96A1B7164A4C64C70F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491076   (913745) от 23.08.2021
+
+Воскресенье (2021) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Случайная или не случайная встреча двух старых друзей. Один из друзей художник, другой киллер, между ними давно растет вражда.Производство: РоссияЖанр: Короткометражный, триллер, драмаРежиссер: Вячеслав КомаровАктеры: Вячеслав Комаров...Субтитры: английские (хардсаб)Продолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEED5CB21CCBFE3CB40AE599CFC05A3316E54EE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367845   (913716) от 17.03.2020
+
+Ты у меня одна (1993) WEB-DL [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Бывший боксер, а ныне — рядовой инженер, Евгений Тимошин получает возможность изменить свою жизнь к лучшему. Его зовет с собой в Америку молодая, красивая, богатая женщина, которая с детства в него влюблена. Но Тимошин любит свою жену, и никогда не мечтал об Америке…Производство: Россия / Astur Company, Informpresservice, ЛенфильмЖанр: ДрамаРежиссер: Дмитрий АстраханАктеры: Александр Збруев, Марина Неёлова, Светлана Рябова, Марк Горонок, Мария Лобачева, Ксения Морозова, Виктор Гоголев, Ирина Мазуркевич, Александр Лыков, Артур ВахаСубтитры: ОтсутствуютПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DC05AAB759A8C473156F8EB25DCB6A0A25CA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097523   (913534) от 27.01.2017
+
+28 панфиловцев (2016) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Осенью 1941-го года немецкие части, стоявшие возле Волоколамска, отделяло от Москвы каких-нибудь два часа по шоссе. Однако, на этом шоссе стояла 316-я стрелковая дивизия под командованием генерала И. В. Панфилова. Этот военачальник обладал настолько высоким авторитетом среди личного состава, что бойцы дивизии сами называли себя панфиловцами. А дивизию — панфиловской.Производство: Россия / 28 панфиловцев, Libyan Palette StudiosЖанр: военный, драмаРежиссер: Ким Дружинин, Андрей ШальопаАктеры: Александр Устюгов, Яков Кучеревский, Азамат Нигманов, Олег Фёдоров, Алексей Морозов, Антон Кузнецов, Алексей Лонгин, Максим Белбородов, Дмитрий Мурашев, Виталий КоваленкоПеревод: Не требуется (русский) ЛицензияПродолжительность: 02:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DDD283697CCB31796DB124FE8AFD51E312A0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367658   (913397) от 17.03.2020
 
 Без меня (2018) BDRemux [H.264/1080p] [GER Transfer]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6943019B2989C40D9B445B58B7D0DB72EF92C3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098315   (908505) от 30.01.2017
-
-Когда цветет сирень (2010) WEBRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня живет в крошечной квартирке со своей пожилой матерью и маленьким сыном. Чтобы содержать семью, она вынуждена много работать, и времени на личную жизнь у нее практически не остается. Подруга героини, домработница в богатой семье, чтобы хоть немного развлечь приятельницу, зовет ее в гости к друзьям своего жениха. Вот тут-то и начинается самое интересное…Производство: Россия / "ГТК Телеканал Россия"Жанр: МелодрамаРежиссер: Сергей БорчуковАктеры: Людмила Курепова, Юлия Агафонова, Андрей Барило, Василий Брыков, Антон Макарский, Ольга Дибцева, Елена Захарова, Александр Пороховщиков, Валентин Терехов и др.Продолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75395F9D303FB77198635A396162A3E09717730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098277   (908396) от 30.01.2017
-
-Девочка (2008) WEBRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лена Ярцева, московская школьница. У нее обычная семья со скромным достатком. Лена любит мечтать о красивой жизни и много времени проводит в ближайшем торговом центре, где царство грез, а из зеркала смотрит ее отражение — обычно одетой девочки. Слишком велика разница между ее желаниями и возможностями родителей. Максимализм, ярость, вспыльчивость берут свое: Лена (   Читать дальше...   )Производство: Россия / Студия Арт-БазарЖанр: Драма, МелодрамаРежиссер: Елена НиколаеваАктеры: Елена Николаева, Александр Лазарев мл., Евдокия Германова, Сергей Беляев, Татьяна Догилева, Мария Порошина, Евгения Дмитриева, Лаура Кеосаян, Кристина Бабушкина, Михаил Владимиров и др.Продолжительность: 02:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87804DE0C442AFE28D65F7395DC085409B68274F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098842   (908387) от 30.01.2017
-
-Другой берег (2014) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блистательная Ксения Конюхова, выпускница консерватории и МГИМО, отзывается от карьеры дипломата и возвращается в родной городок из-за болезни отца. Там ее жизнь круто изменяется: она начинает свой бизнес, выходит замуж и становится одной из самых преуспевающих женщин. У нее есть все: семья, верная подруга, большой дом, деньги. Ксении завидуют. Многим кажется, что (   Читать дальше...   )Производство: РоссияЖанр: ДрамаРежиссер: Владимир Басов мл., Ольга БасоваАктеры: Леонид Архангельский, Мария Аниканова, Егор Баринов, Андрей Казаков, Полина Филоненко, Анна Скиданова, Никита ПикаловПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A61785342BFCB5B123C10B9DFAFD12E7177841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491767   (908344) от 26.08.2021
-
-Первый контакт (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отделение Российских солдат отправилось на учебное задание в густые леса Кольского полуострова. Но то, что началось как обычные армейские учения, превратилось в настоящую бойню. Бойцы столкнулись с нечто неизвестным...Производство: Россия / Bomba ProductionЖанр: Короткометражный, боевикРежиссер: Андрей НагорныхСубтитры: ОтсутствуютПродолжительность: 00:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB24235BA83C8B320450F03F2051BB1C4164B805
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1426855   (185266) от 26.11.2020
+
+Yuurei Yashiki | Призрак замка [1990, Special, 1 эп.] WebRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Небольшая короткометражка по мотивам произведения Оскара Уайльда "Кентервильское привидение".
+
+Семья американского посла переезжает в старый замок, в котором обитает злобное приведение. Неупокоенный дух пытается строить всяческие козни новым жильцам, но добрый нрав и радушие семьи помогут ему обрести покой.Производство: студия GakkenЖанр: приключенияПеревод: World_Houp & Аццкий КритегЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 20 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C4F3877F6ECC977ED75C6F65328339AA9B26A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426857   (185192) от 26.11.2020
+
+It's My Life | Это моя жизнь! [2019, OVA, 1 эп.] DVDRip 576p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Астра Люгер Думсдэй, бывший капитан королевский рыцарей исполнил свою давнюю мечту после завершения службы отправиться подальше от столицы и зажить тихой и спокойной жизнью в сельской глуши. Однажды Астра решил устроить распродажу различного барахла, скопившегося за долгие годы службы. Ну и конечно, на барахолку к нему заглянули его бывшие соратники и давние друзья. (   Читать дальше...   )Производство: студия Creators in Pack / クリエイターズインパックЖанр: приключенияРежиссер: Хирасава ХисаёсиПеревод: GJM; KajitsuЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 1 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B206FF5A78257B26F58C606C4E298006065C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198783   (184743) от 26.11.2020
+
+Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Двадцатилетняя Мичиру Амацуки переезжает в Токио ради трудоустройства. Вселившись в женское общежитие, она находит трёх новых подруг: консультанта в магазине одежды, организатора свадеб и студентку. Это история об их жизнях, а также их беседах во время распития спиртного.
+
+В данном произведении демонстрируются сцены с употреблением спиртных напитков. Чрезмерное употребление (   Читать дальше...   )Производство: Студия Production IMS / プロダクションアイムズЖанр: комедия, повседневностьРежиссер: Кобаяси ТомокиПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 12 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63FC307A69221155D0356B1CD65F05B295A74C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592366   (184442) от 21.11.2022
+
+I'll/CKBC | I'll/Crazy KOUZO Basketball Club | Лихая баскетбольная команда Кодзу [2002, OVA, 2 эп.] DVDRip 392p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Два мальчика, Тачибана и Хираги, однажды играли в соперничиских командах в баскетбол. Вскоре Хираги переходит в школу Тачибаны и попадает в ту же баскетбольную команду. Они начинают играть как товарищи одной команды, но семья Хираги, где отец - тренер баскетбольной команды, а старший брат - профессиональный игрок, хотят, чтобы он играл в команде более высокого уровня. (   Читать дальше...   )Производство: Студия M.S.C. / エム・エス・シーЖанр: приключения, спортРежиссер: Кавасаки ИцуроПеревод: SergoЯзык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 2 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCC59C16B3BA9FBE9E6FDC8589BB99BE6265EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627673   (184192) от 27.09.2023
 
 Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жертвенная принцесса и король зверей [2023, TV, 24 из 24] WEBRip 720p raw
@@ -6,7 +114,7 @@ Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жерт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +140,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +166,7 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +192,7 @@ Birdie Wing: Golf Girls Story | История гольфисток [ТВ-1] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +220,7 @@ Ayane-chan High Kick | Ayane's High Kick | Высокий удар Аянэ [199
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +246,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +272,7 @@ Shiro Seijo to Kuro Bokushi / Saint Cecilia and Pastor Lawrence / Святая �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -190,7 +298,7 @@ Kuromukuro | Чёрная сталь [2016, TV, 26 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -216,7 +324,7 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -245,7 +353,7 @@ Hataraku Maou-sama!! 2nd Season / The Devil is a Part-Timer!! 2nd Season / По�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -274,7 +382,7 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -300,7 +408,7 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -328,7 +436,7 @@ Mahou Sensei Negima! Anime Final Gekijouban | Волшебный учитель 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +462,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -380,7 +488,7 @@ Mugen no Juunin: Immortal | Blade of the Immortal | Клинок бессмер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -406,7 +514,7 @@ Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) | Девушка на час [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -432,7 +540,7 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -458,7 +566,7 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -486,7 +594,7 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -512,7 +620,7 @@ Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today | К
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -538,7 +646,7 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi / Story of a Small Senior in My Comp
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -564,7 +672,7 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -575,111 +683,6 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3059E785624B46D6D4909D1D51ED06BB47705D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427877   (180642) от 01.12.2020
-
-Hatsukoi Monster | First Love Monster | Моя первая любовь - монстр [2016, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никайдо Кахо — любимая дочь богатых родителей, умница, красавица, которой все всегда старались угодить. Однако безоблачное существование нарушается в первый же день в новой старшей школе: у ворот общежития Кахо почти сбивает грузовик, и только внезапное появление неизвестного парня спасает девушке жизнь. Ну как тут не влюбиться? Покоренная такой самоотверженностью, (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: комедия, романтикаРежиссер: Инагаки ТакаюкиПеревод: YakuSub Studio (Nika_Elrik, SeshaRim, Nagaki)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12EF0E16A137176C12FBA510267F3B4A3555FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593545   (180422) от 27.11.2022
-
-Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца богов [2021, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анна — 12-летняя девочка, рожденная потомком богов. У ее семьи есть миссия доставить подношения со всей Японии на собрание богов в Идзумо. Хотя мать Канны должна была завершить миссию, ее смерть побудила Канну закончить остальное, надеясь, что она сможет воссоединиться со своей мертвой матерью в стране богов в конце своего путешествия.
-Что такое месяц Камьяри? Японцы (   Читать дальше...   )Производство: Студия Liden Films / ライデンフィルムЖанр: драмаРежиссер: Сираи ТаканаПеревод: официальный (Netflix)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:375A26FCB6691A7A6D93C348F9C3D5F3893F95ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593924   (179798) от 28.11.2022
-
-Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [2021, TV, 24 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция XIX века, мир, где бок о бок с людьми живут вампиры. Один из них - Ной - прибыл в Париж, чтобы отыскать некую проклятую книгу. Но во время инцидента, произошедшего на дирижабле, он знакомится с человеком, который называет себя вампирским доктором. Встреча с ним становится началом истории о проклятье и спасении.Производство: Студия Bones / ボンズЖанр: приключения, фэнтезиРежиссер: Итамура ТомоюкиПеревод: официальный (crunchyroll) 1-21, Anilinria 22-24Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687F36BAF1F3CDC783E8985911D056CB33F9A594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594136   (179226) от 29.11.2022
-
-Negima!? Natsu Special!? | Negima!? Magister Negi Magi: Summer | Волшебный учитель Нэгима! OVA-2 [2006, OVA] DVDRip 416p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179226.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Магия – не игрушки» и «Читай инструкцию до конца» - вот две истины, которые Нэги позабыл донести до своих верных подмастерьев Юэ и Нодоки. А девушки, естественно, поспешили исполнить любовное заклинание, призванное связать вместе обожаемого сенсея и застенчивую Миядзаки-сан. Вот и связали – настолько прочно, что в баню пришлось вместе идти. А там такое началось… (   Читать дальше...   )Производство: ShaftЖанр: комедия, эттиРежиссер: Симбо АкиюкиПеревод: Ryou-kaiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D626C17D67352AAF3EDCE441173D22021AA5EF9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

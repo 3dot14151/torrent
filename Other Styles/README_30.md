@@ -1,3 +1,206 @@
+###  Публикация: 997435   (875584) от 16.03.2016
+
+Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Folk, Dark Folk, Experimental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1. To Lose Yourself Forever Is Eternal Happiness
+2. You Can't Remain Here
+3. Detachment
+4. The Purified Eye of the Soul Is Placed In the Circle of Eternal Sun(   Читать дальше...   )Жанр: Folk, Dark Folk, ExperimentalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70361A1C7F88CBA512AE8BB25645106AD0C858A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783854   (874193) от 09.04.2020
+
+Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Calling (7:14)
+02. Vision Quest (6:21)
+03. Crossing the Light (6:00)
+04. Other World (6:43)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C4F966F89DF960DAF2147DA5640FA9AA38ED3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791724   (874132) от 09.04.2020
+
+David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Runners (5:55)
+02. Desert Crossing (5:22)
+03. Moonflower (5:10)
+04. The Gypsy Camp (4:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0143BDFD0624F1FEB95F033E8C66A1E7AF0F581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106282   (873736) от 19.02.2017
+
+Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Singur
+02. Bri
+03. Petrichor
+04. Ta Matia Sou(   Читать дальше...   )Жанр: Electronic, RelaxingПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63CA6E483D9F290E0B82677C179384B1F015CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997576   (873676) от 17.03.2016
+
+Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn
+02. (Everything I do) I do it for you
+03. Yesterday
+04. Deep Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106400   (873641) от 19.02.2017
+
+VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly O'Neill – Mystic Dream
+02. Emerald Singers – Adiemus
+03. Massini – Mystera
+04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106399   (873528) от 19.02.2017
+
+VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly O'Neill – Mystic Dream
+02. Emerald Singers – Adiemus
+03. Massini – Mystera
+04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106359   (873516) от 19.02.2017
 
 VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +209,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Pan Pipes of the Andes - 3 альбома (1998) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -94,7 +297,7 @@ Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vo
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -123,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -152,7 +355,7 @@ Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +384,7 @@ Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wor
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -239,7 +442,7 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +471,7 @@ Aenigmatica - Sanctum (2016) [FLAC|Lossless|tracks] <New Age, Chillout, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +500,7 @@ Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electron
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +529,7 @@ Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [FLAC2.0|24/48|tr
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +558,7 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +587,7 @@ Hans Zimmer - Dune (3 CD) (2021) Music From The Soundtrack [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +616,7 @@ Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +645,7 @@ Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (199
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -471,7 +674,7 @@ Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +703,7 @@ Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Fol
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +729,7 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,209 +743,6 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3CAFD280E99DE5E0F7FB8425803CF2402038B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107019   (869674) от 21.02.2017
-
-Armik - Enamor (2017) [MP3|320 Kbps] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enamor
-02. Lost Love
-03. La Guitarra De Oro
-04. Santa Cruz(   Читать дальше...   )Жанр: Flamenco, Acoustic GuitarПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB182E83FF0F2E61487EA315342168E7806838A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374588   (868615) от 12.04.2020
-
-Gary Schmidt - A Classical Meditation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adagio from Concerto in Dm	03:59
-2. Etude No. 2	04:59
-3. Claire de lune	05:20
-4. Pieces Froides: Danses de Travers No. 1	01:51(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F013CFEDC68C3E96B03478964F1665DB107971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998752   (868516) от 20.03.2016
-
-Corciolli - Lightwalk (2010) [FLAC|Lossless|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miragea  04:41
-02. Amethysios  05:48
-03. Star  03:55
-04. Pegasus  04:03(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC74E4FEC728E0281A2992A79681BF6874EBB0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998577   (868512) от 20.03.2016
-
-Ancient Future - Asian Fusion (1993) [MP3|320 кб/с] <Folk, World, New Age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude  01:03
-02. Bookenka (The Adventurer)  05:25
-03. The Trader  04:15
-04. Mezgoof  06:23(   Читать дальше...   )Жанр: Folk, World, New AgeПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B729215DA2C3474CF6CCB2E9A8494F7BF616968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998734   (868439) от 20.03.2016
-
-Celtic Woman - Solo (2015) [MP3|320 кб/с] <Celtic folk, World, New age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chloe - To Where You Are
-02. Lisa Kelly - Home and the Heartland
-03. Lynn Hillary - Carolina Rua
-04. Meav - Marble Halls(   Читать дальше...   )Жанр: Celtic folk, World, New ageПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9659DA7613E1BEF7E7838CD733870D92487111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998755   (868437) от 20.03.2016
-
-Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless|image + .cue] <Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roc Chen - Gathering of the Council (Might & Magic Heroes VII Main Theme) (02:07)
-02. Rob King & Paul Romero - Hope For Green Falls (Haven Theme) (02:41)
-03. Rob King & Paul Romero - Mystos Mountains (Necropolis Theme) (02:30)
-04. Rob King & Paul Romero - The Wizards Waltz (Academy Theme) (02:55)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DD2F87CB3EC23F390717EF035AB2DDB1ED85CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107114   (868003) от 22.02.2017
-
-Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last
-02. Walk On By
-03. Stay
-04. La Vie En Rose(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
 ```
 
 https://mybot314.ru/tekegram_catalog/

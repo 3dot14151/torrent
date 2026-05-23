@@ -1,3 +1,185 @@
+###  Публикация: 1503010   (822578) от 17.10.2021
+
+Microsoft Visual Studio 2019 Community 16.11.5 (Offline Cache, Unofficial) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198544   (804106) от 13.01.2018
+
+PGI Visual Fortran 12.10 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+PGI Visual Fortran - компилятор Fortran и инструментальное средство для Microsoft Visual Studio , которое поддерживает архитектуру параллельного асинхронного программирования. PGI Visual Fortran (сокращенно PVF) включает в себя набор программ PGI(Protected Geographical Indication) высокоэффективных 64-битных и 32-разрядных параллельных компиляторов Fortran для Microsoft (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33941B2E7E7B6928EC18D11E91DF8DE3B25D1301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273711   (799278) от 03.01.2019
+
+JetBrains Intellij IDEA 2018.3.2 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Самая умная и удобная среда разработки для Java, включающая поддержку всех последних технологий и фреймворков. IntelliJ IDEA предоставляет инструменты для продуктивной работы и идеально подходит для создания коммерческих, мобильных и веб-приложений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BC0F2B0BCDAB26BEC12382E36697360C3CB528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010796   (797233) от 26.04.2016
+
+Atmel Studio 7.0.790 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Atmel Studio 7 - полнофункциональная, бесплатная интегрированная среда проектирования (IDE) систем на базе микроконтроллеров семейств Atmel | SMART и AVR. (8, 32-битных и ARM)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E37DCF9EF92526DF7E82044192092F873B59DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511115   (789592) от 19.11.2021
+
+Microsoft Visual Studio 2019 Professional 16.11.6 (Offline Cache, Unofficial) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio 2019 - полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F42B40EB3C6EE561187E319C1DCDA547E2BD19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123833   (786049) от 09.04.2017
+
+PascalABC.NET 3.2.0.1417 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+PascalABC.NET – это язык Delphi (Object Pascal) для платформы Microsoft .NET, содержащий все основные элементы современных языков программирования: модули, классы, перегрузку операций, интерфейсы, исключения, обобщенные классы, сборку мусора, а также некоторые средства параллельности, в том числе директивы OpenMP. Система PascalABC.NET включает в себя также простую (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2A23D8E235FA9968013C76CD723D70F248A690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213072   (771465) от 16.03.2018
+
+SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Самый мощный шаблонный редактор для перевода программ на различные языки мира. Понимает множество форматов, различает тип языка. SDL Passolo 2011 имеет визуальный редактор диалогов с целым рядом удобных инструментов форматирования, поддерживает работу практически с любыми ресурсами, имеет множество тонких настроек, параметры пакетной обработки, а также систему проверки (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55AAA1458AEE9E10510F0E56E272C50D938225A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125599   (767584) от 15.04.2017
 
 Radialix 3 3.00 Build 486 RePack by вовава [Ru/En]
@@ -6,7 +188,7 @@ Radialix 3 3.00 Build 486 RePack by вовава [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +215,7 @@ AutoHotkey 1.1.33.00 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +241,7 @@ Themida 2.4.6.0 RePack by CodeineWaterfall [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +267,7 @@ AutoHotkey 2.0 - a115-f7c71ea8 Alpha Portable [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +293,7 @@ Advanced Installer 13.0 Build 70330 RePack by loginvovchyk [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +319,7 @@ Atom 1.17.0 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +345,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 20.03.2019 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +371,7 @@ Advanced Installer 14.9 Build D1A66FF2F1 RePack by Alex Zaguzin [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +397,7 @@ Qt cross-platform framework 5.7 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +423,7 @@ Restorator 2018 3.90 Build 1793 [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +449,7 @@ DevExpress Universal Complete 17.2.7 Build 20180321 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +475,7 @@ EhLib 8.0 Full Source [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +501,7 @@ Xilinx Vitis Unified Software Platform 2022.1 [En] (unpacked)
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +528,7 @@ National Instruments LabView 2016 16.0 (x86/x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +554,7 @@ Microsoft Visual Studio 2013 (12.0.40629.0) Update 5 - Оригинальные 
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_579609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +580,7 @@ LabView 2015 15.0 (x64) [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +606,7 @@ Microsoft Visual Studio 2017 Professional 15.9.12 (Offline Cache, Unofficial) [R
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +632,7 @@ PS4 4.50 SDK Offline Installer [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +658,7 @@ Wing IDE Pro 7.0.3.0 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,190 +669,6 @@ Wing IDE - интегрированная среда разработки, пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270B09F7F29671B7486E47C9BCEA1B70CF582A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932298   (508805) от 29.08.2015
-
-SDL Passolo Professional 2015 SP1 15.1.316.0 [Ru/En]
-
->>След.
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия SDL Passolo, самого дорогостоящего и самого мощного шаблонного редактора ресурсов — SDL Passolo 2015 SP1 v15.1.316.0. Без него не обойтись ни одному пользователю, который серьёзно занимается или собирается заняться локализацией программ. SDL Passolo – это ультрасовременная технология локализации, доказанная практикой простота применения на всех основных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032D3B16185C5B47B85F4F384584252B11F882D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933541   (504076) от 03.09.2015
-
-SoMachine 4.1 SP1.2 [Multi]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Schneider Electric SoMachine для программирования промышленных ПЛК.Язык интерфейса: Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694E909136B4410A14E1D1E795BBF8128EF0CE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546325   (475556) от 14.09.2012
-
-Turbo Pascal for Windows 1.5 [Английский]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Turbo Pascal for Windows представляет собой программное приложение, позволяющая создавать программные продукты с помощью языка высокого уровня Pascal. Представляющаяся незнакомой для большинства пользователей версия Turbo Pascal for Windows заслуживает особого внимания и уважения со стороны любителей экзотики и школьников решивших окунуться в атмосферу 80-90 годов. Версия 1.5  адаптирована под работу с операционной симтемой Windows с использованием оконного режима, что обеспечит наибольшую эффективность работы приложения разработки и устранит некоторые проблемы работы в среде Dos.
-Интерфейс программы выполнен в стиле оконного приложения со всеми известными функциями, использовавшимися Turbo Pascal предыдущих версий. Несмотря на тот факт, что программе уже 20 лет, до сих пор она пользуется популярностью среди программистов и разработчиков. Программы, прошедшие компиляцию, также представлены в оконном режиме.Название программы: Turbo Pascal for WindowsЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569136   (454913) от 11.08.2022
-
-Microsoft .NET Framework 4.8.1 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft .NET Framework — программная платформа, выпущенная компанией Microsoft в 2002 году. Основой платформы является исполняющая среда Common Language Runtime (CLR), способная выполнять как обычные программы, так и серверные веб-приложения. .NET Framework поддерживает создание программ, написанных на разных языках программирования. Платформа необходима для установки (   Читать дальше...   )Язык интерфейса: Английский, Русский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6697220773F26B5BA379E8527B1406C046C164B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944494   (439553) от 07.10.2015
-
-EMCO MSI Package Builder Enterprise 5.2.9.3741 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент для автоматической генерации пакетов Windows Installer. EMCO MSI Package Builder предназначен для создания файлов формата MSI, готовых для «тихой» установки. Приложение позволяет видеть в реальном времени все изменения, произведенные процессом установки конкретного приложения, и использовать полученные результаты для создания инсталляционных пакетов. Процесс (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0688A51191889B8391AEC1D2661E70390F17CFC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571002   (438053) от 19.08.2022
-
-Java SE Development Kit 18.0.2.1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
-Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FFF2CB953F402B8D2DD62FF79315619F094DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945015   (437294) от 08.10.2015
-
-Sybase PowerDesigner 16.5.0.3982 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437294.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerDesigner дает возможность управления изменениями на этапе проектирования, предлагает технику управления метаданными и содержит уникальную технологию анализа взаимосвязей моделей. Одновременно с поддержкой ведущих техник моделирования и управления метаданными, PowerDesigner также позволяет работать с моделями любых типов в единой интегрированной среде, а репозиторий (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759AEBDF7A528EF3003349533D0CB51AC3657E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

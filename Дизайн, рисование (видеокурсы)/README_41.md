@@ -1,3 +1,84 @@
+###  Публикация: 1564508   (499264) от 19.07.2022
+
+Yudaev School, Никита Юдаев | Дизайн c WOW-эффектом. Тариф Базовый (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кому подойдет этот курс:начинающим
+дизайнерам с опытом
+фриоансерам
+smm-специалистам(   Читать дальше...   )Производство: Yudaev SchoolЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 27:20:48Реклама: Присутствуют сторонние наложения и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1887934B6612CB42BA904CC0F51E8328E7E4E893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564997   (497423) от 21.07.2022
+
+Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вам будут показаны методы создания оптимизированного AR-15, готового к игре, в Blender 3D. Вы узнаете, как пройти через процессы использования референса, создания модели, повторного создания сетки, запекания деталей и текстурирования.  В курсе используются аддоны  Boxcutter и Hard Ops  , а также несколько других аддонов, но это 100% не обязательно для прохождения (   Читать дальше...   )Жанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 09:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94BE4C8E89786A5DEBE6E41D38EF7A230452C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404212   (495168) от 24.08.2020
+
+Simon Payne | Creature Creators Handbook Volume 2 Part A-B (2012) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+cmiVFX представляет второй том мастер класса по созданию рига и анимации существа при участии знаменитого Саймона Пейна в качестве нашего инструктора. Если вы хотите профессионально освоить риггинг и анимацию, не проходите мимо. Том 2, часть А рассказывает, как эффективно работать с настройкой сплайнов IK, риггинг меню cmi, стандартными инструментами интерфейса, (   Читать дальше...   )Производство: сmiVFXЖанр: Создание видеоЯзык озвучки: Английский, русскийПродолжительность: 04:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084436A835FC41EC5AC6971C1FB60D939668ECFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404220   (495058) от 24.08.2020
 
 Simon Payne | Creature Creators Handbook Volume 2 Part D (2012) PCRec
@@ -6,7 +87,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part D (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Epic Games, Sjoerd de Jong | Post Processing Essentials (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +197,7 @@ Epic Games, Zak Parrish | UE4 Performance and Profiling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +223,7 @@ CG Forge, Tyler Bay | Quaternions & Matrices (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -251,7 +332,7 @@ Pixel, Софья Палюхина, Наталья Егорова | Рисова
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +360,7 @@ CG Boost, Zach Reinhardt | Cubic Worlds: Create Stunning Low Poly Animations in 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -307,7 +388,7 @@ YouSmart, Нина Наумова | Курс Adobe Illustrator, Photoshop, InDes
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,7 +417,7 @@ Creative Shrimp | Риггинг механизмов в Blender 2.83 / Hard Sur
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -363,7 +444,7 @@ Udemy, Josh Gambrell, Ponte Ryuurui | Создание Sci-Fi оружия в Bl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +496,7 @@ Blender Cloud | Создание примитивных животных в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +522,7 @@ CG Sphere | Create Super Detailed Shield In Blender Tutorial (Modeling, Texturin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -469,7 +550,7 @@ CG Cookie | Создание облаков в Blender 2.8 и Eevee/ Creating Cl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -495,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -521,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -548,7 +629,7 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +655,7 @@ Pluralsight.com | Blender Fundamentals (2018) PCRec [H.264/720p-LQ] [RU/EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,88 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45CE4E6F522D9DD6AF5EBF38D5BFBDD4B737B82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824297   (468458) от 23.09.2014
-
-Profileschool | Пейзажная симфония (2013) [PCRec]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие даже не задумываются, что скрывается под словом «пейзаж», не говоря уже о том, благодаря каким таинствам он появляется перед нашими глазами в виде фотографий. Именно этим вопросам и будет посвящена первая часть мастер-класса Александра Киценко. Во второй части мы познакомимся с его авторской методикой художественной ретуши пейзажных фотографий, в которой будут (   Читать дальше...   )Жанр: Фото, пейзажПродолжительность: 3:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BC445F32FBE014331953BFD796C89EC16238BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566957   (465740) от 06.08.2022
-
-Udemy, Mrawan Hussain | BLENDER: Creating the Dune Ornithopter from start to finish (2022) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем привет, меня зовут Марван Хуссейн , и я приветствую вас на моем новом фантастическом курсе.
-
-Как создать орнитоптера Дюны с помощью Blender и Substance Painter от начала до конца.
-(   Читать дальше...   )Производство: UdemyЖанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 49:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4565B35FA29200CB5909B02B2916620F9E9C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568092   (465738) от 06.08.2022
-
-Skillshare, 3D Tudor | Blender 3 to Unreal Engine 5 Dungeon Modular Kitbash (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь в путешествие по 3D-моделированию игрового окружения в Blender и Unreal Engine 5.
-Являетесь ли вы поклонником RPG или игроком dungeons and dragons (DND) или геймдизайнером, который хотел бы создать средневековое окружение подземелий для игр, этот курс идеально подходит для вас! Вы станете мастером подземелий! Постройте замысловатую конструкцию с извилистыми (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 26:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE3F74216B2F0B2DE254EECF278C67F9F3E52D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

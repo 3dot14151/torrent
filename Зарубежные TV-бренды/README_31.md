@@ -1,3 +1,55 @@
+###  Публикация: 1391713   (769716) от 24.06.2020
+
+Дети / Babies (2020) WEB-DL [H.264/720p-LQ] (Сезон 2, серии 1-2 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создатели этого документального сериала наглядно рассказывают посредством инновационных технологий, как младенцы открывают для себя окружающий мир в течение первого года жизни.Производство: США, NetflixЖанр: Документальный, познавательный, научно-популярныйРежиссер: Аннабель ГиллингсПеревод: Одноголосый закадровый, профессиональный (Sound Film)Субтитры: отсутствуютПродолжительность: серии x ~00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73A91C54CEBE5D8D7F995E757AA47C08082B046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385607   (769659) от 24.06.2020
+
+NG: Королевство белого волка / Kingdom of The White Wolf (2019) HDTV [H.264/1080i] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фотограф и биолог National Geographic Ронан Донован путешествует по Арктике, чтобы запечатлеть жизнь знаменитых белых волков, которые не боятся людей и стараются держаться к ним как можно ближе. Ронан Донован в поисках неуловимого арктического волка. Начиная с первого года дневного взгляда на остров Элсмир, зрители познакомятся с семьей арктических волков, которые (   Читать дальше...   )Производство: США, Market Road Films, National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Тони ГерберПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441A3088BDAC01A3AC0B696290E2B4AF43BC84D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717121   (769491) от 15.05.2016
 
 BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost Treasure (2011) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NG. Тайны истории: Бостонский душитель / The Hunt 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Expe
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG. Тайны истории: Ди Би Купер. Сбежавший терр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ NG: Затерянные сокровища змеиных царей майя /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ Discovery: Экватор / Equator (2005) BDRemux [H.264/1080i] (серии 1-6
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:504EF7691DDE9E072ED5C1AF89FDC62D4472656E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521068   (765907) от 01.01.2022
-
-Как это устроено: Автомобили мечты / How It's Made: Dream Cars (2016) WEBRip [H.264/1080p-LQ] (сезон 5, серии 1-5 из 5) OMSKBIRD [AD]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой взгляд на сложные конструкции в автомобилестроении! Только самые лучшие модели всех машин разных времен попадают в этот проект, а находчивый ведущий рассказывает об их создании и современном использовании! Вас ждут Мазерати, Порше, Мерседесы и многие другие автомобили, о которых мечтает, пожалуй, каждый!Производство: КанадаЖанр: ДокументальныйРежиссер: François Senécal-TremblayАктеры: Брукс Мур, Luke RichardsПеревод: Многоголосый закадровый (OMSKBIRD)Продолжительность: ~00:21:00 серияРеклама: Релиз содержит рекламные аудио вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833607B50E167BBBE1957C8831E91C61D99926DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279619   (765398) от 30.01.2019
-
-NGW: Рожденные в Африке. Уроки охоты / Born in Africa (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проследите все этапы взросления этих милых пушистых зверьков, переживая вместе с их матерями за их жизнь и деля с ними моменты нежности к своим детенышам.
-Наши маленькие пушистые комочки четко знают свое место в семье. Теперь они вооружены знаниями, которые помогут им противостоять новым опасностям, которые подстерегают их в саванне.Производство: Франция, One Planet, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Стефани ГолдшмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEA511B9E28A99715D435BD3D244608424A3EA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

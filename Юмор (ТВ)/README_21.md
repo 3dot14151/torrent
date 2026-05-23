@@ -1,3 +1,107 @@
+###  Публикация: 1244754   (477828) от 03.09.2018
+
+Stand Up (2018.09.02) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 3)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное.Телекомпания: ТНТЖанр: ЮморАктеры: Стас Старовойтов, Дмитрий Романов, Роман Косицын, Алексей Щербаков, Гурам Амарян, Расул ЧабдаровСубтитры: ОтсутствуютПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A8421D8BDB3E121660AF5797E425D3F55CB5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939297   (475269) от 21.09.2015
+
+Stand Up. Сезон 3. Выпуск №2 (2015.09.20) WEB-DL [H.264/720p-LQ]
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинПродолжительность: ~ 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F007609382DF5F1BBD1049CF0B215014C9AA9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216319   (471406) от 06.09.2018
+
+Осторожно, Задов! Или похождения прапорщика (2004) DVDRip [H.264] (29 серий из 29)
+
+>>Юмор (ТВ)
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История повествует о прапорщике Задове, довольно известном для многих персонаже. Он - сборник самых типичных клише про военнослужащих, которые собраны в этом персонаже. Вместе с ним в этой сюжетной линии рассказывается история его жены, детей, коллег и соседей. Все это снято с сарказмом, отборным юмором и большим количеством сцен, которые высмеивают человеческие (   Читать дальше...   )Жанр: юморРежиссер: Андрей БалашовПеревод: Оригинальная русскоязычная озвучкаПродолжительность: около 30-ти часов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4A67EA38CFEA7F5D6E01E09D85224BAFFF6EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407348   (466128) от 07.09.2020
+
+Stand Up (06.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 2)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED36102C3A8C1C80D39909176FFAB49D181F6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058962   (465869) от 02.10.2016
 
 Дежурный по стране. Михаил Жванецкий (2016.10.02) SATRip
@@ -6,7 +110,7 @@
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Stand Up (2016.10.02) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 3)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Stand Up (2018.09.09) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 4)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Stand Up. Сезон 3. Выпуск №3 (2015.09.27) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Stand Up (13.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 3)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Stand Up (2016.10.09) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 4)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Маски-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Stand Up. Сезон 3. Выпуск №4 (2015.10.04) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Stand Up (24.08.2019) WEB-DLRip (сезон 7, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,112 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92898C210DC945A1834F6BF3EBF937EF79DF2A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 66610   (439967) от 19.09.2020
-
-Женская лига. Третий сезон  (2007) TVRip (Серии 1-12 из 12)
-
->>Юмор (ТВ)
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героини "Женской лиги" не стесняются быть нелепыми, искренними и смелыми. Шутя, они открывают все наши секреты! Каждый скетч представляет собой отдельную забавную историю о женских привычках, мышлении, восприятии мира. Они мечтают о любви, не замечая, что она рядом. Они воспитывают детей, и сами ведут себя, как девчонки. Они делают карьеру, иногда даже (   Читать дальше...   )Телекомпания: Россия, телекомпания ТНТЖанр: ТВ-шоу, юморРежиссер: Ольга ЛандПродолжительность: ~00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2E44384D6F6C886CE049918F1F337B4B42D207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 160466   (439786) от 19.09.2020
-
-Женская лига. Пятый сезон (2009) SATRip (Серии 1-10 из 10)
-
->>Юмор (ТВ)
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героини "Женской лиги" не стесняются быть нелепыми, искренними и смелыми. Шутя, они открывают все наши секреты! Каждый скетч представляет собой отдельную забавную историю о женских привычках, мышлении, восприятии мира. Они мечтают о любви, не замечая, что она рядом. Они воспитывают детей, и сами ведут себя, как девчонки. Они делают карьеру, иногда даже (   Читать дальше...   )Телекомпания: Россия, телекомпания ТНТЖанр: ТВ-шоу, юмор
-
-Режиссер: Александр Наумов.Продолжительность: 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952FE190A857D7D9FC0963E65B9196C28EF8832E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193471   (439780) от 19.09.2020
-
-Женская лига. Банановый рай  (2010) SATRip (Серии 1-14 из 14)
-
->>Юмор (ТВ)
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда банан – это не просто банан. Это символ нового, пляжного сезона одного из самых популярных скетчкомов ТНТ! «Женская лига» открывает курортный сезон! Теперь смешные девушки шутят не вылезая из океана. Большая часть нового сезона «Женской лиги» снималась в республике Доминикана на фоне тропических пейзажей и розовых фламинго, которые так и норовили покрасоваться (   Читать дальше...   )Телекомпания: Россия. Телекомпания ТНТЖанр: ТВ-шоу, юморРежиссер: Александр Наумов.Продолжительность: 00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF431A85CB1EB8AF2A7485DF6BE82E8FB2311804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409906   (439772) от 19.09.2020
-
-Азбука Уральских пельменей. P (18.09.2020) WEB-DL [H.264/1080p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439772.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что осталось за кадром! Цикл выпусков с невошедшими миниатюрами и скетчами. А также самые смешные ляпы и оговорки!Телекомпания: СТСЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40291834E6143F68BA686F21C2A814DACC1C9E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

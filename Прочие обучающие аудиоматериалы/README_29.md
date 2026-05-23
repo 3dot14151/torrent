@@ -1,3 +1,83 @@
+###  Публикация: 1589588   (189978) от 10.11.2022
+
+Валерий Михайлычев | Высокие вибрации (2022) [MP3, Сергей Курнаев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Труд по достижению счастья – это не лопатой целину поднимать. Это труд необычный, другой. Когда вы всё попробовали, а отношения не строятся, здоровье всё хуже и хуже, приличной работы не предвидится: самое время сменить частоту и услышать вселенную. Видеть, а не смотреть, Быть, а не присутствовать. Если знать, как работают высокие вибрации, – нерешаемых задач не (   Читать дальше...   )Жанр: Эзотерика, парапсихологияПродолжительность: 05:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4A48F2DECF42A7E65FA893B0F1520FEBE8B82F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589926   (189766) от 11.11.2022
+
+Анатолий Баранов | Маленькие друзья больших людей. Истории из жизни кремлевского ветеринара (2022) [MP3, Алексей Воскобойников]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь – удивительная вещь, и иногда вокруг ветеринара, желающего просто лечить животных, начинают закручиваться настоящие шпионские интриги, политические заговоры и невероятные знакомства. С этим не понаслышке знаком знаменитый советский ветеринарный врач – Анатолий Евгеньевич Баранов. Ради спасения животных он рисковал карьерой, своими убеждениями и даже жизнью. (   Читать дальше...   )Жанр: Ветеринария, истории из жизниПродолжительность: 11:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F07B981BB354D264DBF783E43E52300A2D88E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589828   (189736) от 11.11.2022
+
+Евсей Гречена | История на пальцах. Польша (2021) [MP3, Дмитрий Шабров]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Развенчание самых известных мифов о Польше и ответы на наиболее интригующие вопросы!
+История человечества необъятна и необозрима. Она состоит из множества историй отдельных людей. Главные герои этой аудиокниги не всегда вершители судеб других людей, но, без сомнения, яркие и смелые личности, оставившие о себе память благодаря незаурядным личным качествам.
+В каждом (   Читать дальше...   )Жанр: Популярно об историиПродолжительность: 11:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A002FBCAE23F817D7B0E4AC1C90FC91EE88F1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589532   (189731) от 11.11.2022
 
 Макар Бакалай | История на пальцах. Крым (2021) [MP3, Пожилой Ксеноморф]
@@ -6,7 +86,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -407,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -434,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -460,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -539,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -603,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D659A7274E95F0FD301A1384D3382E5BB1815036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595375   (175347) от 05.12.2022
-
-Линда Рашке | Сардины для трейдинга (2022) [MP3, Екатерина Беляева]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Сардины для трейдинга" прославляет упорство и устойчивость на финансовых рынках. Это веселый, честный и пронзительный рассказ об эволюции профессионального трейдера на протяжении почти четырех десятилетий. От шумных торговых залов начала восьмидесятых до дней гигантских серверных стоек тридцать лет спустя, читатель совершает хронологическое путешествие (   Читать дальше...   )Жанр: ТрейдингПродолжительность: 12:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65B1347061D84BF23BECEAF59D1396B30DD9D10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595580   (174999) от 06.12.2022
-
-Марк Гоулстон | Я слышу вас насквозь (2020) [MP3, Алексей Данков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нам постоянно что-то нужно от других, будь то коллеги и клиенты, начальники и подчиненные, дети и супруги. Нередко от того, сумеем ли мы это получить, зависит нечто важное – карьера, например. Или хотя бы отпуск, проведенный согласно нашим желаниям. Поэтому каждый день мы кого-то в чем-то убеждаем, и далеко не всегда – успешно. Ключ к эффективным переговорам – умение (   Читать дальше...   )Жанр: Ораторское искусство / риторика, ПереговорыПродолжительность: 07:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074E61DAE4B11137B28C37FE0C2577F4306CA745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668133   (174605) от 11.10.2023
-
-Анил Сет | Быть собой: Новая теория сознания (2023) [MP3, Александр Степной]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быть собой не так просто, как может показаться. В мозге каждого из нас миллиарды нейронов неустанно работают над тем, чтобы создавать наш повседневный сознательный опыт. Но как именно это происходит? Каким образом формируется восприятие окружающей действительности «от первого лица»? В наши дни у науки появилась возможность наблюдать за биологическими механизмами (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Альпина ДиджиталПродолжительность: 09:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E08F27DA4B63600C15909F0E1A75557EC03356
 ```
 
 https://mybot314.ru/tekegram_catalog/

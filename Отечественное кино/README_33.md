@@ -1,3 +1,107 @@
+###  Публикация: 748330   (958173) от 22.01.2014
+
+Ёлки 3 (2013) BDRemux [1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Спустя два года они снова с нами: любимые герои «Ёлок» в самых невероятных новогодних историях. Боря и Женя, чьи годовалые дети в канун праздника доведут друзей до психушки. Маленькая девочка Настя, чьи родители разлучат ее влюбленных друг в друга собак. Лыжник и сноубордист в самой экстремальной в их жизни гонке — от военкома. И профессор из Екатеринбурга Андрей, (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: Семейный, комедияРежиссер: Ольга Харина, Дмитрий Киселёв, Александр КоттАктеры: Иван Ургант, Сергей Светлаков, Гоша Куценко, Валентин Гафт, Татьяна Догилева, Пётр Фёдоров, Анна Чиповская, Мария Шукшина, Константин Хабенский, Антон БогдановПеревод: Не требуется (Русский язык)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский (*.pgs)Продолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81833374E18402BFF2117726AB0C5CAEEADD6743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748455   (958171) от 22.01.2014
+
+Ёлки 3 (2013) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Производство: РоссияЖанр: Семейный, КомедияРежиссер: Ольга Харина, Дмитрий Киселёв, Александр КоттАктеры: Иван Ургант, Сергей Светлаков, Гоша Куценко, Валентин Гафт, Татьяна Догилева, Пётр Фёдоров, Анна Чиповская, Мария Шукшина, Константин Хабенский, Антон БогдановПеревод: Не требуется (русский) | Лицензия |Продолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8C251142AAAE6B0736C020BC6D9D6EA15B031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748456   (958160) от 22.01.2014
+
+Ёлки 3 (2013) BDRip [1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Производство: РоссияЖанр: Комедия, СемейныйРежиссер: Ольга Харина, Дмитрий Киселёв, Александр Котт, Александр Карпиловский, Леван Габриадзе, Антон Мегердичев, Екатерина Телегина, Заур ЗасеевАктеры: Иван Ургант, Сергей Светлаков, Гоша Куценко, Валентин Гафт, Татьяна Догилева, Пётр Фёдоров, Анна Чиповская, Мария Шукшина, Константин Хабенский, Антон Богданов, Вера Строкова, Анна ХилькевичПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BE62E4423EC6AC75499643AB5FCC2F360ECEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361003   (958099) от 17.02.2020
+
+Как к Ивану Ивановичу совесть пришла (2013) WEBRip [H.264/720p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+К человеку, который никогда не совершал ошибок, неожиданно приходит совесть в обличии его незаконнорожденного слепого сына, и теперь в жизни героя одна ошибка следует за другой. Совесть - невоспитанный и наглый мальчишка, который приходит, когда его совсем не ждёшь.Производство: Россия / ВГИКЖанр: Короткометражный, комедияРежиссер: Светлана СигалаеваАктеры: Валерий Гаркалин, Евгений Михеев, Марина Федункив, Елена Захарова, Роман ХардиковСубтитры: ОтсутствуютПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB28FA333E77F6A33D4E6F22FBC60659A30F2A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360758   (957852) от 17.02.2020
 
 Полицейский с Рублевки. Новогодний беспредел 2 (2019) WEB-DLRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8970D285D18D69122397BF91FED87FFC1AA1DA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361123   (954056) от 20.02.2020
-
-Генератор желаний (2018) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомеханик Андрей смиренно трудится в своей мастерской, разговаривая с собакой. В руки Андрея попадает странное устройство — «генератор желаний», способное исполнить любые 2 желания. Андрей шутейно загадывает миллион долларов и находит его на следующее утро. Он бросается в кутёж, но неожиданно вспоминает ошибки своего прошлого и спешит их исправить.Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Владимир КветнойАктеры: Олег Васильков, Наталья Бардо, Дарья Руденок, Валентин Самохин, Татьяна Андреева, Алексей Литвиненко, Александр Сериденко, Евгения Шипова, Павел Галушкин, Сергей КочетковСубтитры: ОтсутствуютПродолжительность: 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2244487B31CDECC773E06F3DA155E1D2339C46D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361654   (954029) от 20.02.2020
-
-Дачники / Blueberry Fields Forever (2016) WEBRip [H.264/1080p-LQ] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954029.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам произведений Юрия Клавдиева.
-Он спас Её от насильника и стал её ангелом-хранителем. Вместе они убили обидчика девушки и сбежали в лес подальше от угроз и соблазнов современного мира. Но и там цепь их преступлений не оборвалась, пока появление Врага не нарушило равновесие их отношений.Производство: Россия / Blancache ProductionЖанр: драма, мелодрамаРежиссер: Александр ВартановАктеры: Алексей Маслодудов, Екатерина Стеблина, Артур Бесчастный, Анатолий Хропов, Александр Усердин, Валерий Гончар, Константин Галдаев, Руслан Назаренко, Юрий Клавдиев, Ольга ШакинаСубтитры: английские (хардсаб)Продолжительность: 01:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFBF430ED7D61BE1A283E45D0427CBF516BBE30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980808   (953948) от 30.01.2016
-
-Экспириенс (2015) SATRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой учёный на пороге сенсационного открытия. Его программа по коррекции памяти обещает навсегда избавить людей от негативных воспоминаний. Успех проекта приносит его создателю славу, деньги и. … осознание оборотной стороны вмешательства в жизненный опыт человека.Производство: Россия / А.Т.К.-СтудиоЖанр: ДрамаРежиссер: Евгений ТатаровАктеры: Кирилл Жандаров, Галина Сумина, Юрий Елагин, Ирина Ларионова, Владимир Меньшов, Евгений Леонов-Гладышев, Александр Тютрюмов, Ирина Яковлева, Владимир Матвеев, Георгий Пицхелаури, Сергей Рост, Андрей Шимко, Анна Королёва, Алексей Васильев, Яков Петров, Михаил Соловьев, Анна Тютрюмова, Евгений Татаров, Будэрдэнэ Энхбат, Никита Маркеев, Анастасия ЧистяковаПеревод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7BC085438B154C6C539E1D01D07A4D8974E20E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361628   (953752) от 20.02.2020
-
-Ржев (2019) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953752.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 год. Ржевская битва. После боев под селом Овсянниково от роты советских солдат осталась только треть. Бойцы пытаются продержаться до прихода подкрепления. Но из штаба поступает приказ удержать деревню любой ценой. Значит, отступать нельзя… Каждый из героев понимает, что живыми из этого переплета выбраться почти невозможно. В этот момент в Овсянниково, едва не (   Читать дальше...   )Производство: Россия / Триикс МедиаЖанр: Военный, драма, историяРежиссер: Игорь КопыловАктеры: Сергей Жарков, Иван Батарев, Олег Гаянов, Арсений Семёнов, Александр Горбатов, Александр Бухаров, Григорий Некрасов, Игорь Грабузов, Александр Аравушкин, Дан РозинПеревод: Не требуется | iTunesСубтитры: отсутствуютПродолжительность: 01:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B90C3B2FE6663B7B7D6411F45B43496DA62A26E
 ```
 
 https://mybot314.ru/tekegram_catalog/

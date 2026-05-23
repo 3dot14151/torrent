@@ -1,3 +1,83 @@
+###  Публикация: 1575519   (208457) от 10.09.2022
+
+The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2018 (2018) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Для студий по всему миру приложение Substance Painter от Allegorithmic стало, своего рода, стандартом текстурирования игровых ассетов.
+В данном видеопособии, ведущий технический художник Christophe Desse поэтапно, на примерах, будет знакомить нас с аспектами программы Substance Painter, показывая техники и, делясь своими подходами, эффективность которых доказана (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41902B71C041E08C6CEF7DE88BB3EA4C4062EEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575521   (208449) от 10.09.2022
+
+CGTarian, Дэвид Стодольны | Мега-мультяшный стиль в 3D (2018) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Помните, как при просмотре мультфильмов Луни тюнз ("Looney Tunes") или других диснеевских мультфильмов к некоторым моментам хотелось вернуться и детально просмотреть, как это происходит? Скорее всего это были вздорные или мультяшные движения, которые мы никогда не увидим у людей или животных.
+Возможно, на паузе можно рассмотреть, как персонаж причудливо (   Читать дальше...   )Производство: CGTarianЖанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 10:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402076F3877DDD637673C14B09F2DD0561537F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575520   (208446) от 10.09.2022
+
+Levelup.Digital, Bogodar Havrylyuk | Creating Foliage in Substance Designer (2019) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Хорошо известный за свои обширные проекты с растительностью и уникальный стиль, Богдар в партнерстве с Levelup.Digital решил поделиться своими способами создания растений. Узнайте, как сделать генератор листьев и добавить параметры такие как возраст, вариация цвета, повреждения и капли в Substance Designer. Узнайте подробнее, как генерировать UV атласы и посмотрите, (   Читать дальше...   )Производство: Levelup.DigitalЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 04:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6185E6D2349273E401EE8DE0A1C32C6B862ACCBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647644   (208439) от 20.07.2023
 
 CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
@@ -6,7 +86,7 @@ CGcircuit, VFX Magic | Houdini Flip – Chocolate (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +112,7 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP Part 1 (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +140,7 @@ CGcircuit, Bishoy Khalifa | PBD Cloth Tearing in Houdini (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +166,7 @@ Domestika, Juan Perednik | Pencil Portraits: Light, Shadow, and Proportion (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -114,7 +194,7 @@ CGcircuit, Ciobanu Razvan | Advanced Destruction Series: Lightning Strike (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -140,7 +220,7 @@ lynda, George Maestri | Maya: Facial Rigging (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +246,7 @@ Enterclass, Анастасия Беседина | Зимний пейзаж ак
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -195,7 +275,7 @@ Gumroad, Overdraw.xyz | Advanced Visual Effects in Unreal: Materia (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +301,7 @@ Digital Art Club, Алёна Клементьева | Цифровая Живо�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -248,7 +328,7 @@ CG Forge, Tyler Bay | Pyro I - Smoke & Steam (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -275,7 +355,7 @@ Muddy Colors, David Finch | Fantasy Anatomy (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -329,7 +409,7 @@ The Gnomon Workshop, David Silberbauer | Create A Procedural Waterwheel Simulati
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -356,7 +436,7 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -384,7 +464,7 @@ Skillshare, 3D Tudor, Neil Bettison | Blender VFX Liquid Fire & Smoke (2021) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -411,7 +491,7 @@ ArtStation, Mathew O'Halloran | Hard-Surface Masters Vol.1 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +518,7 @@ Hudozhnik Online, Дарья Куцаева | Скетчинг цветными 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -467,7 +547,7 @@ Enterclass, Анастасия Беседина | Акварельная фау�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -496,7 +576,7 @@ Liveclasses, Алексей Шадрин | 12 неизвестных шедев�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -523,7 +603,7 @@ Bazanova Art, Ольга Базанова | Роскошь лета. Пакет 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -549,7 +629,7 @@ Marker School, Вера Шерстобитова | Основы маркерно
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -577,7 +657,7 @@ Lectoroom, Елена Базанова | Безумное чаепитие с к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -603,7 +683,7 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,91 +695,6 @@ Hudozhnik Online, Екатерина Бердюгина | Анатомия ко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:567ECC6C96DA1A9B855F692FBB25529064000FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650037   (207642) от 30.07.2023
-
-pro.liga.ws, Штефан Ротарь | Autodesk Revit - Создание Окна (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание семейства открывающегося окна в Autodesk Revit.
-Короткий видео-курс, рассказывающий о создании семейства открывающегося окна в Autodesk Revit. Рассматривается создание типовых профилей, импорт DWG-файлов из программы AutoCAD, семейства типового окна, создания и присвоения всех необходимых параметров.Производство: pro.liga.wsЖанр: Проектирование, ДизайнЯзык озвучки: РусскийПродолжительность: 05:08:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B88B2CBEEC1CC89942804B9368477BCE138097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650076   (207637) от 30.07.2023
-
-SmartUP, Кирилл Дёмин | 30 дней / идей для твоего портфолио (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместо предисловия:
-на этом заботливо продуманном курсе уроки строятся от простого к сложному, для максимального результата и продуктивности.
-
-Не стоит волноваться, если вы новичок, ведь для новичков дается вводное занятие по основам работы в Фотошоп.(   Читать дальше...   )Производство: SmartUPЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 17:07:20Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8DCEEC62A053BCBE0FEE7066BAD4DA7AC2BB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650125   (207632) от 30.07.2023
-
-Udemy, JSFILMZ | Unreal Engine 5 Introduction to Lighting by JSFILMZ (2023) WEB-DL [AD] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чему вы научитесь:
-- Введение в освещение в Unreal Engine 5.1
-- Кинематографическое освещение в Unreal Engine 5.1
-- Системы освещения Unreal Engine 5(   Читать дальше...   )Производство: UdemyЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 01:57:14Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DDC360D2E1D5803296376795D065035B3E9A49
 ```
 
 https://mybot314.ru/tekegram_catalog/

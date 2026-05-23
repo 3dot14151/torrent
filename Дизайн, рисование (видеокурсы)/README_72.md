@@ -1,3 +1,85 @@
+###  Публикация: 1639251   (197101) от 12.06.2023
+
+Wingfox, Jose Moreno | Stylized Texturing for Video Games with Blender (2023) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы изучите полный рабочий процесс создания стилизованных материалов и текстур для ваших моделей с помощью инструментов Blender.
+Это включает в себя: базовое моделирование, UV развертку, запекание карт, ручную раскраску и процедурное текстурирование, создание PBR-материала, окончательное запекание карт и рендеринг.
+Мы собираемся рассмотреть все эти темы (   Читать дальше...   )Производство: WingfoxЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 10:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA041E30009FD1919BFCF4FCB2BA5D850F7A446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639427   (197087) от 13.06.2023
+
+Udemy, Yassine Larayedh | Create Realistic Highlands in Blender (2023) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете, как создавать реалистично выглядящие возвышенности в Blender.
+К концу курса вы научитесь создавать текстуры, освещать сцену и создавать реалистичное окружение. Также в узнаете множество техник, советов и рабочих процессов, которые поднимут ваши навыки работы с 3D на новый уровень.Производство: UdemyЖанр: 3D моделирование, ОкружениеЯзык озвучки: АнглийскийПродолжительность: 03:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DA08F31A6FF4874F1198A663B106A61B390C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639426   (197084) от 13.06.2023
+
+Wingfox, Pierre Schiller | Stylized 2D Toon Shader in Blender (2021) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Курс будет сосредоточен на изучении принципов создания стилизованного 2D-образа с использованием 3D-моделей и материалов, которые будут отображаться в окне просмотра в режиме реального времени в Blender EEVEE, ссылаясь на рабочие процессы Guilty Gear для разработки персонажа.
+Используя методы, описанные в этом учебном курсе, вы сможете изучить и разработать свои (   Читать дальше...   )Производство: WingfoxЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22B77D64D56BA692E953BADC944EB28BA9FF3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640378   (196888) от 17.06.2023
 
 FlippedNormals, Emiel Sleegers | Ultimate Weapons Masterclass (2021) PCRec [EN]
@@ -6,7 +88,7 @@ FlippedNormals, Emiel Sleegers | Ultimate Weapons Masterclass (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -62,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -91,7 +173,7 @@ Hudozhnik Online, Роман Круглов | Марафон по графике
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -119,7 +201,7 @@ Geometrium, Павел Герасимов, Алексей Иванов | Фот�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -148,7 +230,7 @@ Videosmile, Вероника Полякова | Супер Illustrator (2018) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -176,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -205,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -233,7 +315,7 @@ KkartSchool, Карина Кино | Акварельная иллюстраци
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -262,7 +344,7 @@ Granich.Design, Вадим Гранич | Графдизайн Копирайт�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -288,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -314,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -340,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -366,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -392,7 +474,7 @@ Vertexschool, Emiel Sleegers | Creating Cinematic Environments in Unreal Engine 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -421,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -449,7 +531,7 @@ Digital Art Club, Роман Brumel | Анатомия. Легко! И без б
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -476,7 +558,7 @@ SmartUP, Кирилл Дёмин | Нейросети для соцсетей (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -505,7 +587,7 @@ Hudozhnik Online, Дарья Куцаева, Екатерина Бердюгин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -531,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -559,7 +641,7 @@ Domestika, Giorgio Macellari | Motion Design with Unreal Engine 5 (2023) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -585,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -612,7 +694,7 @@ The Gnomon Workshop, Madhav Shyam | Introduction to Ziva VFX - Volume 1 (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -623,84 +705,6 @@ The Gnomon Workshop, Madhav Shyam | Introduction to Ziva VFX - Volume 1 (2023) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB87ADA3EF0F3235AC305813A6528DDB673E15E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648321   (195394) от 22.07.2023
-
-The Gnomon Workshop, Miguel Perez Senent | Large-Scale Water Fx In Houdini (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя полный процесс создания эпического симуляционного кадра с изображением морского существа, вырывающегося из океана и ныряющего обратно. Этот всеобъемлющий мастер-класс, проводимый супервайзером по компьютерной графике Мигелем Пересом Сенентом, начинается с определения большой поверхности океана, а затем демонстрируется новейший набор инструментов (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 06:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CDA4608F7F9966C61107FB274237B0E1FE2F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648275   (195382) от 22.07.2023
-
-The Gnomon Workshop, Giovani Magana | Creating Assets & Architecture for Game Environments (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создать игровую среду в Unreal Engine 5, используя ресурсы, созданные в Maya и ZBrush. Старший художник по окружению Джовани Магана (Giovani Magana) делится различными приемами из своего профессионального рабочего процесса, уделяя особое внимание эффективному созданию ресурсов и архитектуры для игровых сред с использованием важного модульного подхода. (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: 3D ГрафикаЯзык озвучки: АнглийскийПродолжительность: 04:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5406DB844CCC2EFB3CA6DEC73D4363169627DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648058   (195363) от 21.07.2023
-
-Cloudlessons, Елена Минакова, Стас Новиков, Андрей Батталов | Фотоманипуляция и коммерческая графика (2021) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое фотоманипуляция? Фотоарты, креативная фотография, коллажи, визуализация окружения для кино или игры с 3D графикой.Производство: CloudlessonsЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 43:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0B7FBF73D26A9FCE73D9E4F79EB39FBC7B4955
 ```
 
 https://mybot314.ru/tekegram_catalog/

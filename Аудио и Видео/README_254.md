@@ -1,3 +1,32 @@
+###  Публикация: 1428924   (178402) от 04.12.2020
+
+VA - Armada Christmas Dinner Mix (2020) [AAC|~312 Kbps] <Pop, House, Dance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1.01. Clement Leroux, Emma Hoet - U Got My Heart (Mixed) (Christmas Mix) (3:58)
+1.02. AmPm, Michael Kaneko - Best Part Of Us (Mixed) (Acoustic Version) (2:33)
+1.03. Shallou - Heights (Mixed) (3:29)
+1.04. Lost Frequencies - Are You With Me (Mixed) (Christmas Mix) (1:52)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 02:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB30E7A289FCC373B0D9611843213A2AF78E049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429041   (178362) от 04.12.2020
 
 Мумий Тролль - После Зла (2020) [AAC|~361 Kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Winter Lounge Mood: Chillout Your Mind (2020) [AAC|~308 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - All Night Jazz: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge, Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +296,7 @@ Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +325,7 @@ Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -322,7 +351,7 @@ Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -351,7 +380,7 @@ Stvore - One (2020) [AAC|~344 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -380,7 +409,7 @@ Leæther Strip - Æppreciation II (2018) [AAC|~351 Kbps] <ebm, industrial, dark 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -409,7 +438,7 @@ Leæther Strip - Æppreciation III Deutsche Wælle (2018) [AAC|~344 Kbps] <ebm, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -438,7 +467,7 @@ Leæther Strip - Æppreciation (2014) [AAC|~344 Kbps] <ebm, industrial, dark ele
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -467,7 +496,7 @@ Leæther Strip - Æppreciation IV (2020) [AAC|~359 Kbps] <ebm, industrial, dark 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -496,7 +525,7 @@ Scarlet - Obey the Queen (2020) [AAC|~335 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -525,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -554,7 +583,7 @@ VA - Sexy Xmas Jazz (Erotic Lounge Music For Intimate Christmas Moments) (2020) 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - Советский Новый год (2019) [AAC|~281 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - Best of Smooth Lounge, Vol. 1 (A Finest Selection of Chill & Modern Bar Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - The Forest Chill Lounge, Vol. 16 (Deep Moods Music with Smooth Ambient & Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -670,7 +699,7 @@ VA - The Forest Chill Lounge, Vol. 17 (Deep Moods Music with Smooth Ambient & Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - The Forest Chill Lounge, Vol. 12 (2018) [AAC|~308 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -713,35 +742,6 @@ VA - The Forest Chill Lounge, Vol. 12 (2018) [AAC|~308 Kbps] <Chillout, Lounge, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCA8DC8916364B71A398E1736F9A09BB99E6613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430446   (173893) от 10.12.2020
-
-VA - The Forest Chill Lounge, Vol. 9 (2016) [AAC|~323 Kbps] <Chillout, Lounge, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundset City - Floating Away (Dream Lounge Mix) (5:02)
-02. Marie Therese - Endless Time (4:28)
-03. Artenovum - Siberian Skys (Wide Sphere Cut) (4:43)
-04. Pascheba - Satori (4:11)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0602DD2E7503D76CB1C67E65DA0EA2F2AF15CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

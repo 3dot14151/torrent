@@ -1,3 +1,170 @@
+###  Публикация: 617279   (971758) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video) HDTV-1080i
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве. :bou:Жанр: variousПеревод: ОтсутствуетПродолжительность: ~04:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD7921D1462ED81DADC119B6D724C233A5CED4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617213   (971741) от 12.02.2013
+
+Сборник видеоклипов / Clips (music video)1080i HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник видеоклипов разных жанров в отличном качестве, многоканальное аудио.Жанр: разныйПеревод: ОтсутствуетПродолжительность: ~ 01:30:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357851   (971726) от 05.02.2020
+
+Ани Лорак. DIVA / СК "Олимпийский" (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+DIVA Ани Лорак – это фантастическая музыкальная история о Диве, живущей в разные времена и каждый раз умеющей удивлять. Дива – это женщина, сделавшая себя сама и наглядно доказавшая, что мечты способны сбываться. Дива – это та, что умеет вдохновлять, любить, прощать и делиться с другими тем, чем ее щедро наградила природа – женственностью, красотой, уникальным талантом (   Читать дальше...   )Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7764F574B8B45197D8CD47DB6FE2219A31FCF5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616190   (971675) от 12.02.2013
+
+Romantic Collection (Hits 1983-2001)TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, RockПродолжительность: 03:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECA9C545B6A3C14A8F51A3A1E03E809E12901FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616278   (971671) от 12.02.2013
+
+Сборник клипов / Romantic Collection (Hits 1980-2011)TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных клипов составлен из файлов полученных в разных источниках.
+Сборник видеоклипов разных лет в хорошем качестве.
+Romantic Collection (Hits 1980-2011) SDЖанр: variousПродолжительность: ~03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169CC4FD915F68677DEA1A102DF3CC2C3F9AE4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617292   (971102) от 13.02.2013
+
+Reggae On The River (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Reggae on the river повсеместно признан как лучший reggae-фестиваль в мире.
+Проводится с 1984 года на берегу прекрасной реки01. Third World - 96 Degrees In the Shade
+02. Culture - International Herb
+03. Toots & the Maytals - 54-46 Was My Number
+04. Michael Franti & Spearhead - We Don't Stop
+05. Damian "Jr Gong" Marley - Mr. Marley
+06. Machel Montano - Pretty Girls /Music Farm
+07. Oliver Mtukudzi - Hear Me Lord
+08. Israel Vibration - Vultures
+09. David Lindley & El Rayo-X - Quarter Of A ManЖанр: Музыка, Reggae, World MusicПродолжительность: 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4415EBDE949B43E735B0D3FA4C46C93B08B7E787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975849   (970868) от 16.01.2016
 
 Квартирник у Маргулиса. 3 выпуск. Сергей Галанин (2015) WEBRip
@@ -6,7 +173,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +202,7 @@ James Brown - Live at Montreux (1981) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -96,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -126,7 +293,7 @@ VA - Зимний марафон № 219: Самые сливки Нового �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -155,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -184,7 +351,7 @@ Adam And The Ants - Live In Tokyo (1981) VHSRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -213,7 +380,7 @@ Babooshka (Александр Константинов) - 7 Music Videos (2019-2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +549,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +578,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +607,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +659,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +685,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -547,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,174 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A12C40CEA8393AE41B6338D353A615D9A50B8911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975845   (967783) от 19.01.2016
-
-Jacques Loussier Trio - Play Bach... and more (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live from St. Thoma's Church, Leipzig01. Opening [1:03]
-02. Bach: Fugue No. 5 in D Major [5:52]
-03. Bach: Gavotte [8:49]
-04. Bach: Pastorale in C Minor [10:35](   Читать дальше...   )Производство: GermanyЖанр: Jazz, ClassicalАктеры: Jacques Loussier on piano
-Benoit Dunoyer De Segonzac on bass
-Andre Arpino on drumsПродолжительность: 01:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC2F5CB71DF2FCB3932E3A6020A4E4397A5DEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619446   (967734) от 16.02.2013
-
-Paramore -  Now (2013) [1080p] HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock, Pop PunkПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF4BC64CB693552EEA7868C2301C7BDE897517B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618404   (967688) от 16.02.2013
-
-Сборник видеоклипов / Symphonic, gothic  metal (female voice) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Symphonic, gothic  metalПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F715757D101865CB0A7AF25DD7505E15283C042A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976788   (967665) от 19.01.2016
-
-Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip (MPEG-2, PCM)
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967665.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Best Of Videos of Depeche Mode 1980-200601. Just Can't Get Enough	   3:41
-02. Everything Counts	           3:59
-03. People Are People	           3:40
-04. Master And Servant	   3:50(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F9FEB579FD17DDEDF21E5CEB411F187FA8C3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618158   (967560) от 16.02.2013
-
-Сборник видеоклипов Metal Rock 2012 / Metal Rock Clips 2012 (female fronted) HDTV 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник музыкальных видеоклипов разных исполнителей в отличном качестве.Жанр: Metal RockПродолжительность: ~02:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76282BF0C803CF0D985B464D3B1994DABB43AF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976782   (967522) от 19.01.2016
-
-Дискотека 80-х полная версия (2015) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главное музыкальное событие осени – Дискотека 80-х от Авторадио!
-28 ноября 2015 года на сцене СК Олимпийски' прошел XIV Международный музыкальный фестиваль Авторадио – Дискотека 80-х. Авторадио вновь приглашает всех ценителей хорошей музыки на фантастическое, захватывающее шоу, в котором гармонично сочетаются великолепные мелодии 80-х, красочные костюмы участников, (   Читать дальше...   )01. Samantha Fox - Touch me
-02. Samantha Fox - Hot stuff!
-03. Samantha Fox - Nothing gonna stop me Now
-04. Комиссар - Ты уйдёшь(   Читать дальше...   )Жанр: DiscoРежиссер: Герман СадченковАктеры: Samantha Fox, Комиссар, Земляне, Сергей Васюта и гр. Сладкий Сон, F.R.David и др.Перевод: не требуетсяПродолжительность: 04:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DABC56047489E0E2BEFDF2A5C10AB71685029C
 ```
 
 https://mybot314.ru/tekegram_catalog/

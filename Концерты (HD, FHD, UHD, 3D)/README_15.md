@@ -1,3 +1,61 @@
+###  Публикация: 1527789   (736391) от 29.01.2022
+
+Квартирник у Маргулиса. "Браво" и Los Havtanos (22.01.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса сразу две группы — «Браво» и Los Havtanos. Одни играют что-то среднее между рок-н-роллом, битом и рокабилли, другие исполняют авторскую музыку в стиле латино. «Браво» около 40 лет радуют поклонников своим творчеством и за это время стали по-настоящему легендарными, а Los Havtanos начали свой путь всего несколько лет назад. Оба коллектива, (   Читать дальше...   )0:00:00 Квартирник
+0:00:05 Мама
+0:09:42 Города
+0:15:57 Корабли(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Рок-н-ролл, латиноЯзык озвучки: РусскийПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7019F35FB2D92AADEA23DADAAA68A72A100CA6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525806   (736297) от 29.01.2022
+
+Metallica - Seattle (1989) Blu-ray [MPEG-2/1080i] [AI Remastered]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Альбом Metallica 1988 года ...And Justice For All — их первый альбом, попавший в десятку лучших альбомов Billboard и занявший 6-е место — до сих пор остается самым продаваемым альбомом группы. На сегодняшний день только в США было продано восемь миллионов копий, пластинка также принесла героям трэш-метала их дебютную награду Грэмми. Содержащий в себе ряд абсолютно (   Читать дальше...   )01 The Ecstasy Of Gold [01:59]
+02 Blackened (Live) [06:37]
+03 For Whom The Bell Tolls (Live) [05:30]
+04 Welcome Home (Sanitarium) (Live) [06:47](   Читать дальше...   )Производство: СШАЖанр: Thrash MetalЯзык озвучки: АнглийскийПродолжительность: 02:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF871D205E78772D6667D93E106C8B661B3A3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527828   (735848) от 30.01.2022
 
 Квартирник у Маргулиса. Emin (29.01.2022) WEBRip [H.264/1080p]
@@ -6,7 +64,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +151,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -206,7 +264,7 @@ Mr. Big - Raw Like Sushi 114 (Live At Budokan 2014) (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +293,7 @@ Lynyrd Skynyrd - Pronounced Leh - Nerd Skin - Nerd & Second Helping (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +380,7 @@ Pink Floyd - Delicate Sound Of Thunder (1989) HDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +464,7 @@ Within Temptation - Black Symphony (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +522,7 @@ OneRepublic: One Night in Malibu (2021) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +580,7 @@ Pink Floyd: P. U. L. S. E. Live at Earls Court (1994) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -551,7 +609,7 @@ Queen - Live At The Rainbow '74 (2014)  BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +667,7 @@ Led Zeppelin: The Song Remains The Same (2007) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_715304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -635,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -662,7 +720,7 @@ Arch Enemy - War Eternal Tour - Tokyo Sacrifice (2016) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -676,65 +734,6 @@ Arch Enemy - шведская группа, играющая в стиле ме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4080886C312D4FA07C2FCCE3A0D141046696FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 328855   (713549) от 27.04.2011
-
-AC/DC: Live at Donington (1991) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_713549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderstruck
-02. Shoot to Thrill
-03. Back in Black
-04. Hell Ain't a Bad Place to Be(   Читать дальше...   )Жанр: Hard RockАктеры: Янг Ангус (Angus Young), Янг Малкольм (Malcolm Young), Брайан Джонсон (Brian Johnson), Уильямс Клифф (Cliff Williams), Крис Слэйд (Chris Slade)Перевод: оригинал (eng)Продолжительность: 01:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532566   (712657) от 20.02.2022
-
-Квартирник у Маргулиса. К 70-летию Александра Барыкина (20.02.2022) WEBRip [VP9/2160p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712657.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 февраля 2022 года советскому и российскому поп-рок-музыканту Александру Барыкину исполнилось бы 70 лет.
-В 1970-х гг. , в начале своей карьеры, Александр Барыкин выступал с ВИА «Москвичи», но спустя год присоединился к популярному ансамблю «Весёлые ребята». Однако всесоюзная известность пришла к нему спустя почти 10 лет, когда он вместе с гитаристом «Самоцветов» (   Читать дальше...   )00:00:00 Квартирник
-00:00:06 Букет
-00:04:31 Под шум дождя
-00:11:40 Лёд слёзы льёт(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopПродолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D03210770863DF1F87251ED75E7A1514BE6487
 ```
 
 https://mybot314.ru/tekegram_catalog/

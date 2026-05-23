@@ -1,3 +1,270 @@
+###  Публикация: 1703108   (114779) от 02.03.2024
+
+Лотт Стивен, Филлипс Дасти | Объектно-ориентированный Python, 4-е изд. (2024) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Глубоко погрузитесь в различные аспекты объектно-ориентированного программирования на Python, паттерны проектирования, приемы манипулирования данными и вопросы тестирования сложных объектно-ориентированных систем. Обсуждение всех понятий подкрепляется примерами, написанными специально для этого издания, и практическими упражнениями в конце каждой главы. Код всех (   Читать дальше...   )Жанр: ПрограммированиеПеревод: С. ЧерниковИздательство: ПитерФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15CB3DC1D3103BDF86420DBA017A5974D94C78F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738224   (106387) от 21.07.2024
+
+S. Haghsheno, G. Satzger | Kunstliche Intelligenz im Bauwesen (2024) [PDF] [DE]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dieses Fachbuch demonstriert das Potenzial Künstlicher Intelligenz (KI) im Bauwesen. Die rasant wachsende Menge an Daten sowie die in Bauprojekten eingesetzte Hard- und Software bilden die Grundlage für projektübergreifende und vorausschauende Analysen, die u.a. durch Ansätze des maschinellen Lernens und der Robotik ermöglicht werden.
+Die (   Читать дальше...   )Жанр: учебное пособиеЯзык: немецкийИздательство: Wiesbaden: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A35ADB8481D76BCC1DF3BF3A7E83DE0BB225A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738214   (106382) от 21.07.2024
+
+E. Voigts, R.M. Auer et al (еditors) | Artificial Intelligence - Intelligent Art? (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+As algorithmic data processing increasingly pervades everyday life, it is also making its way into the worlds of art, literature and music. In doing so, it shifts notions of creativity and evokes non-anthropocentric perspectives on artistic practice. This volume brings together  "Human-Machine Interaction and Creative Practice" from the fields of cultural (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Bielefeld (Germany): Transcript Digital SocietyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2402FB03CFF93DA037F074D7479E00FAA0A3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822947   (104410) от 09.10.2025
+
+Сергей Константинов | API как искусство: разработка, поддержка, интеграция (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно рассказано, как написать качественный API и интегрировать его в имеющуюся систему. Рассмотрено, как готовить спецификации API, работать с запросами, обслуживать мобильные и серверные API для взаимодействия с базами данных и обмена сообщениями, реализовывать нетривиальную бизнес-логику и подбирать подходящую схему API даже для самых сложных и нечетких (   Читать дальше...   )Жанр: ПрограммированиеИздательство: БХВ-ПетербурrФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF51C705F3EC997D0202C1E2C62BCD3237D9147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822616   (100927) от 07.10.2025
+
+Chip Huyen | AI Engineering: Building Applications with Foundation Models (2025) [PDF, MOBI, AZW3] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+In this book, author Chip Huyen discusses AI engineering: the process of building applications with readily available foundation models.
+The book starts with an overview of AI engineering, explaining how it differs from traditional ML engineering and discussing the new AI stack. The more AI is used, the more opportunities there are for catastrophic failures, and (   Читать дальше...   )Жанр: Компьютерная литература, искусственный интеллектЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, MOBI, AZW3Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC119190AE9946E8957D5F6C7807A91844CE8A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821884   (91188) от 04.10.2025
+
+Анхель Сола Орбайсета | Создание фронтенд-фреймворка с нуля (2025) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мы используем фронтенд-фреймворки каждый день, но вряд ли действительно понимаем, что происходит там, под капотом. Создание своего фреймворка – отличный способ узнать, как он работает с DOM, генерирует представления страниц, передает данные между компонентами и взаимодействует с операционной системой. Шаг за шагом мы будем создавать собственный фреймворк на JavaScript (   Читать дальше...   )Жанр: ПрограммированиеПеревод: Е.А. МатвеевИздательство: ПитерФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8EADFFF99D8A34E51C662981311A8857D063C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488480   (90932) от 26.04.2012
+
+А.С. Кудрявцев | Программирование в Delphi. Учебное пособие [2011] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В пособии рассматриваются общие характеристики и структура программной системы Delphi, графический интерфейс ее среды программирования, основные конструкции используемого языка программирования и технология программирования.2011Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F35E6AE9DB2FBD922C2665DE9479C8606BD537D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475217   (85141) от 29.03.2012
+
+Махер Али | Программирование для iPhone [2010] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для профессиональных программистов, желающих создавать приложения для2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFCC33B6FCB9B3F8B6DF3E83D65302F1648964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474021   (84798) от 27.03.2012
+
+Ю.Жуков | Основы веб-хакинга. Нападение и защита [2011] [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Книга для всех интересующихся хакингом веб-сайтов, с параллельным освещением аспектов надежной защиты. Изложение построено на учебных примерах, которые пользователь создает на своем компьютере, и реальных уязвимостях широко распространенных бесплатных движков сайтов, уже имеющихся в тестовой системе. Работа ведется в двух хакерских дистрибутивах Linux — Damn Vulnerable Linux и Back Track 4, работающих на локальном компьютере пользователя под управлением виртуальной машины в ОС Windows.2011Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93ECEC502A7532B00B49549B840256167DA4727C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469514   (82767) от 17.03.2012
+
+Л.Г.Гагарина, В.Д.Колдаев | Алгоритмы и структуры данных [2009] [DjVu]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Даны основные понятия алгоритмизации, свойства алгоритмов, общие принципы их построения, основные алгоритмические конструкции, представлена эволюция языков программирования.
+ Рассмотрен широкий круг методов обработки линейных и нелинейных структур данных. Описана технология функционирования и оценки функции сложности различных алгоритмов для работы с очередями, стеками, списками, деревьями, таблицами и графами. В приложениях приведены системы счисления и методы измерения количества информации.
+ Задача данного пособия состоит в следующем:
+• познакомить со всем разнообразием имеющихся структур данных, показать, как эти структуры реализованы в языках программирования;
+• рассмотреть основные операции, которые выполняются над структурами данных;
+• показать особенности структурного подхода к разработке алгоритмов, продемонстрировать порядок их разработки. Для студентов, аспирантов, преподавателей, специалистов — от инженера до системного аналитика в области численных методов и компьютерного моделирования. Может быть использовано (   Читать дальше...   )Жанр: ПрораммированиеФормат: DjVu
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E1FE41412049EB9647347286628E73849EAC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467310   (81942) от 13.03.2012
 
 Руслан Аблязов | Программирование на ассемблере на платформе x86-64 [2011] [PDF]
@@ -6,7 +273,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -36,7 +303,7 @@ MacDonald | Pro Silverlight 5 in C# [2012] [PDF] [Eng]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +359,7 @@ Jonathon Simpson | How JavaScript Works (2024) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +385,7 @@ Rob Chapman, Peter Holmes | Observability with Grafana (2024) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +411,7 @@ Noel Rappin | Modern CSS with Tailwind (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -225,7 +492,7 @@ Min-Yih Hsu | LLVM Techniques, Tips, and Best Practices Clang and Middle-End Lib
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -280,7 +547,7 @@ Robert C. Martin | Clean Code Collection (2012) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -309,7 +576,7 @@ Zed A. Shaw | Learn More Python 3 the Hard Way: The Next Step for New Python Pro
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -335,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -361,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +682,7 @@ Kyran Dale | Data Visualization with Python and JavaScript (2016) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,273 +694,6 @@ You’ll examine steps along the entire toolchain, from scraping, cleaning, expl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78DD0A4275FE46BBCB287FA2449EA1F99B1702B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727646   (54471) от 03.06.2024
-
-Хэдли Уикем, Мальте Гроссер, Хеннинг Буманн | R. К вершинам мастерства (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54471.jpg" />
-</div>
-
-
-###  Подробнее
-
-R – безусловно лучшая среда для интерактивного анализа данных. Тем не менее язык R имеет множество особенностей, которые иногда скудно документированы. В данной книге Хэдли Уикем, один из лучших в мире гуру по R, проясняет эти неясные уголки и знакомит с современными библиотеками языка. В книге приведены решения и подробные комментарии ко всем упражнениям. Если вы (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: А.Ю. ГинькоИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E87D4C6ED683746D35708ECB5C383DF14424A81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727650   (54447) от 03.06.2024
-
-Paul Barry | Head First Python. Second edition (2016) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54447.jpg" />
-</div>
-
-
-###  Подробнее
-
-With Head First Python, you’ll quickly grasp Python’s fundamentals, working with the built-in data structures and functions. Then you’ll move on to building your very own webapp, exploring database management, exception handling, and data wrangling. This second edition is a complete learning experience that will help you become a bonafide Python programmer in no (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D709CBC5FE019F9E9A49CF134C08740868A1CE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727889   (54368) от 04.06.2024
-
-Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54368.jpg" />
-</div>
-
-
-###  Подробнее
-
-The purpose of this book is to teach the main concepts of Bayesian data analysis.
-What you will learn
-Understand the essentials Bayesian concepts from a practical point of view
-Learn how to build probabilistic models using the Python library PyMC3(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFE8D2B786D2FCBD539A749BB9A247A347240AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728233   (54220) от 06.06.2024
-
-Реувен М. Лернер | Python-интенсив. 50 быстрых упражнений (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор, Реувен М. Лернер преподает Python и data science компаниям по всему миру.
-«Python-интенсив: 50 быстрых упражнений» – пособие по программированию для продолжающих, тех, кто владеет теоретической базой языка Python.
-Книга отлично подойдет всем, кто хочет применить свои знания на практике. Перед каждым упражнением вы найдете теоретическую выжимку, необходимую (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92C443D9E19B618FA2A49F6EDB46627847E85C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729211   (53805) от 10.06.2024
-
-Джеймс Девис | Решаем задачи Python (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга - это практическое руководство для освоения языка программирования Python через решение разнообразных задач и проектов. В книге представлены подробные решения и код для каждой задачи. Основные разделы включают:
-- Логическое мышление и базовые конструкции: задачи для развития алгоритмического мышления и понимания основных конструкций Python.
-- Рисование (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЛитРесФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729429   (53277) от 15.06.2024
-
-Билл Любанович | FastAPI: веб-разработка на Python (2024) [PDF, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53277.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastAPI — относительно новый, но надежный фреймворк с чистым дизайном, использующий преимущества актуальных возможностей Python. Как следует из названия, FastAPI отличается высоким быстродействием и способен конкурировать в этом с аналогичными фреймворками на таких языках, как Golang. Эта практическая книга расскажет разработчикам, знакомым с Python, как FastAPI (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ПитерФормат: PDF, EPUBКачество: Изначально электронное (ebook) (PDF, EPUB), OCR (PDF)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED43AAEF70E8770D7A347A3310C140F5D384886E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821418   (52067) от 02.10.2025
-
-Лили Мара, Джоэл Холмс | Переход на Rust. Рефакторинг исходного кода с других языков (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас расширять функциональность и повышать производительность приложений за счет поэтапного рефакторинга кодовой базы на язык Rust. Вы узнаете, как использовать Rust для обертывания опасного исходного кода, вызывать стандартные и прикладные библиотеки языка Rust и даже использовать формат байт-кода Wasm для исполнения кода Rust в браузере, а также (   Читать дальше...   )Жанр: ПрограммированиеПеревод: А. В. ЛогуновИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73691CD21B7D3161CC95AB8ED3AB70BCDC1F40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558904   (51879) от 27.06.2024
-
-Книжная серия | Профессиональное программирование [63 книги (+2СD, код, пример)] (2005-2023) [PDF][Обновляемая]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "Профессиональное программирование" - незаменимый помощник в изучении современных технологий программирования и выборе оптимальных и эффективных решений при разработке программ. Для квалифицированных разработчиков программного обеспечивания, системных аналитиков, архитекторов проектовЖанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Различное
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8F70AD38088D42DEFA6149F529383EF8102CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733088   (51870) от 27.06.2024
-
-О.И. Цилюрик | Расширения ядра Linux: драйверы и модули (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51870.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно рассмотрено программирование драйверов ядра Linux, исследованы возможности расширяемости ядра при помощи модулей. Основная версия ядра — 5.15. Код примеров отработан и проверен на десятках различных инсталляций Linux, установленных из различных дистрибутивов и разных семейств дистрибутивов: Fedora, CentOS, Debian, Ubuntu, Mint. Уделено внимание архитектурам (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32AEA08763BDF3D8A99737E4BAA3F0381C20F049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732521   (51578) от 30.06.2024
-
-Брюс М. Ван Хорн II, Куан Нгуен | PyCharm. Профессиональная работа на Python (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51578.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm – лучшая профессиональная среда разработки для программистов Python среди множества доступных интегрированных сред. Независимо от того, в каких целях используется Python – для общих задач автоматизации, создания утилит, веб-приложений, анализа данных, машинного обучения или бизнес-приложений, – инструменты PyCharm упрощают выполнение сложных задач и оптимизируют (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: И.Л. ЛюскоИздательство: ДМК-ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA1A209B3F7D6051CD0842B8B9B1FA6F7FF0C33
 ```
 
 https://mybot314.ru/tekegram_catalog/

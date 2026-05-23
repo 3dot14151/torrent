@@ -1,3 +1,81 @@
+###  Публикация: 1055023   (489518) от 21.09.2016
+
+Шрек навсегда / Shrek Forever After (2010) BDRip [H.265/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чем бы еще заняться огру, который уже сразился со злым драконом, спас прекрасную принцессу и уберег от беды королевство родственников по линии жены? Что ж, если вы Шрэк, то, сами того не заметив, вы вдруг сядете дома и станете наслаждаться покоем в кругу семьи. Вместо того чтобы как раньше пугать деревенских жителей, теперь Шрэк, хоть и с неохотой, но соглашается (   Читать дальше...   )Производство: США /  DreamWorks Animation, Pacific Data Images (PDI)Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Майк МитчеллПерсонажи: Майк Майерс, Эдди Мёрфи, Кэмерон Диаз, Антонио Бандерас, Джули Эндрюс, Уолт Дорн, Джейн Линч, Крэйг РобинсонПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A4DA219CE778BF1C5833430E2EBFB195237731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158584   (489430) от 17.08.2017
+
+Хороший динозавр / The Good Dinosaur (2015) BDRip [H.264/1080p-LQ] [Локализованная версия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+По сюжету динозавры не вымерли, а эволюционировали в разумных существ и живут и здравствуют на Земле. А вот люди остались на довольно примитивной стадии развития. Фильм расскажет историю дружбы динозавра и маленького мальчика.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Питер СонПерсонажи: Джеффри Райт, Фрэнсис МакДорманд, Малиа Нипай-Падилья, Райан Типл, Джек МакГроу, Маркус Скрибнер, Рэймонд Очоа, Джек Брайт, Питер Сон, Стив Зан, Мэнди Фройнд, Стивен Клэй Хантер, А.Дж. Бакли, Анна Пакуин, Сэм Эллиотт, Дэвид Боат, Кэрри Пафф, Кэлам Грант, Джон РатценбергерПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (форс. + полные), английские ( Full + SDH)Продолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A87B4A627C9D0F82AC7F593DAFCE35A031F712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937186   (489372) от 14.09.2015
+
+Обычное шоу: Фильм / Regular Show: The Movie (2015) WEB-DL [H.264/720p] [VO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спокойная и размеренная жизнь Мордекаю и Ригби закончилось, когда на землю приземлились инопланетяне, которые хотят уничтожить всю вселенную. Теперь нашим рероям необходимо отправиться в космос, чтоб сразиться со злодеями и таким образом спасти всех. Но вечные споры между друзьями ставят в опасности их дружбу и всю миссию...Производство: СШАЖанр: Фантастика, КомедияРежиссер: Дж.Дж. КуинтелАктеры: Марк Хэмилл, Дэвид Кокнер, Джейсон Манцукас, Сэм Марин, Дж.Дж. Куинтел, Уильям Салиерс, Роджер Крэйг СмитПеревод: Одноголосый закадровый, любительскийОзвучка / Автор перевода: mazehackaStudioЯзык субтитров: АнглийскийПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7007099EA51D3E055EC976B5AA2A07D0A5BEC1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404885   (489068) от 27.08.2020
 
 Смерть и возвращение Супермена / The Death and Return of Superman (2019) BDRip [H.264/1080p-LQ] [MVO]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +378,7 @@ Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD148556B5A9F462816C528FC27BF7560E05A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822853   (475119) от 20.09.2014
-
-Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of Awesome! (2014) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475119.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом мееееедленном городке мира четверо счастливчиков обнаруживают, что жизнь становится намного интересней, если слегка... поддать газку! Познакомьтесь с Гейджем, Уайеттом, Брэндоном и Рэттом. Эти ребята рождены для гонок. Поодиночке они отлично подготовленные рэйсеры, но вместе становятся настоящей КОМАНДОЙ ХОТ ВИЛС! Однажды по городу с ревом проносится загадочная (   Читать дальше...   )Производство: СШАЖанр: ДетскийРежиссер: Метт ДеннерПерсонажи: Грант Джордж, Дэвид Лодж, Николас Ройе, Бен Дискин, Фарук ТаухидПеревод: Дублированный (Лицензия)Продолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAC9A1D32FBFBF9F2E6186806AB172635B57868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822889   (475113) от 20.09.2014
-
-Hot Wheels: Начало приключений / Team Hot Wheels: The Origin of Awesome! (2014) BDRemux [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475113.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом мееееедленном городке мира четверо счастливчиков обнаруживают, что жизнь становится намного интересней, если слегка... поддать газку! Познакомьтесь с Гейджем, Уайеттом, Брэндоном и Рэттом. Эти ребята рождены для гонок. Поодиночке они отлично подготовленные рэйсеры, но вместе становятся настоящей КОМАНДОЙ ХОТ ВИЛС! Однажды по городу с ревом проносится загадочная (   Читать дальше...   )Производство: СШАЖанр: ДетскийРежиссер: Метт ДеннерПерсонажи: Грант Джордж, Дэвид Лодж, Николас Ройе, Бен Дискин, Фарук ТаухидПеревод: Дублированный (Лицензия)Продолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2E47369BDD18BC2A2F14DC389DAA0FF0C76F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160534   (473511) от 25.08.2017
-
-Капитан Подштанник: Первый эпический фильм / Captain Underpants: The First Epic Movie (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое учеников начальной школы загипнотизировали директора школы так, что он стал супергероем, помогающим их одноклассникам.Производство: США, DreamWorks Animation, Scholastic ProductionsЖанр: Мультфильм, Боевик, КомедияРежиссер: Дэвид СоренПерсонажи: Эд Хелмс, Кевин Харт, Ник Кролл, Томас Миддлдитч, Джордан Пил, Кристен Шаал, Ди Ди Решер, Брайан Посен, Дэвид Сорен, Мэл Родригез ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFF07B6A07677D5464F1DC74590F401840F1C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

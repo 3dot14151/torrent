@@ -1,3 +1,31 @@
+###  Публикация: 794421   (697467) от 08.06.2014
+
+Walkure Romanze / Романс Валькирий [2013, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом мире рыцарские схватки превратились в популярный спорт, и попасть в рыцарскую академию, что раскинулась в стилизованном средневековом городе, стремятся талантливые ребята со всего света. Исход поединка решает не грубая сила, а точность ударов, потому ристалище доступно для всех. Такахиро Мидзуно считался одним из лучших, но в старшей школе из-за травмы был вынужден перейти в оруженосцы, то есть в помощники и тренеры, которые могут полностью раскрыть потенциал бойца и его коня. Хорошие помощники ценятся на вес золота, потому недостатка в приглашениях к сотрудничеству перед летним турниром у парня не было. Стоит ли удивляться, что все предложения поступили от бойцов-девушек?!
+
+Самое весомое из них, разумеется, сделала Селия Кумани Энтре, президент совета и первый рыцарь академии. Ее извечная соперница Ноэль Марс Аскот не захотела уступать и тоже обратилась с аналогичной просьбой. Не отстала от старших подруг перспективный новичок Лиза Эостре – в конце концов, ей «принимать школу» после ухода нынешних суперзвезд. (   Читать дальше...   )Жанр: приключение, романтика, эттиРежиссер: Ямамото ЮсукэПеревод: ZoolФормат: MKV |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468B4329AA13DB6C2DC0CB5EEF75268162AB79AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200996   (696643) от 23.04.2018
 
 Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
@@ -6,7 +34,7 @@ Gakuen Babysitters / Школьные няньки [2018, TV, 12 ep] WEB-DL 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +60,7 @@ Ryuuou no Oshigoto! / The Ryuo's Work is Never Done! / Работёнка для
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +86,7 @@ Dagashi Kashi 2 / Магазинчик сладостей [ТВ-2] [2018, TV, 12
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +112,7 @@ Hataraku Onii-san! / Коты-Работяги! [2018, TV, 13 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +138,7 @@ Karakai Jouzu no Takagi-san / Насмешница Такаги-сан [2018, TV
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +164,7 @@ Killing Bites / Смертельный укус [2018, TV, 12 ep] WEB-DL 720p Ra
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +190,7 @@ Kokkoku / Миг за мигом [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +216,7 @@ Koi wa Ameagari no You ni / After the Rain / Любовь - словно про�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +242,7 @@ Itou Junji: Collection / Junji Ito Collection / Коллекция Ито Дзю
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +269,7 @@ Mahou Tsukai no Yome / The Ancient Magus' Bride / Невеста Чародея 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +295,7 @@ Takunomi / Выпиваем дома [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +321,7 @@ Pop Team Epic / Эпичная попса [2018, TV, 12 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +347,7 @@ Sora Yori mo Tooi Basho / A Place Further Than the Universe / Место, что
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +373,7 @@ Violet Evergarden / Виолетта Эвергарден [2018, TV, 13 ep] WEB-
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +399,7 @@ Overlord II / Повелитель 2 [2018, TV, 13 ep] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +425,7 @@ Sanrio Danshi / Sanrio Boys / Парни из «Санрио» [2018, TV, 12 ep]
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +451,7 @@ Cyber City Oedo 808 / Кибер-город Эдо 808 [1990, OVA, 3] BDRip 720p
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +477,7 @@ Sword Art Online / Мастера меча онлайн [2012, TV, 25 ep] BDRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +503,7 @@ Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_688705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +530,7 @@ Naruto: Shippuuden / Наруто: Ураганные хроники [2007, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +556,7 @@ Gakusen Toshi Asterisk / The Asterisk War / Боевая академия гор
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +582,7 @@ Evangelion: 2.22 You Can (Not) Advance / Евангелион 2.22: Ты (Не) 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -580,7 +608,7 @@ Ushio to Tora / Усио и Тора TV-2 [2016, TV, 13] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +634,7 @@ Big Order / Приказ свыше [2016, TV, 10] HDTV 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +660,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,33 +671,6 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDC392DFBA468ED643202DD5668FE90B6281CD83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007068   (669744) от 02.07.2016
-
-Mayoiga / The Lost Village / Пристанище потерянных [2016, TV, 12] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа из тридцати человек вместе садится на автобусный тур. Их пункт назначения — покрытая тайной и, возможно, даже не существующая деревенька Нанакимура. В этой деревне обещано утопическое существование, свободное от шор бренного мира... по крайней мере, таковы слухи.
-Автобус направляется глубоко в горы, увозя с собой тридцать молодых парней и девушек, в сердцах (   Читать дальше...   )Производство: Япония, Studio Barcelona / ディオメディアЖанр: ПриключенияРежиссер: Мидзусима ЦутомуПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5324D70DDD5EF39FAC1E0F3AAC1848A078FB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

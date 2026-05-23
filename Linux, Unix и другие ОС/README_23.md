@@ -1,3 +1,245 @@
+###  Публикация: 1261948   (298413) от 13.11.2018
+
+Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Доступно шестое корректирующее обновление дистрибутива Debian 9, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 88 обновлений с устранением проблем со стабильностью и 92 обновления с устранением уязвимостей.
+
+Из изменений в Debian 9.6 можно отметить удаление 46 пакетов, из которых большинство являются дополнениями (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14232E14C93ACDCBD9050809003C0C1015D4E637
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332625   (296485) от 28.10.2019
+
+Ubuntu BusinessPack 16.04 (август 2019) [amd64, i386] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках. Она ориентирована на простоту использования и удобство работы.
+Включена необходимая подборка программного обеспечения, которая позволяет создать удобное рабочее окружение в корпоративной среде предприятия или на домашнем компьютере.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAB7FD7EDE8CC4316A1AA9534CB1050E2829A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333079   (296468) от 28.10.2019
+
+Ubuntu BusinessPack 18.04 (август 2019) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках. Она ориентирована на простоту использования и удобство работы.
+Включена необходимая подборка программного обеспечения, которая позволяет создать удобное рабочее окружение в корпоративной среде предприятия или на домашнем компьютере.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096AE5721483A00A57D3E708CB9FDBB624AF4030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079208   (295699) от 03.12.2016
+
+Mageia 5.1 Cauldron [i586] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079211   (295586) от 03.12.2016
+
+Mageia 5.1 Cauldron [x86-64] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После полутора лет разработки доступен респин Linux-дистрибутива Mageia 5 - Mageia 5.1, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), набор Live-сборок на базе GNOME и KDE с различными наборами локализации. Проект Mageia (МАГ) стартовал в сентябре 2010 как форк (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731871   (295400) от 08.12.2013
+
+PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен релиз PCLinuxOS 2013.12 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя.
+
+В релизе PCLinuxOS 2013.12:  KDE 4.11.3;   ядро 3.4.70-pclos1; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847733   (293797) от 06.12.2014
+
+Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Sabayon Linux 14.12, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее болезненным.  Добавлены новые ядра - Linux Kernel 3.10, 3.12.
+
+Пакетная база дистрибутива синхронизирована с коллекцией портажей Gentoo и полностью (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262785   (290931) от 17.11.2018
+
+Arco Linux 18.11.2 [x86_x64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Arco Linux - это дистрибутив, сочетающий в себе мощь Arch Linux, пользовательского репозитория AUR и собственных наработок авторов Arcolinux. Данная версия включает в себя окружения рабочего стола Xfce, Openbox and i3, установщик Calamares и различный софт, темы и иконки, устанавливаемые "из коробки". Остальное можно доустановить из терминала или используя (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963033   (290558) от 06.12.2015
+
+Oracle Linux 7 Update 2 Server [x86-64] 1xDVD + 2CD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Oracle Linux — инициатива Oracle Corporation по созданию собственного дистрибутива операционной системы, основанного на Red Hat Enterprise Linux. Это специализированный дистрибутив предназначенный для установки на сервера баз данных. В дистрибутив включены все критичные для работы базы данных Oracle апдейты, исправлены ошибки. Кроме того, начиная с марта 2012 года, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02141C56C60EEA84559882CC8020E5CEF9EDE0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186088   (287298) от 24.11.2017
 
 Skype for Linux 8.11.0.4 [x86_64] (rpm,deb)
@@ -6,7 +248,7 @@ Skype for Linux 8.11.0.4 [x86_64] (rpm,deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +276,7 @@ Mageia 4 Beta II [i586, x86-64] 7xDVD, 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -68,7 +310,7 @@ Parted Magic 2019.11.04 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -94,7 +336,7 @@ Linux Mint 17.1 Rebecca (Mate, Cinnamon) (nocodecs) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +364,7 @@ Linux Mint 17.1 oem Rebecca (Mate, Cinnamon) [64bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +392,7 @@ Red Hat Enterprise Linux 8.1
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -176,7 +418,7 @@ Red Hat Enterprise Linux 7.7
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +446,7 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -230,7 +472,7 @@ Linux Mint 18.1 Serena (Mate) [64bit] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -256,7 +498,7 @@ Sublime Text 3 Build 3156 Dev [x86_x64] (deb, rpm, tar.bz2, tar.xz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -283,7 +525,7 @@ IRIX 5.3 [MIPS] 4xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -310,7 +552,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -338,7 +580,7 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -366,7 +608,7 @@ IRIX 6.5 [MIPS] 12xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -393,7 +635,7 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -419,7 +661,7 @@ Red Hat Enterprise Linux 10.1 [x86_64, aarch64] 4xDVD 1xWSL
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -447,7 +689,7 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -459,249 +701,6 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E457FB42F8077D09A3FDEF17BC3C953AD684B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497290   (253568) от 16.05.2012
-
-Ophcrack 3.4.0 (Взлом паролей Windows)[x86] (3xCD)
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253568.jpg" />
-</div>
-
-
-###  Подробнее
-
-OPHcrack это ОС, созданная для взлома паролей Windows.
-
-Этот релиз содержит инструменты для взлома ОС, как XP так и Vista/7 ( LM and NTLM Windows hashes (local SAM files)), и отображает пароли в виде текста. Программа для взлома паролей, основанная на rainbow table (более подробно о принципе взлома  можно прочитать в журнале - http://www.xakep.ru/magazine/xa/082/050/1.asp). В новой версии улучшена производительность, авторы обещают взлом 99.9% алфавитно-цифровых паролей за считанные секунды.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF9DBF54CBA03EA1046713E30A93752F1C8549C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566773   (252022) от 26.05.2023
-
-Mathworks Matlab R2023a (9.14) + Update1+ Update2 + Addon Packages [x64] (iso)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252022.jpg" />
-</div>
-
-
-###  Подробнее
-
-MATLAB – это высокоуровневый язык технических расчетов, интерактивная среда разработки алгоритмов и современный инструмент анализа данных. MATLAB по сравнению с традиционными языками программирования (C/C++, Java, Pascal, FORTRAN) позволяет на порядок сократить время решения типовых задач и значительно упрощает разработку новых алгоритмов. MATLAB представляет собой (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F506203185DB1AF4EED2662E354A1753ACBBC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624801   (251905) от 31.05.2023
-
-TrueNAS CORE 13.0-U4 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251905.jpg" />
-</div>
-
-
-###  Подробнее
-
-TrueNAS CORE (ранее FreeNAS) — это бесплатная операционная система для хранения данных на базе ОС FreeBSD с открытым исходным кодом, которая дает возможность создать собственный сервер для хранения данных без затрат на программное обеспечение.
-
-Для нормальной работы системы TrueNAS на компьютере должно быть, как минимум 8 ГБ оперативной памяти, если планируется установка (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562695   (250316) от 10.07.2022
-
-Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 79 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 11.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CCF7C3FD41700A5C30187F86619E22F0897E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562692   (250305) от 10.07.2022
-
-Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 11, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 81 обновление с устранением проблем со стабильностью и 79 обновлений с устранением уязвимостей.
-
-Из изменений в Debian 11.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD67E881832CEE7FDF1D2E9D3D4EC75DE413CA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535119   (249347) от 26.03.2022
-
-Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит безопасности, хакинг.
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249347.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 февраля 2022 состоялся релиз обновления дистрибутива Kali Linux 2022.1, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39061023E6A63AB8F8AAABF991778463E54333B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493457   (249326) от 09.05.2012
-
-Sopcast 0.8.2 (ubuntu ppa,.tar.gz) [Multi/Русский]
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249326.jpg" />
-</div>
-
-
-###  Подробнее
-
-SopCast Player - клиент, позволяющий смотреть видео-трансляции, которые распространяются по технологии p2p.Название программы: SopcastЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492547   (248306) от 06.05.2012
-
-GIMP 2.8 (ubuntu ppa,.tar.bz2)[Multi/Русский]
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248306.jpg" />
-</div>
-
-
-###  Подробнее
-
-GIMP - средство для работы с изображениями. Программа может справиться с задачами создания графики и логотипов, масштабирования и кадрирования фотографий, раскраской, комбинирования изображений с использованием слоев, ретуширования и преобразования изображений в различные форматы. GIMP является одним из первых приложений подобного класса, которое распространяется с открытыми исходными кодами. Несмотря на то, что GIMP является свободным ПО, его возможности практически не уступают аналогичному продукту Adobe Photoshop.Название программы: GIMPЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541950   (243659) от 06.04.2022
-
-Fedora 36 Workstation Server Beta [x86_64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fedora — дистрибутив Linux, спонсируемый фирмой Red Hat и содержащий возможности, которые в будущем предполагаются к использованию в дистрибутиве Red Hat Enterprise Linux. Цель проекта — построение целостной операционной системы из свободного программного обеспечения силами сообщества в духе экосистемы Red Hat Linux.
-Актуальные версии дистрибутива в период поддержки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F7595E87EF0D1C5EAE4A82D3F571BCCD4958F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

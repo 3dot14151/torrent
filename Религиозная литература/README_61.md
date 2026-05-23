@@ -1,3 +1,116 @@
+###  Публикация: 1152150   (565683) от 23.07.2017
+
+Крестовоздвиженское православное братство (изд.) | Молитвы ко Пресвятой Богородице пред чудотворными иконами Ея (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молитвы ко Пресвятой Богородице пред чудотворными иконами Ея с указанием на их особую благодать помощи в различных нуждах и немощах наших.
+
+«Почитание Божией Матери является одной из отраднейших сторон христианства и угаснет только тогда, когда будет вытравлена в душе человеческой жажда материнской любви, материнской ласки и заботы.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F2AC59977A0042C0D62E78A81A22144B650F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152674   (565676) от 23.07.2017
+
+Синодальная библейско-богословская комиссия (изд.) | Катехизис Русской Православной Церкви [Проект] (2017) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Идея создания современного Катехизиса впервые прозвучала на Архиерейском Соборе 2008 года. Через год Священный Синод поручил Синодальной богословской комиссии начать подготовку современного Катехизиса Русской Православной Церкви.
+
+В работе над текстом Катехизиса принимали участие ведущие богословы Русской Православной Церкви. Работа над первой версией текста Катехизиса (   Читать дальше...   )Жанр: КатехизисФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2CD89BCA84443F78B84C46265D76C5C67468ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152698   (565669) от 23.07.2017
+
+П. Гольбах | Карманное богословие (1961) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Карманное богословие" Поля Гольбаха (1725 - 1780) принадлежит к числу лучших произведений мировой атеистической литературы.
+
+С точки зрения здравого смысла Гольбах критикует учение католицизма. Однако, если на этом основании православный богослов или сектантский проповедник станет с высокомерием посматривать на своего католического собрата, ему можно и (   Читать дальше...   )Жанр: История, политология, религиоведение, философия, словарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6245B49076E9FFB783B83ECC73AFC855C9798C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304197   (565555) от 25.05.2019
+
+Глаголъ (изд.) | Канон и акафист Утешителю Господу Духу Святому, всякому благу Промысленнику и Подателю (1999) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кто-то из святых отцов сказал, что человек на земле подобен путнику в чужой стороне. Цель, к которой он должен стремиться, — это Бог, путь к этой цели — Христос, а руководитель — Дух Святой.
+
+Без содействия этого Руководителя, который благодатью Своей производит в нас и хотение и действие по Своему благоволению (Фил. 2, 13), не можем мы ни совершить, ни даже помыслить (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D15E5C21DF69C8963BD7AF4A410660A87138F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304257   (565550) от 25.05.2019
 
 Александр Худошин | Как выбрать имя новорождённому (2012) [PDF, DJVU]
@@ -6,7 +119,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,114 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00210264E4F7B3FFC04F8D41BC4EC3151462A4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307874   (554695) от 11.06.2019
-
-Жан-Кристоф Рюфен | Бессмертным Путем святого Иакова. О паломничестве к одной из трех величайших христианских святынь (2014) [PDF, FB2, RTF, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жан-Кристоф Рюфен, писатель, врач, дипломат, член Французской академии, в настоящей книге вспоминает, как он ходил паломником к мощам апостола Иакова в испанский город Сантьяго-де-Компостела. Рюфен прошел пешком более восьмисот километров через Страну Басков, вдоль морского побережья по провинции Кантабрия, миновал поля и горы Астурии и Галисии. В своих путевых заметках (   Читать дальше...   )Жанр: Мемуары, паломничествоФормат: PDF, FB2, RTF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479E09E385B091423E042F1CFCE63A60A7EEC313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236434   (554528) от 17.07.2018
-
-О.О. Козарезова | Таинство Слова и Образ Троицы. Богословие исихазма в христианском искусстве (2013) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии рассматривается догматический аспект иконографии Троицы, Христа-Спасителя. Раскрывается символика Православного Храма, показывается тесная связь Православной Иконы с мистикой исихазма.
-
-Книга адресована педагогам, религиоведам, искусствоведам, студентам-историкам, культурологам, филологам.Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE43DD0869F06B77F8CFAE282F486C25FF31C1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236385   (554527) от 17.07.2018
-
-Святой праведный Иоанн Кронштадтский | Христианский смысл жизни (2013) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли статьи и записи святого праведного Иоанна Кронштадтского (1829–1908), написанные им в разные годы, но объединённые одной темой — для чего живёт человек, в чём смысл жизни.
-
-«Чистому всё чисто, а нечистому всё нечисто, но осквернились у него и ум, и совесть, его всё соблазняет, и святыня кажется нечистою. Вот как грех заразил сердце и всё существо человеческое. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB869E00D58BC9A04C7B4C333441FD731C23153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236531   (554271) от 18.07.2018
-
-Б. Алмазов | Петербургские святые [Святые, совершавшие свои подвиги в пределах современной и исторической территории Санкт-Петербургской епархии] (2014) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554271.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного писателя, старосты мемориального прихода собора Петра и Павла в Петербурге Бориса Алмазова в популярной форме рассказывается о православных святых, причисленных Священным синодом к Санкт-Петербургскому собору. И если первоначально было канонизировано 45, то теперь собор насчитывает более 134 человек, и с открытием новых документов и знаний число (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEF73FE53483DE6AEAA48123529D3AF5D0FD078
 ```
 
 https://mybot314.ru/tekegram_catalog/

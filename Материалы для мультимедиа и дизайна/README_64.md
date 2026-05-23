@@ -1,3 +1,318 @@
+###  Публикация: 989354   (916341) от 22.02.2016
+
+Шаблоны - Business Report PowerPoint Template [PPTX, PPT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Высококачественный бизнес-шаблон для PowerPoint,
+более 100 слайдов в 6 цветовых решениях.
+Макет присутствует как в Standard(4:3), так и в Wide(16:9)Формат: PPTX, PPTРазрешение файлов: 1920х1080 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A55C970668C12A0FE9885317378D30E338BE770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541882   (916337) от 22.02.2016
+
+Звуковые библиотеки - Bluezone Corporation Samples Pack [WAV, AIFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Bluezone корпорация очень рада представить вам уникальный пакет сэмплов. Это сокровище, спрятанное в недрах Вселенной из самых последних постановок. Доступные для мгновенной загрузки, FX образцы предлагают  коллекцию звуков различной тематики: барабанные петли, синтезаторные звуки и звуковые эффекты.
+Каждый набор находится в отдельной папке и может быть скачан отдельно, (   Читать дальше...   )Формат: WAV, AIFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C11431212864100A707A2AED452364CD53B3809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757633   (915444) от 17.02.2014
+
+Растровый клипарт - Репортер и Фотограф / Reporter & Photographer [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Репортеры и ФотографыФормат: JPEGРазрешение файлов: 2100х1400-8800х6600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E8C03B7CE5D5AD5A9D815CF73280A3337EBDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490781   (915151) от 22.08.2021
+
+Экшены - GraphicRiver - Vintage Paint - Photoshop Action - 19224219 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Vintage Paint - действие фотошоп превратит ваши изображения в красочное художественное полотно акварели в винтажном стиле. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, для улучшения конечного результата.Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E55E2293B419EA829B8397A80E264EBBFF38507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989549   (915043) от 23.02.2016
+
+Звуковые библиотеки - Diginoiz - R&B Love Songs [WAV, REX]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция семплов в стиле R&B, Hip Hop and modern-pop.Формат: WAV, REX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14D512ECA9E5EEC1CBFC434280AB16B34F433B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989510   (915026) от 23.02.2016
+
+Звуковые библиотеки - North hive lab - Glitch tools [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Glitch tools - отличная основа для создания электронной музыки любых стилей и направлений (Ambient, Glitch, Trip-hop). Мы постарались создать универсальные звуки, которые позволят раскрасить или дополнить ваш бит. Здесь вы найдете: коллекцию щелчков, звуки битого стекла, древесины, металла, тональные сигналы, различные искажения и ошибки, многочисленные Hi-hat & (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92C204A96C6AE94148E168C9A219C4E31353504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367777   (914006) от 17.03.2020
+
+Рамки - Рамки для влюбленных №9 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пять рамок для влюбленных.Формат: PNGРазрешение файлов: 1920x1070
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD4F708691F0F0DF0247E7A1047653D111B7655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491101   (914003) от 23.08.2021
+
+Шаблоны - Badge on Glass [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Badge on Glass - это макет, который может представлять значок под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989926CFF02E70E774EB2FDEFE49523B827364EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491102   (913999) от 23.08.2021
+
+Шаблоны - Badge Neon [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Badge Neon - это макет, который может представлять значок под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAEEE25345B48939D3155597701D5128110F6AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491110   (913924) от 23.08.2021
+
+Шаблоны - Credit Card Neon [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Credit Card Neon - это макет, который может представлять кредитную карту под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C221A867FF4FB70A9718FF7471CA5A788D911E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367920   (913785) от 17.03.2020
+
+Оверлеи - Creative Market - Falling Snow Overlays - 2044153 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+32 снежных изображения JPG созданы специально для ваших рождественских композиций. Зимние иллюстрации располагаются перед прозрачным фоном, поэтому вы можете напрямую включать их в свои проекты без дальнейшего редактирования.Формат: JPGРазрешение файлов: 2550x9220-5760x3840
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C98383DF0DD3E07D0B81C6972E290203A1B1171D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367889   (913775) от 17.03.2020
+
+Оверлеи - Creative Market - "Flowery Spring" photo overlays set - 625848 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+20 различных цветочных оверлеев для ваших фотографий.Формат: PNGРазрешение файлов: 5000x3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE37389244C4CFC0BC5168BA63D0E6251ACD58B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367897   (913711) от 17.03.2020
 
 Оверлеи - Creative Market - Dinosaurs Photo Overlays Pack - 3998675 [PNG]
@@ -6,7 +321,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,323 +671,6 @@ Facebook in Dark - это макет, который может представ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58AF02728DEC4AA6A0F6114B8B62FC919DD31704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491391   (912210) от 24.08.2021
-
-Векторный клипарт - Cartoon Symbol Of The Year [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сборка детского клипарта
-21 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070D07D2B86CBBA6D2C63874E6566FF016B4AA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491312   (912200) от 24.08.2021
-
-Шаблоны - Facebook Neon [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Facebook Neon - это макет, который может представлять публикацию Facebook под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BDDF8EA19947BF85AE9E679BE5B86D3624E0B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491255   (912189) от 24.08.2021
-
-Шаблоны - City light in Dark [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912189.jpg" />
-</div>
-
-
-###  Подробнее
-
-City light in Dark - это макет, который может представить городской свет на темном фоне под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B22E56E66EA6679866BCE9543BF3F502B0A683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368107   (912180) от 18.03.2020
-
-Растровый клипарт - Creative Fabrica - Cozy Fall. Watercolor Animals and Plants [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ручная роспись акварелью. Пакет включает в себя 74 PNG файла с прозрачным фоном. Идеально подходит для скрапбукинга и многих других проектов.Формат: PNGРазрешение файлов: 631x556-5985x5906
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A2B31CB90F2BCB3015D871FD1264C9F1B85B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491358   (912157) от 24.08.2021
-
-Шаблоны - Water Bottle Box [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water Bottle Box - это макет, который может представить коробку для бутылки с водой под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506F4274373AF7FBD8678F1400F5827B4732BC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491249   (912140) от 24.08.2021
-
-Шаблоны - Certificate Neon [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сертификат Neon - это макет, который может представлять сертификат под разными углами, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA944D8BBCB99962A857E093BC43F4FC9D80D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368050   (912139) от 18.03.2020
-
-Растровый клипарт - Gift Cliparts 3D Renders Pack [JPG, PNG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний клипарт подарки и Тележки для покупок.Формат: JPG, PNG, PSDРазрешение файлов: 1000x1000-2400x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D02E7BC074D50DFF64C486E0285CE96B453EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491248   (912136) от 24.08.2021
-
-Шаблоны - Caffe Social media [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caffe Social media - это макет, который может представить смайлики социальных сетей в разных ракурсах, которые вы можете использовать для своего дизайна, подходит для брендов и состоит из отдельных наборов слоев.Формат: PSDРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73CE8BE34C387406CA5CB3AF235A4B988F0095A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368215   (912116) от 18.03.2020
-
-Рамки - NNM-Club - Рамки от Warrior 123 #7 - 1368215 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рамки созданные нашим одноклубником Warrior 123
-ОднослойныеФормат: PSDРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FA9C77E9EA73D88E682AE0DCA04D6AD7F2A73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491402   (912090) от 24.08.2021
-
-Векторный клипарт - Cartoon Animals Mega Set [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Сборник детского клипарта.
-199 EPS + preview.Формат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C76BD472FC9C5913FA5CF98355F41E15B7260F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491354   (912076) от 24.08.2021
-
-Шаблоны - Creative Market - Pillows in Kids Room Mock-ups Set - 6272135 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912076.jpg" />
-</div>
-
-
-###  Подробнее
-
-С макетами White Mocca вы действительно можете наслаждаться бесчисленными возможностями. Все элементы на макетах разделены и доступны для редактирования. Если вы работаете над продвинутым проектом, требовательным дизайном и ищете сверхреалистичные эффекты, White Mocca удовлетворит ваши потребности. Просто перетащите - это действительно просто. Давайте создадим миллиарды (   Читать дальше...   )Формат: PSDРазрешение файлов: 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18F010A78B1645531A5C978AD5A60E485474643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368112   (912028) от 18.03.2020
-
-Кисти - Creative Market - Cosmic Vector Bundle - 3576086 [AI, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это набор кистей, рисунков и векторных объектов Adobe Illustrator, созданный по мотивам научно-фантастических комиксов 1950–1965 годов.Формат: AI, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCCC8B87AE900C7A12EFA6AB2453A1C8398E261
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,186 @@
+###  Публикация: 931254   (512488) от 25.08.2015
+
+Проекты - VideoHive - Love Magic Wedding Package - 5345412 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большой свадебный пакет для оформления Вашего фильма. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928C8E8CF7CDCE0B801896FDB95D3C940A20A13F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931197   (512483) от 25.08.2015
+
+Bulletstorm (2011) [Ru/En] (1.0.7147/dlc) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уникальный боевик от первого лица от разработчиков "Gears of War" и "Painkiller". Epic Games, People Can Fly и Electronic Arts представляют "Bulletstorm" - первоклассный боевик, в игровом процессе которого реализована концепция "Убивай виртуозно".Тип издания: RepackРазработчик: People Can Fly, Epic GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6558764A09DDBA91C32CF06769A346076019AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576115   (511595) от 21.07.2019
+
+Коллекция короткометражных мультфильмов Pixar. Том 2 / Pixar Shorts Story II (2012) Blu-ray [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Disney и Pixar представляют невероятную новую коллекцию из 12 короткометражных фильмов, созданных при участии нескольких номинантов Оскар (Лучший короткометражный анимационный фильм, "Престо", 2008г.;«День и Ночь»,2010 г.; «Луна»,2011г.) . Присоединяйтесь к празднику воображения с этой великолепной коллекцией анимации с незабываемыми и фантастическими историями. (   Читать дальше...   )Производство: Pixar (США)Жанр: мультфильмРежиссер: Тони Каплан, Эрика МилсомПеревод: дубляжСубтитры: English, РусскиеПродолжительность: 00:37:04  (5-7 минут / мультик)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9D2C15B751E59BA3CDEC49053DDDDBDC0A55F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931529   (511546) от 26.08.2015
+
+Destroy Windows 10 Spying 1.5 Build 325 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72988A09500503719BCCA65045126B536BBFE8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931527   (511518) от 26.08.2015
+
+Wolfenstein (2009) [Ru] (1.2) Repack =nemos=
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1943 год. Вторая мировая война в самом разгаре. На всех фронтах идут кровопролитные бои. Но хотя нацистская армия еще сильна, ее продвижение замедлилось. Немецкое командование ищет способы исправить положение и находит их... в ином измерении. Фашистским оккультистам удалось открыть путь в параллельный мир, где они обнаружили источник темной энергии, получивший название (   Читать дальше...   )Тип издания: RepackРазработчик: Raven Software и Endrant StudiosЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C62E0BB68CA257EE70F2141D0D31AEBFA1C8B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931564   (511516) от 26.08.2015
+
+Garmin: Дороги России Топо 6.21-R2 (FID 3332 + FID 4594) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На топографических картах отображаются данные, помогающие в определении местоположения на местности, планированию маршрута организации активного и безопасного отдыха на природе.
+В картах дана информация о рельефе, растительности и гидрографии района. Рельеф представлен горизонталями, сечением 20 метров, профилями оврагов и балок, высотами. Приведена информация об (   Читать дальше...   )Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: август 2015Разработчик: НавикомПоддерживаемая ОС: GarminЯзык интерфейса: РусскийФормат: .IMG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CDFC62E9146786550CE49C3DE0FE60461217A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534910   (511060) от 21.08.2012
+
+WPI v 8 STARTSOFT [Русский-Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборка WPI создана на свое усмотрение и так, как это нравится автору данной сборки. Устанавливать программы можно на фоне музыки, выбрав нужную, либо устанавливать программы без музыкального фона, отключив его кнопкой STOP SOUND. В составе сборки имеется небольшой мультизагрузчик. Описание его можно просмотреть в разделе дополнительная информация, в этом же разделе имеются рекомендации и предложения по установке программ, а так же список программ WPI. Диск DVD создан при помощи программы UltraISO.Название программы: WPI v 8 STARTSOFTЯзык интерфейса: Русский-Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535005   (511058) от 21.08.2012
 
 Darksiders II [Ru/En] (L/Update 1) 2012 l SKIDROW
@@ -6,7 +189,7 @@ Darksiders II [Ru/En] (L/Update 1) 2012 l SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +216,7 @@ Divinity II: The Dragon Knight Saga / Divinity 2: Пламя мести [Ru/En] 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_510708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -87,7 +270,7 @@ History Channel. В изоляции / Alone (2015) SATRip (1 сезон: 1-10 �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +296,7 @@ Windows 10 x86 x64 DVD-USB StartSoft 58-59 2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +401,7 @@ The Bat! Professional 5.2 Final [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +429,7 @@ Adobe Acrobat X Professional v.10.1.4 DVD [RUS / ENG]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +455,7 @@ Clean Master  v5.10.7 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +481,7 @@ VMware Workstation 12 Pro 12.0.0 build 2985596 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +507,7 @@ Metal Gear Solid V: The Phantom Pain (2015) [PS3] [EUR] 4.75 [CFW] [License] [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_509496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +613,7 @@ Driver Genius Professional 11.0.0.1136 DC19.08.2012 Portable by moRaLIst [Рус
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +666,7 @@ Super Smash Bros. Brawl [Wii] [NTSC] [MULTI 2] (2008)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,190 +677,6 @@ Super Smash Bros. Brawl [Wii] [NTSC] [MULTI 2] (2008)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48BE588E1E7ED4DD77FC0EC2DCA6BB630C0EB3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932332   (508756) от 29.08.2015
-
-Acronis True Image 2016 19.0 Build 5576 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48DC892877094841EA9F4888B9F31CA02ABA2DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932325   (508748) от 29.08.2015
-
-Reg Organizer 7.20 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A6F2417886E26ADE98A90C8B22A7BA53183CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932329   (508747) от 29.08.2015
-
-VMware Workstation 12 Pro 12.0.0 build 2985596 RePack by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508747.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FBFEC8C4B57D3B3DC42BEA55F9DFDA588E8B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932533   (508746) от 29.08.2015
-
-Microsoft Office 2016 Professional Plus Preview 16.0.4229.1020  (x86-x64) by Ratiborus 2.9 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866333D3F030EAD0920DF5D7638388B987745279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932577   (508738) от 29.08.2015
-
-Adobe Photoshop CC 2014.2.3 (20150807.r.342) RePack by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2014 - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B402A31248CD06D399D196D6B192D63084DD70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538756   (508123) от 24.08.2012
-
-Dark Souls: Prepare To Die Edition [Ru] (RePack) 2012 l kuha
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Souls – новая ролевая игра от компании FromSoftware, создавших игру Demon’s Souls. В Dark Souls вы встретите множество знакомых элементов: вселенная в стиле "темного фэнтези", мрачные подземелья, сражения с наводящими ужас врагами и уникальные возможности взаимодействия с другими игроками. Dark Souls – это не прямое продолжение Demon's Souls, а скорее духовный наследник игры. Приготовьтесь увидеть новый, погрузившийся в отчаяние мир, который вы сможете свободно исследовать. Приготовьтесь услышать новую, загадочную историю, сюжет которой развивается вокруг королевской короны и угасающего пламени в сердце мира. Но прежде всего, приготовьтесь умереть. Вас ждет множество смертельных ловушек, полчища гротескных монстров, невероятно могущественные демоны и драконы. Чтобы справиться с испытаниями этого неумолимого мира, вам придется учиться на смертельных ошибках. Но вы будете не одни. В Dark Souls в вашем мире могут появляться души других игроков, чтобы вы могли учиться на их неудачах, а они, в свою очередь, на ваших. К тому же вы сможете призывать игроков или вторгаться в чужие миры, чтобы сражаться в PVP-битвах. В Dark Souls есть костры, которые играют роль точек сохранения. Во время отдыха у костра ваше здоровье и мана восстанавливаются, а все враги возрождаются. Помните: в Dark Souls нет ни одного по-настоящему безопасного места. По мере прохождения игры уровень сложности будет повышаться, так что Dark Souls станет для вас самым серьезным игровым испытанием в этом году. Сможете ли вы пережить тысячи смертей и увековечить свое наследие?(   Читать дальше...   )Тип издания: RePackРазработчик: FromSoftwareЖанр: Action / RPG / FantasyЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F7D3361DD7A49CFDE617590B49C9C36A5E6E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538746   (508107) от 24.08.2012
-
-Ubuntu 12.04.1 LTS [i386 + x86-64] (2xDVD)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт Стюарт (Kate Stewart) объявила о выпуске Ubuntu 12.04.1, первом из регулярных планируемых обновлений в  течение всего жизненного цикла продукта Ubuntu LTS:
-
-Команда Ubuntu рада объявить о выпуске Ubuntu 12.04.1 LTS (Long-Term Support) для версий  рабочего стола , сервера, облака. В релизе добавлена поддержка Calxeda ECX-1000 семейства SoC. Внесены также обновления в ряд приложений.
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

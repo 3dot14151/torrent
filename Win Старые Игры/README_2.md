@@ -1,3 +1,55 @@
+###  Публикация: 1617795   (1034729) от 08.03.2023
+
+Vangers / Вангеры (1998) [Ru/En] (1.46) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вангеры изначально вышли в 1998 и теперь KranX Productions представляют вам обновлённую версию игры с улучшенной работой на современных операционных системах. Но игра всё ещё работает в разрешении 800x600, как и было задумано при разработке. Вангеры - смесь разных, но дополняющих друг друга компонентов. Игрок попадает в странный мир будущего, который появился в результате (   Читать дальше...   )Тип издания: LicenseРазработчик: K-D Lab Game DevelopmentЖанр: Гонки, Фантаcтика, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEB2864D38462D84825830796330464DDDA0F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444412   (1034316) от 02.02.2021
+
+Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье поместья Блэкмур (2004) [Ru] (5.078) License
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Нэнси Дрю отправляется на своё первое международное расследование. Ей необходимо навестить Линду Пенвеллин — дочь соседки и молодую жену британского дипломата. Таинственная болезнь заставляет Линду прятаться за плотным балдахином кровати. От кого или чего она скрывается? Или, возможно, ей угрожает нечто куда более опасное, чем простые недуги? Вычурные узоры, украшающие (   Читать дальше...   )Тип издания: LicenseРазработчик: Her InteractiveЖанр: Adventure, QuestЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AF4995BB7446B632EB57DE70D9631E88575745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618784   (1033584) от 13.03.2023
 
 Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevchev
@@ -6,7 +58,7 @@ Baldur's Gate Trilogy + Neverwinter Nights (2022) [Ru] (1.0) Repack/Mod AGKanevc
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Rayman Forever (1999) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ankh (2005) [En] (1.0a) License GOG [Anniversary Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Harvester (1996) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Phantasmagoria: A Puzzle of Flesh (1996) [En] (1.0.06) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Fahrenheit / Indigo Prophecy (2005) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Europa Universalis III / Европа 3 (2007) [En] (5.2/dlc) License GOG [Compl
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Wizards & Warriors (2000) [En] (1.0b HotFix2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Half-Life RTX (2023) [En] (1.0.5a) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Total Immersion Racing / Жажда Скорости (2002) [Ru] (1.0) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Stronghold Crusader HD (2002) [Ru/Multi] (1.41a) License GOG [Extreme Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ M.U.L.E. / MULE (1983) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Slipways (2021) [Multi] (1.0) License Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Slipways берёт жанр космической грандиозной ст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2F8F32ACAD0D768C05E2D744C7E9ED63D25759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475706   (1012046) от 08.06.2021
-
-Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основное действие игры разворачивается в районе Кремниевой Долины США, в 2207 году. Неизбежная Великая Война случилась в далеком 2013 году, оставив за собой светящиеся радиацией пустоши на добрые полторы сотни лет, но человечество, как глобальный земной вирус, не вымерло: часть людей укрылись в импровизированных убежищах, богатеи с комфортом расположились в элитном (   Читать дальше...   )Тип издания: ModРазработчик: Black Isle StudiosЖанр: RPGЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0584719AAD6EE2E56CADD0A5BF4392A29C45A9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477556   (1010923) от 15.06.2021
-
-Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010923.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном далёком-далёком мире существовали два континента. Они дрейфовали, разделённые огромными топями. Столетия не существовало никаких связей между двумя континентами ибо не один корабль не мог пересечь разделяющих их пространств. И наконец, когда состоялся исторический контакт между двумя могуществеными странами, завязалась война! После долгой и кровопролитной (   Читать дальше...   )Тип издания: LicenseРазработчик: CapcomЖанр: jRPGЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F1FE16B33C50328255E457F3306CCABB3118A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

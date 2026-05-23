@@ -1,3 +1,82 @@
+###  Публикация: 1024524   (718042) от 08.06.2016
+
+Моя большая греческая свадьба 2 / My Big Fat Greek Wedding 2  (2016) BDRip [H.264/720p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+У главных героев первого фильма, Тулы Портокалос и Йена Миллера, подросла дочь, которая ждет не дождется уйти из-под крыла родителей.
+Тем временем, оказывается, что родители Тулы не заключили брак официально, и им придется устроить свадьбу.Производство: США, Канада, Gold Circle Films, HBO Films, Playtone, Universal PicturesЖанр: мелодрама, комедияРежиссер: Кирк ДжонсАктеры: Ниа Вардалос, Джон Корбетт, Майкл Константин, Лэйни Казан, Андреа Мартин, Джиа Каридес, Джои Фатоне, Елена Кампурис, Алекс Вулф, Луис Мэндилор, Бесс Майслер, Брюс ГрэйПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B8CBD6EF664BB7C9C4E28E4DBB7498FAD30BA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024256   (717629) от 08.06.2016
+
+Рег / Reg (2016) HDTV [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 2003 году 20-летний солдат Том Кейс и пять других были расстреляны, попав в засаду в Ираке. Его родители, бывший фельдшер Рег и мать Салли,  были потрясены, узнав, что Том и его коллеги были недостаточно вооружены и оснащены. Рег, испытывает глубокое отвращение, к решениям Тони Блэра, о посылке британских содат в ненужную и, возможно, незаконную войну. Будучи убежденным, (   Читать дальше...   )Производство: Великобритания, LA ProductionsЖанр: ДрамаРежиссер: Дэвид БлейрАктеры: Тим Рот, Чарли Энсон, Келва Баррет, Тим Бентинг ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CB0AE8828E8341144907F0E0AA909600C662C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218766   (717297) от 12.04.2018
+
+Охота на воров / Den of Thieves (2018) WEBRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большой Ник — начальник элитного подразделения полиции Лос-Анджелеса — ежедневно доказывает, что его команда более крутая, чем те, на кого они охотятся. Когда коп узнает, что легендарный и неуловимый вор планирует дерзкое ограбление Федерального резервного банка США, то он решает помешать этому любым способом. И играть по правилам он не привык.Производство: США, Atmosphere Entertainment MM, Diamond Film Productions, G-BASEЖанр: Боевик, Криминал, Драма, ТриллерРежиссер: Кристиан ГьюдгэстАктеры: Джерард Батлер, Пабло Шрайбер, О’Ши Джексон мл., Фифти Сент, Медоу Уильямс, Морис Комт, Брайан Ван Холт, Ивэн Джонс, Мо, Каиви Лайман ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, (full)Продолжительность: 02:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80780D616A183D55609D6F715EDE02FC5D4E2DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218917   (717033) от 12.04.2018
 
 Нахальные трусики / Sassy Pants (2012) HDTVRip [H.264/720p-LQ] [EN]
@@ -6,7 +85,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D5DE7A610CEAE7CFA7BBE2A7BC9C293B9A0FEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221129   (698285) от 22.04.2018
-
-Винчестер. Дом, который построили призраки / Winchester (2018) BDRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара Винчестер, наследница знаменитой оружейной компании, живет одна в грандиозном семиэтажном здании, архитектура которого не поддается логике, а коридоры подобны лабиринтам. По распоряжению безутешной вдовы особняк постоянно перестраивается и бесконечно воздвигаются новые стены. Но строит она не для себя, не для своей племянницы или талантливого доктора Эрика Прайса, (   Читать дальше...   )Производство: Австралия, США, Blacklab Entertainment, Imagination Design WorksЖанр: Ужасы, Фэнтези, Триллер, ДетективРежиссер: Майкл Спириг, Питер СпиригАктеры: Хелен Миррен, Сара Снук, Джейсон Кларк, Энгус Сэмпсон, Имон Фэррен, Лаура Брент, Тайлер Коппин, Джеффри В. ДженкинсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2124CF2245967E288C2B9E0C6094AB00855E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133013   (696711) от 11.05.2017
-
-Великая стена / The Great Wall  (2016) BDRemux [H.264/1080p] [EN / EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великую стену воздвигли, чтобы оградить Поднебесную от любых угроз, но с таким врагом не сталкивались даже самые отважные ее защитники. Если вторжение не остановить - мир будет уничтожен.Производство: США, Китай, Гонконг, Австралия, КанадаЖанр: фэнтези, боевик, триллер, приключенияРежиссер: Чжан ИмоуАктеры: Мэтт Дэймон, Цзин Тянь, Уиллем Дефо, Энди Лау, Педро Паскаль, Чжан Ханьюй, Лухан, Кенни Линь, Эдди Пэн, Хуан Сюань, Чжэн Кай, Кэрри ВанПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, итальянские, немецкие, французские, исландские, арабские, хинди, португальские, шведские, норвежские, финские, датские, нидерландскиеПродолжительность: 01:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341296D320F51FAC35AEB30511020646F580612B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221290   (696609) от 23.04.2018
-
-Предательство для начинающих / Backstabbing for Beginners  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой идеалист Майкл получает заветную должность координатора в гуманитарной программе ООН. Его отправляют в приходящий себя после войны Ирак, который теперь рвут на части правительственные агенты и представители могущественных нефтяных корпораций. Обжиться на новом месте и вникнуть в дела ему помогает его начальник - знающий регион изнутри дипломат Паша. Чем больше (   Читать дальше...   )Производство: Дания, Канада, США / Creative Alliance, Eyeworks Scandi Fiction, Hoylake Capital, Parts and Labor, Scythia Films, Waterstone EntertainmentЖанр: триллер, драма, историяРежиссер: Пер ФлюАктеры: Тео Джеймс, Бельчим Билгин, Бен Кингсли, Жаклин Биссет, Россиф Сазерленд, Брайан Маркинсон, Рэйчел Уилсон, Шона МакДональд, Даниэла Лавендер, Эйдан Дивайн,  Мишу ВелланиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283B270B3F3B13DD61995713B540DD131658E55F
 ```
 
 https://mybot314.ru/tekegram_catalog/

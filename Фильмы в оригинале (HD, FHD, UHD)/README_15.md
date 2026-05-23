@@ -1,3 +1,81 @@
+###  Публикация: 1386512   (794335) от 29.05.2020
+
+Кодекс воров / Code of Thieves (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Making the mistake of robbing a powerful drug dealer. A group of friends are forced to rob a bank to make amends.Производство: США / A Line Cinema, TandB FilmsЖанр: боевикРежиссер: Brandon CornettАктеры: Tory Monay, King Wesley, Will Coleman, Cameron Cottrell, Nigel morris, Marcia Adams, Tristin Fazekas, Dan Schmidt, Daris Bass, Velda HunterПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (full, SDH)Продолжительность: 01:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6BA2BE62B3699638F33E6568D19F976C0B0D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122260   (794315) от 05.04.2017
+
+Соль и пламя / Salt and Fire (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ученый винит главу крупной компании в экологической катастрофе в Южной Америке. Но когда появятся первые признаки извержения вулкана, им предстоит объединиться, чтобы избежать катастрофы.Производство: США, Франция, Германия, Мексика, Боливия / Benaroya Pictures, Construction Film, Arte France Cinéma, Canana Films, Skellig RockЖанр: ТриллерРежиссер: Вернер ХерцогАктеры: Майкл Шеннон, Гаэль Гарсиа Берналь, Анита Брием, Вернер Херцог, Вероника Феррес, Фолькер Михаловски, Лоуренс Краусс ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0BC625AD4DAF65CA99A2CCACB1BE9541BEDA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120878   (794305) от 05.04.2017
+
+Стрэттон: Первое задание / Stratton (2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Герой цикла остросюжетных романов Данкана Фэлконера, коммандос специального подразделения вооруженных сил Великобритании, Джон Стрэттон вступает в схватку с группой международных террористов. Их цель – осуществить теракт в Лондоне, при помощи современного биологического оружия. Стреттону приходится действовать очень решительно, иначе он просто не успеет предотвратить (   Читать дальше...   )Производство: Великобритания, Atomic Arts, GFM films, SquareOne Entertainment, Stratton Film Productions, Twickenham StudiosЖанр: Боевик, ТриллерРежиссер: Саймон УэстАктеры: Джемма Чан, Тайлер Хэклин, Том Фелтон, Конни Нильсен, Доминик Купер, Остин Стоуэлл, Томас Кречман, Дерек Джекоби, Игал Наор, Ли Николас Харрис ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EC34BB0FA824E02713FB10EAF72FC4537C8EA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122144   (794244) от 05.04.2017
 
 Сплит / Split (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB4D0587E943FFDC8697AB537FA5EEC09CB0A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387908   (790616) от 03.06.2020
-
-Свидетель / Witness (1985) Blu-ray [H.264/1080p] [EN, GER, SPA, FRE, ITA, JAP, POR / RU, EN, GER, SPA, FRA, ITA etc. Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девятилетний мальчик становится свидетелем зверского убийства: прямо на его глазах в туалете филадельфийского вокзала два человека безжалостно зарезали молодого мужчину. Оказывается, убитый был тайным агентом отдела по борьбе с наркотиками. Теперь мальчик- единственный свидетель, который может помочь детективу Джону Буку найти преступников.
-Лицо одного убийцы навсегда (   Читать дальше...   )Производство: США, Paramount Pictures, Edward S. Feldman ProductionЖанр: Триллер, драма, мелодрама, криминалРежиссер: Питер УирАктеры: Харрисон Форд, Келли Макгиллис, Йозеф Зоммер, Лукас Хаас, Ян Рубес, Александр Годунов, Дэнни Гловер, Брент Дженнингс, Патти ЛюПон, Энгус МакИннесПеревод: ОтсутствуетЯзык озвучки: English, German, Spanish, French, Italian, Japanese, PortugueseСубтитры: Русские, английские, китайские, чешские, датские, немецкие, греческие, испанские, французские, итальянские, японские, корейские, китайские, голландские, норвежские, португальские, словацкие, финские, шведские, турецкиеПродолжительность: 01:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDB89E6F0B615B1568E32DED5F6AAC768FC1492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275542   (790430) от 11.01.2019
-
-Хэллоуин / Halloween (2018) BDRemux [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зло неизменно возвращается, и им нельзя управлять. Его можно временно уничтожить, застрелить, сжечь, но вернется оно всё равно неизбежно. Майкл Майерс не закончил свое дело в Хэддонфилде, и скоро он вернётся домой, чтобы снова убивать.Производство: США / Blumhouse Productions, Miramax, Night Blade Holdings, Rough House Pictures, Trancas International Films, Universal PicturesЖанр: Ужасы, ТриллерРежиссер: Дэвид Гордон ГринАктеры: Джейми Ли Кёртис, Джуди Грир, Энди Мэтичак, Джеймс Джуд Кортни, Ник Касл, Халук Бильгинер, Уилл Пэттон, Риан Риис, Джефферсон Холл, Тоби ХассПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BFC5A40370E287A94E518505D687B21B94005A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202125   (790363) от 28.01.2018
-
-Пожалуйста, приготовьтесь / Please Stand By (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая женщина, страдающая аутизмом, сбегает от сиделки, чтобы подать свою рукопись на конкурс писателей.Производство: США, Allegiance Theater, 2929 ProductionsЖанр: Комедия, ДрамаРежиссер: Бен ЛуинАктеры: Дакота Фаннинг, Тони Коллетт, Элис Ив, Ривер Александр, Марла Гиббс, Джессика Рот, Майкл Сталь-Дэвид, Стефани Аллен, Мэттью Кардаропле, Мэтт КорбойПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC0C75DBED003E0B66836C0E65D3DF6A7A413E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 149847   (945350) от 13.01.2015
+
+Загадки Истории / History's secrets (2000-2007) SATRip (12 фильмов)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Цикл передач, снятый американской телекомпанией Prometheus Entertainment для кабельного канала History Channel в 2009 году. Программа  «Загадки истории» посвящена тайнам как древнего мира, так и современности.
+Документальный сериал посвящен различным аспектам популярной теории палеоконтакта, или теории древних космонавтов. Согласно этой идее, наша планета в прошлом (   Читать дальше...   )Телекомпания: Россия, ВГТРК, т/к КультураЖанр: ДокументальныйРежиссер: Сюзан Льюис, Джулиан Хилл, Фил Грабски, Дэвид Аттенборо, Марио Занот, Энди ВэбПеревод: Двухголосый закадровый профессиональныйПродолжительность: 12 x ~00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362991   (944947) от 26.02.2020
+
+BBC: Планеты. Ледяные миры / Nova: The Planets: Ice Worlds (2019) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Далеко-далеко, за пределами Марса, вдали от ураганов Юпитера и колец Сатурна окружающие условия сильно меняются. Температуры стремительно падают, а расстояния между мирами исчисляются не миллионами, а миллиардами километров. Здесь скрываются самые загадочные планеты. Уран -  бледно-голубой мраморный шар, застывший в ледяных глубинах космоса. А ещё дальше, последняя (   Читать дальше...   )Производство: США / BBC Studios Production, NOVA, WGBHЖанр: Документальный, космосРежиссер: Martin JohnsonПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E9BACD23DE0CDE11BF6022F372C55BD9E8A791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763352   (942475) от 09.01.2017
 
 NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 1-11 из 11]
@@ -6,7 +59,7 @@ NG. Игры разума / Brain Games (2014) SATRip [сезон 3, серии 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +111,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Discovery. Розетта: столкновение с кометой (В пог
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +189,7 @@ NGW. Акулы-каннибалы / Cannibal Sharks (2019) HDTVRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +215,7 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +241,7 @@ NG: Тайное оружие Гитлера / Hitler's (Nazi) Secret Weapon (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +293,7 @@ BBC: Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 6
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +319,7 @@ Discovery: Вселенная Стивена Хокинга: Инопланет�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +345,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +371,7 @@ PBS: Мир Дикой Природы / Wild World (2011-2012) DVB (2-й сез�
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +397,7 @@ PBS: Мир Дикой Природы / Wild World (2010) DVB (1 сезон, с�
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +423,7 @@ Discovery: Грандиозное ограбление / Mega Heist (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_928792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +533,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +560,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -534,7 +587,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +614,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -614,7 +667,7 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -625,58 +678,6 @@ Discovery: Один день в Освенциме / One Day In Auschwitz  (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:321C1E24B7D77D7C19DFF5AF3CDF00CB6655A187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366064   (925322) от 10.03.2020
-
-BBC. В поисках бессмертия / The Immortalist (2016) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925322.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении многих веков человечество мечтает о вечной жизни. Сейчас, когда наука шагнула далеко вперед, это становится все более возможным. Например, предпринимаются попытки загрузить разум человека в кибернетического аватара. Фантастика? Съемочная группа встретится с ведущими мировыми деятелями науки и технологий, чтобы разобраться, возможно ли это.Производство: Великобритания, ВВС Scince Production LondonЖанр: Документальный, научно-познавательныйРежиссер: Тристан КуиннПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197502664A8668220818FCED46368DA0E6EFD443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756331   (924691) от 12.02.2014
-
-Discovery: Поиск пришельцев. Урожай пришельцев / Uncovering Aliens. Vintage aliens (2014) SATRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришельцы-кровососы приводят ученых в Индиану. После тревожных сообщений о пришельцах, якобы похищающих кровь у людей, команда берет их след.Жанр: Документальный, научно-познавательныйРежиссер: Феликс Блэк, Полли БокконгеллиАктеры: Деррел Симс, Майкл Бара, Морин Элсберри, Стивен ДжонсПеревод: Профессиональный (одноголосый, закадровый)Продолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8484B76A16EDC303B3A299DE5C260A79A5B30F7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

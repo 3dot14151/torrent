@@ -1,38 +1,3 @@
-###  Публикация: 565518   (400079) от 26.10.2012
-
-VA - Осенний Mega хит-парад Русский 200 хитов (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400079.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Арина Бережная - Прости меня, обними
-002. Олег Винник - Счастье
-003. Tisha - Любовь
-004. Рома Желудь - Лайк
-005. Балаган Лимитед - Кто бы мог подумать
-006. Наташа Королева - Небеса
-007. Андрей Артемьев - Твой ангел-хранитель
-008. SounmaniЯ - Твоя вселенная
-009. Оксана Почепа - По подоконнику дождь
-010. Пропаганда & MC Джимми - Хабиби(   Читать дальше...   )Жанр: PopПродолжительность: 12:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B148645A50BC6AE016B57161696E85D65079A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 565511   (400076) от 26.10.2012
 
 VA - Ночная дискотека: Хитовый адреналин 100 хитов (2012) [MP3|256 кб/с]<Pop>
@@ -41,7 +6,7 @@ VA - Ночная дискотека: Хитовый адреналин 100 хи
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -76,7 +41,7 @@ VA - Global Dance NRJ (2012) [MP3|128 кб/с]<Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +76,7 @@ VA - Bravo Hits Vol. 79 (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -146,7 +111,7 @@ VA - Europa Plus: Only Best Hits Осенний 50/50 (2012)  [MP3|128 кб/с]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_400035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +146,7 @@ VA - Итальянская дискотека 70-90х 9000 (2012) [MP3|128 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +181,7 @@ VA - German Top 100 Single Charts 29.09.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +210,7 @@ VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -280,7 +245,7 @@ VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -315,7 +280,7 @@ VA - Новое на Europa Plus (2012) [MP3|256 кб/с]<pop, dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +315,7 @@ VA - Новые Хиты Дискотек Vol. 2 (2012) [MP3|128 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +350,7 @@ VA - Студенческая Вечеринка. Зарубежный (2012) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +385,7 @@ VA - Ритмы Попсового Отрыва (2012) [MP3|256 кб/с]<Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +420,7 @@ VA - Громче музыку. 100 Пудовый хит (2012) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +455,7 @@ VA - Убойные хиты на Европе плюс 50/50 Осень (2012) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -525,7 +490,7 @@ VA - MAXI. Осенний Best Hit (2012) [MP3|320 кб/с]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +525,7 @@ VA - Модная Русская Осень (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +560,7 @@ VA - Best-of-ka Хит сезона (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,7 +595,7 @@ VA - Лучшая 100ка Super новинок Выпуск 3 Осень (2012) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -665,7 +630,7 @@ VA - Most popular songs radio Top 100 (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_396153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -700,7 +665,7 @@ VA - Зажигай С Осенними Хитами (2012) [MP3|256 кб/с]<Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -735,7 +700,7 @@ VA - Супертанцевальный TOP 200 50+50 (2012) [MP3|128 кб/с]<P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -770,7 +735,7 @@ VA - XXXL Союз. Осенний драйв. Версия русская (2012
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -805,7 +770,7 @@ VA - Звездный Mix. Улетная 100-ка (2012) [MP3|256 кб/с]<pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -840,7 +805,7 @@ VA - Европа Плюс: Включи Музон! (2012) [MP3|128 кб/с]<po
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -875,7 +840,7 @@ VA - Осенняя бомба года 17 Зарубежный (2012) [MP3|128 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -895,6 +860,41 @@ VA - Осенняя бомба года 17 Зарубежный (2012) [MP3|128 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4747A92666BCBB520EDE7933047B55C3BD4CA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 567968   (393139) от 02.11.2012
+
+VA - 100 пудовые хиты осени 50/50 (2012) [MP3|128 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Brown - Don't Wake Me Up
+002. Марка - Витамин С
+003. Fly Project - Back In My Life (Radio Edit)
+004. Серебро - Мальчик
+005. Katy Perry - That's More Like It
+006. Ольга Маковецкая - Ноль эмоций
+007. Aura Dione - In Love With The World
+008. Самира - Половинки
+009. Inna - J'Adore (Radio Edit)
+010. Glamour - Осень(   Читать дальше...   )Жанр: popПродолжительность: 12:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B043C0BBBF4019BA030EAF5AEEA4125FCA3D74
 ```
 
 https://mybot314.ru/tekegram_catalog/

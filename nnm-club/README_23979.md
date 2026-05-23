@@ -1,721 +1,730 @@
-###  Публикация: 1708222   (113131) от 19.03.2024
+###  Публикация: 1703479   (115003) от 29.02.2024
 
-Lipz - Changing The Melody (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Going Under (3:51)
-02. Changing The Melody (3:17)
-03. Bang Bang (3:02)
-04. Stop Talking About Nothing (2:35)(   Читать дальше...   )Жанр: Glam rockПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224E64D3BD481C5570A1CCEE7EACC02E4CD302F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708166   (113130) от 19.03.2024
-
-Aloboi - Urban Hermit (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <house, downtempo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Feeling [00:03:34]
-02. Give Me More [00:02:50]
-03. With You [00:03:40]
-04. Paranoid [00:03:25](   Читать дальше...   )Жанр: house, downtempoПродолжительность: 00:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E26B848546AC63B626E4190893DA83AAF36DB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708028   (113129) от 19.03.2024
-
-Michael Friedinger - Between Chairs (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Swuffle
-02. Cool Breeze
-03. Isipisi
-04. Um Beijo(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D105C1BB45ECD0B00D209EF85BA846B7906C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708244   (113128) от 19.03.2024
-
-Hype 4 Pro v.4.1.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hype открывает для пользователей возможность создавать красивые, интерактивные и анимированные веб сайты с использованием WYSIWYG-редактора, основной фишкой которого является автоматическая кодировка в HTML5 при экспорте готового материала.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 2011-2024 Tumult Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CF2F0A8FA3C2456BC81A32B32104A7ED23230E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708072   (113127) от 19.03.2024
-
-Charlie Watts - Anthology (2023) 2CD, BMG [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Haynes [4:13]
-02. Airto [6:11]
-03. Elvin Suite [12:17]
-04. Roll 'Em Charlie [7:31](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 02:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E6C664F2FCBC5EBD9BC71FB9E99C581542D45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708029   (113126) от 19.03.2024
-
-SiteSucker Pro 5.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113126.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Rick CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB63C86E1992AA939B070C4FE3A30BF7DB5ABEF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708012   (113125) от 19.03.2024
-
-Marco Castelletti - Sonic Sketches (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riflessioni Nella Sauna (2:03)
-02. Quivering Melodies (2:36)
-03. Curve (2:16)
-04. Serene Summertime (2:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBAC70FFA6A2909DA7782F2F959383D7339845F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707883   (113124) от 19.03.2024
-
-The Black Crowes - Happiness Bastards (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Hard Rock,>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedside Manners (3:41)
-02. Rats and Clowns (3:34)
-03. Cross Your Fingers (3:50)
-04. Wanting and Waiting (4:16)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Hard Rock,Продолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E646FCD3071F6AB0136C1443C54751CEFFC6C035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708020   (113123) от 19.03.2024
-
-Codepoint for Mac 1.15 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Codepoint включает в себя более 70 000 Unicodes. Ищите Unicodes, Glyphs, SF Symbols и Emojis в мгновение ока. Codepoint помогает вам найти именно те символы, которые вам нужны, и поддерживает вас в открытии новых глифов. Экспортируйте их как символы, строки, шестнадцатеричные числа, объекты HTML или даже код Swift. Сохранить избранное в iCloud.
-Запомните (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2022–2024 IXEAUПоддерживаемая ОС: macOS 13.0 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963BE241D02921AEF0F05D79F06F5530B5D4D0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707767   (113122) от 19.03.2024
-
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708063   (113121) от 19.03.2024
-
-The Art Farmer-Benny Golson Jazztet - At Newport (1960) 2012, Head on Fire [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcements by Willis Conover and Art Farmer [1:16]
-02. It Ain't Necessarily So [7:25]
-03. The Portrait [4:28]
-04. Bean Bag [9:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09003E02F7F3C65F7C60DEC4D1512F513D3CCE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708156   (113120) от 19.03.2024
-
-Karpathian Relict - Forever Not Yet (2018) [FLAC|Lossless|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dormant Mind
-02. In The Course Of Centuries
-03. The Filthy Desires Of Flesh
-04. Express Your Will(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2FAC59B505115B946B803451AD1FF60F95DBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708097   (113119) от 19.03.2024
-
-Марина Серова  Частный детектив Татьяна Иванова. Ошибка Купидона (2024) [MP3, Шахерезада]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город в панике: таинственный шантажист-убийца посылает письма с угрозами в семьи девочек-подростков. Если ему вовремя не выплатят определенную сумму, говорится в письме, девочка будет изнасилована и убита. И это не пустые угрозы: женщина заплатила шантажисту нужную сумму, однако, ее дочь все-таки убили. Безутешная мать обратилась за помощью к частному детективу Татьяне (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557479B134BB787AFD73E1DB77005AB2A8A46FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708016   (113118) от 19.03.2024
-
-Naima Farao - Dots (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Space (0:58)
-02. Heirloom (4:32)
-03. Vortex (2:49)
-04. Buoyancy Of Water (3:40)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A70D9E429059AD556BC80D01497B23807F0878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708011   (113117) от 19.03.2024
-
-Jutesets - Spring Planet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Planet (2:52)
-02. Happy Earth (2:53)
-03. Yellow Bird (2:35)
-04. Balmy Night (2:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B3166E0EB7AD153662AE80ED59AD500D7DE58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707998   (113116) от 19.03.2024
-
-Al Thompson Jr - It's Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Does That Grab You (7:23)
-02. What Might Have Been (Instrumental) (3:52)
-03. It's Time (5:42)
-04. Minor Expectations (3:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65FACEDA8995EA28FED5F2BC83B4ADFE02593792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708110   (113115) от 19.03.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Окончен бал, погасли свечи (2023) [MP3, DEITARK]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113115.jpg" />
-</div>
-
-
-###  Подробнее
-
-К частному детективу Тане Ивановой обращается не кто-нибудь, а потомственная колдунья Кассандра, и с томными придыханиями и паузами сообщает, что у нее на глазах сожгли подругу и ее жениха. И если сначала Татьяна сомневается, стоит ли вообще разговаривать с жутковатой посетительницей, увешанной медальонами и закутанной в черный балахон, то после такого заявления, (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C63439FE0C75699088785B6A46DE88DD6DBACB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708015   (113114) от 19.03.2024
-
-Mike LeDonne & Eric Alexander - Wonderful (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Go (8:45)
-02. Lonnie's Lament (8:30)
-03. Twinkies Organ Prelude / Wonderful (7:19)
-04. Put It Back (6:27)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712133A8003504179FB4A2DF081F7F34BDE6ED27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708241   (113113) от 19.03.2024
-
-Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113113.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 En Vind Av Sorg
-A2 Triumphant Gleam
-A3 The Hordes Of Nebulah
-B1 Hans Siste Vinter(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0938C55A6F3719B733F2F9F8F41E6F6346CA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707999   (113112) от 19.03.2024
-
-Bear Garden - Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up (3:24)
-02. Colors of Day (3:28)
-03. Young Alien (2:48)
-04. Hey Ye Ye Yeah (2:44)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FA978E448D980C62D4BEF4176A251567063D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708006   (113111) от 19.03.2024
-
-Chiara Ungaro - Urban Dreamscape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill Jazz Nighttime Whispers (2:05)
-02. Tranquil Nights (2:18)
-03. Bossa Nova Bossa (2:16)
-04. Fragile Hope of Healing (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D050AE3CD47FF4AD71BE97039D8FC0442AC090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708022   (113110) от 19.03.2024
-
-Doppler for Mac 2.1.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный проигрыватель Doppler упрощает владение музыкой. Doppler — хорошая альтернатива для людей, которым нужен способ воспроизведения локальных файлов.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2024 Brushed Type Ltd.Поддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F8E57E91ED362D6AD3D24F132E8117E3AA6FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708114   (113109) от 19.03.2024
-
-Марина Серова | Частный детектив Татьяна Иванова. Тайна одинокой леди (2024) [MP3, Августа Козлова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113109.jpg" />
-</div>
-
-
-###  Подробнее
-
-У частного детектива тоже должна быть личная жизнь. Не все же заниматься чужими проблемами. Тем более если детективом является красивая женщина. Знаменитая сыщица Татьяна Иванова хотела приятно провести время с молодым человеком в театре, а получилось… как всегда. Ее кавалер безнадежно опоздал, да еще привел с собой нового клиента. У Владимира Бережнова на фирме (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 06:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D4E4F27AC9D220ECEC3C8448DE613F1E56FD933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708330   (113108) от 20.03.2024
-
-Skype 8.115.0.215 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F408F9CD4184C2015AA0DF3047F9848833EEE9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708476   (113107) от 20.03.2024
-
-Firefox Browser ESR 115.9.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1711F6B15F8D58D8A8AF90E49CB2A216292A1038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708359   (113106) от 20.03.2024
-
-Побег на Ведьмину гору / Escape to Witch Mountain (1975) BDRip [H.264/720p] [MVO]
+Последний человек / Der letzte Mann (1924) BDRip [H.264] [DE / RU Sub]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по одноимённому роману Александра Х. Ки 1968 года... Брат и сестра Тиа и Тони обладают уникальными способностями, которые хотели бы использовать в своих целях двое злодеев. Один выдает себя за дядюшку Тии и Тони, другой - богач с дурной репутацией. И находится только один человек, который готов помочь детям добраться до Ведьминой горы...Производство: США / Walt Disney ProductionsЖанр: фантастика, фэнтези, приключения, семейныйРежиссер: Джон ХафАктеры: Эдди Альберт, Рэй Милланд, Дональд Плезенс, Ким Ричардс, Айк Айсенманн, Уолтер Барнс, Рита Шоу, Денвер Пайл, Альфред Райдер, Лоуренс МонтейнПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:27
+В центре сюжета престарелый портье высококлассного отеля. В его обязанности входит встречать клиентов, открывать им двери, относить и выгружать багаж. Большой, высокий и крепкий мужчина, он очень гордится своей должностью; красивая, тщательно вычищенная и выглаженная форма с блестящими медными пуговицами внушает его соседям почтение и уважение... Но всё меняется, (   Читать дальше...   )Производство: Германия, Universum Film (UFA)Жанр: драмаРежиссер: Фридрих Вильгельм МурнауАктеры: Эмиль Яннингс, Мали Дельшафт, Макс Хиллер, Эмили Курц, Ханс Унтеркирхер, Олаф Шторм, Херманн Валлентин, Георг ДжонПеревод: нетЯзык озвучки: немецкийСубтитры: русские (imvolk-13), английскиеПродолжительность: 01:30:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8C247627BF8088D183633206289CC67D37E0202
+magnet:?xt=urn:btih:7DA47FD6B02378832713E492BA516A12E83CC0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703523   (115002) от 29.02.2024
+
+Оноре де Бальзак | Дом кошки, играющей в мяч (2021) [MP3, Иван Забелин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XIX век. Зарубежная классика.
+Оноре де Бальзак (1799–1850) – французский писатель, один из основоположников реализма в европейской литературе.
+Предлагаемый вашему вниманию короткий роман Оноре де Бальзака написан в 1829 году и является частью «Сцен частной жизни». Художник Теодор де Сомервье влюбляется в Августину Гильом, дочь торговца тканями, чей дом (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 02:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B935BE0A44B6B91AFF27BCFB7301B627CDEF3895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703375   (115001) от 29.02.2024
+
+Арсений Тарковский | Я свеча, я сгорел на пиру (1982) [FLAC, Арсений Тарковский]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«…Стихи я пишу с детства, — не помню времени, когда и не писал. После Лермонтова, однотомник которого мне подарили, когда мне было шесть лет, вторым моим поэтом стал Григорий Сковорода; его знают как философа, как прекрасного поэта его не знает почти никто».Арсений Александрович Тарковский (1907-1989)Жанр: ПоэзияИздательство: АО "Фирма Мелодия"Продолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D295F16246BD5E00A891472FB94BBC9C081D1322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703587   (115000) от 29.02.2024
+
+Walter Trout - Broken (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Broken (4:50)
+02. Turn And Walk Away (4:33)
+03. Courage In The Dark (5:36)
+04. Will Wilde - Bleed (4:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395BF883B6759FBAD6A865F8DF7D44FE7491BED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703588   (114999) от 29.02.2024
+
+PhotoDirector v19.0.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 29.02.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA71D336251B526194BEBDCF53E2A8D832EDB4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703590   (114998) от 29.02.2024
+
+AC/DC - Dirty Deeds Done Dirt Cheap (1976) Reissue, 1987, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Deeds Done Dirt Cheap
+02. Ain't No Fun (Waiting Round to Be a Millionaire)
+03. There's Gonna Be Some Rockin
+04. Problem Child(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C58CF7641C37D42FBA92A43F49D18BBE43C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703422   (114997) от 29.02.2024
+
+Steve Shive & the Urban Saints - Hard Bargain (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time I Knock on Your Front Door (4:29)
+02. Fair Warning (Last Drop of Sympathy) (3:42)
+03. Hard Bargain (3:44)
+04. I'm Coming Home (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4C5244D23D00CBE5955D1FA08453BC7BC199A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703542   (114996) от 29.02.2024
+
+AC/DC - T.N.T (1975) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Long Way to the Top (If You Wanna Rock 'n' Roll)
+02. Rock 'n' Roll Singer
+03. The Jack
+04. Live Wire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35446AD24DA6384B1BC64871208B6EA7AAD1B28D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703160   (114995) от 29.02.2024
+
+VA - Uplifting Only Top 15: February 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Fletcher & Ruslan Aschaulov - Valentina (Howlex Intro Remix) [5:27]
+02. Maratone & Saphron & Hardcode - Walk Through Shadows (Jimmy Chou Extended Remix) [6:49]
+03. Marco Torrance & Natasha Jaffe - Fragile (Extended Trance Mix) [7:35]
+04. Revolution 9 - Remember (Extended Mix) [6:22](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82F81FDEE68023A48B7F621FC5EDECFAE1FC8B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703533   (114994) от 29.02.2024
+
+Doro - Conqueress - Extended (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Warlocks And Witches (Intro) (1:35)
+02. Horns Up High (3:41)
+03. True Metal Maniacs (3:37)
+04. Heart in Pain (4:22)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4080E92BD524AC47153BA051723022CF2020229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703528   (114993) от 29.02.2024
+
+Ли Ода | В пепел (Книга 1) (2024) [MP3, Наталья Романова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«В пепел» – роман, первая книга одноименного цикла, жанр авантюрный детектив, , историческое фэнтези, романтическое фэнтези.
+
+Те, кто грызутся за власть в столице, еще не раз пожалеют, что не учли в своих интригах бывшего сотрудника тайных служб, частного детектива в юбке и мальчишку с очень интересным прошлым. И хотя в тихом провинциальном Прауте редко случается (   Читать дальше...   )Жанр: Детективное фэнтезиИздательство: ИДДКПродолжительность: 09:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A971927307BF65305830A2332FAFC1C10218E851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703438   (114992) от 29.02.2024
+
+Станислав Миллер | Черновед (Книга 1). Свежая кровь (2024) [MP3, Андрей Федоренко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Давно забытые страхи пробуждаются… Известный рок-музыкант приходит в ужас от вида высоты. Успешная бизнес-леди паникует в присутствии людей. Бывшего бродягу преследуют обезумевшие животные, а студентка факультета психологии спасается бегством от оживших мертвецов.Спасение от смертельных фобий способен принести лишь опытный черновед – представитель тайной и сложной (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 10:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9744F02CB64BE6380EA985E0195B93FA12C125A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703485   (114991) от 29.02.2024
+
+Автограф - Каменный край (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01-Город.
+02-О, мой мальчик.
+(Группа "Автограф" - С.Патрушев)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5238997836B32FA01B1BE91F11FF12AFC0456B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703404   (114990) от 29.02.2024
+
+James Harman - Didn't We Have Some Fun Sometime (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Pick Up The Slack (4:56)
+02. A Rut And A Groove (5:56)
+03. A Hand Shake (3:03)
+04. Work Don't Come To Me (6:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B519A40A32B088AE6B5A2A2574E8C1EA3B470394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703571   (114989) от 29.02.2024
+
+Brymir - Studio Albums (4 releases) (2011-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Melodic Death/Pagan Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Brymir — финская мелодик-дэт-метал/симфоник-метал группа из Хельсинки, основанная в 2006 году.2011 - Breathe Fire to the Sun
+2016 - Slayer Of Gods
+2019 - Wings Of Fire
+2022 - Voices in the SkyЖанр: Symphonic/Melodic Death/Pagan MetalПродолжительность: 03:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CD34E232C0EB34F4C42508B817BA2C6EAF8130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703555   (114988) от 29.02.2024
+
+Bokassa - Crimson Rider (2019) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Stoner Rock, Hardcore, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01 - Brologue [1:31]
+02 - Charmed & Extremely Treacherous [2:57]
+03 - Vultures [2:46]
+04 - Mouthbreathers Inc. [3:07](   Читать дальше...   )Жанр: Stoner Rock, Hardcore, Punk RockПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C433CB0922BE98BDC02C9DB91B57A50139B2A928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703413   (114985) от 29.02.2024
+
+Linwood Taylor - Two Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Good (3:09)
+02. Psychic (feat. Sol Roots) (4:09)
+03. Safe to Say (3:18)
+04. I Wanna Get Funky (feat. Sol Roots) (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E48FADD6F12E85E76A237E4AB4F3F2CF17CF700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703506   (114984) от 29.02.2024
+
+Виктор Лунин | Сдобная Лиза (2008) [MP3, Виктор Лунин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиосказка для детей и не только.
+В одном сказочном городе Пастила жил замечательный кондитер Крем. Однажды этот знаменитый кондитер испек самую настоящую кошечку и назвал ее Лизой. Лиза была очень любопытной и в один прекрасный день сбежала от своего хозяина. Эта непослушная кошка всенепременно угодила бы в беду, если бы не знакомство с замечательным (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: КонтентМедиаПродолжительность: 01:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC241A2BFFA8B8D3FF133E84E35130A0C94743A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703415   (114983) от 29.02.2024
+
+Marc and Paula's Roadside Distractio - Marc and Paula's Roadside Distractio (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Strike While the Iron's Hot (2:56)
+02. Not so Silver Eagle Rides Again (3:02)
+03. Crazy Eights (3:40)
+04. Idle Hour Cafe (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4CAF6DE510E4022039DA40401CD151AB5267E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703403   (114982) от 29.02.2024
+
+Ivan Strunin - The First Day of December (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Zydeco Minor Swing (2:50)
+02. The First Day of December (3:57)
+03. Beausoleil Boogie (2:58)
+04. Ain't Misbehavin' (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CBA234FAB87D88B28A59E750B54AC4A255283A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703410   (114981) от 29.02.2024
+
+Kirk Nelson & Jambalaya West - Savor the Moment (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazzy_Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce Around (3:01)
+02. Only 12 Bars In A Day (3:48)
+03. Stay In Your Lane (3:14)
+04. Back On Up The River (4:12)(   Читать дальше...   )Жанр: Jazzy_BluesПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99F7A79B010B9A48DA2A1CDB0390D1B6355CBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703464   (114980) от 29.02.2024
+
+Андрей Мацко | Суеверие (2024) [MP3, Дмитрий Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1980 г., июнь — в кинотеатре небольшого американского городка идёт подготовка к показу нового фильма ужасов. Релиз должен состояться в пятницу, 13го числа — дата выбрана неслучайно, ведь созвучна с названием фильма. Но накануне ночью городок сотрясается от серии жутких убийств…Жанр: детектив, мистикаИздательство: Неофициальное изданиеПродолжительность: 03:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5CDA667DD8BA10DFBA1B0DD01D3E1F1E49389A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703424   (114979) от 29.02.2024
+
+The Soul of John Black - J.B.'S Blues Party! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Gut Bucket (4:40)
+02. Six Pack of Blues (4:38)
+03. Turn You On (3:27)
+04. Slow Dancing (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5931F536A6B4E0C04B99FF5C348B55B4531BE1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703504   (114977) от 29.02.2024
+
+Виктор Лунин | Азбука в стихах (2008) [MP3, Виктор Лунин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Аудиосказка для детей и не только.
+Азбука! Каждый детский поэт мечтает ее написать.
+Мне хотелось, чтобы стихотворение на каждую букву было наполнено ее звуком. Ведь звук – главное, что спрятано в букве. Например, звук «с-с-с» тихий, им можно наполнить тихое стихотворение. А звук «ж-ж-ж» – безусловно громкий. На звук «р-р-р» хорошо получаются стихи для (   Читать дальше...   )Жанр: Детские стихи и музыка, развивающие и обучающие занятияИздательство: КонтентМедиаПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10C7802085BE057AEF4ECE559D1C9C17A5A77AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703419   (114976) от 29.02.2024
+
+Medicine Head - Heartwork (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Makin' Up For Lost Love (3:46)
+02. Alibi (2:50)
+03. Everybody Has The Blues (Sometimes) (4:42)
+04. Get Your Hands In the Air (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE368F4B09B12D0358E42480FF891610CA6E5D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703406   (114975) от 29.02.2024
+
+John Clifton - Too Much to Pay (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Too Much To Pay (3:15)
+02. It Wouldn't Stop Raining (2:57)
+03. Long Gone Mama (3:35)
+04. Get Lost (2:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2BB891A0BC480DA2B707EE58CD5BD01362228C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

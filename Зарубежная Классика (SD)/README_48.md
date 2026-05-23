@@ -1,3 +1,109 @@
+###  Публикация: 1027187   (677976) от 28.06.2016
+
+Три мушкетера / The Three Musketeers (1948) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Д`Артаньян молодой провинциал приезжает покорять столицу Франции — Париж. Юноша жаждет приключений и поступает на службу в королевский полк мушкетеров. Красавец и виртуозный фехтовальщик добьется своего: его ожидают приключения, тайны, новые друзья, новые враги, поединки и, конечно же, любовь.
+Судьба улыбнется Д`Артаньяну -он обретет верных, честных, веселых и благородных (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Джордж СидниАктеры: Лана Тернер, Джин Келли, Джун Аллисон, Ван Хефлин, Анджела Лэнсбери, Фрэнк Морган, Винсент Прайс, Кинен Уинн, Джон Саттон, Гиг Янг, Роберт Кут, Реджинальд Оуэн, Иэн Кит, Патриция МединаПеревод: Двуголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF84222B88843C75A6086A4DDCFBE0B5D9FFB422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221791   (677138) от 03.05.2018
+
+Небеса могут подождать / Heaven Can Wait (1943) WEB-DLRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дон Амичи в роли Генри Ван Клива, современного Казановы, чья жизнь показана с младенчества и до самой смерти (в возрасте 70 лет). Скончавшийся Ван Клив стоит перед Дьяволом, требующим предъявить пропуск в Ад. Для этого Дьявол должен тщательно изучить всю жизнь Ван Клива…Производство: США / 20th Century Fox Film CorporationЖанр: Фэнтези, Драма, Мелодрама, КомедияРежиссер: Эрнст ЛюбичАктеры: Джин Тирни, Дон Амичи, Чарльз Коберн, Марджори Майн, Лэйрд Крегар, Спринг Байинтон, Эллин Джослин, Юджин Пэллет, Синье Хассо, Луи КэлхернПеревод: Авторский (Г.Либергал)Субтитры: АнглийскиеПродолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22401E34381F00B89B09EB60CB0A6215649E77AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506220   (676802) от 11.06.2012
+
+Шалако / Shalako (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит в XIX в. В Нью-Мехико. Некие аристократы из Европы, решили поохотиться на территории дикого и воинственного племени апачей. Шалако наталкивается на лагерь охотников, когда спасает прекрасную женщину, находящуюся на грани гибели… Краснокожие устремляются на бледнолицых, расположившихся в полуразрушенной крепости. Шалако имеет богатейший опыт выживания и ведения войны в этих краях. Он прилагает массу усилий, чтобы спасти горе-охотников, но всех спасти не удается…Жанр: вестернРежиссер: Эдвард ДмитрикАктеры: Шон Коннери, Брижит Бардо, Стивен Бойд, Джек Хоукинс, Петер Ван Эйк, Хонор Блэкмен, Вуди Строуд, Эрик Сайкс, Александр Нокс, Валери Френч, Джулиан Матеос, Дон 'Красный' Бэрри, Родд Редвинг, Чиф Таг Смит, Ганс Де Фриз, Уолтер Браун, Чарльз Сталмакер, Боб Каннингэм, Джон Кларк, Боб Холл…Перевод: Профессиональный двухголосый закадровыйПродолжительность: 01:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE2D7DED93A245868AF26BFD5F5D64D7384CE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397023   (676776) от 17.05.2015
+
+Синьор Робинзон / Il signor Robinson, mostruosa storia d'amore e d'avventure / Mr. Robinson (1976) DVDRip [H.264]
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Робинзон Крузо проходит через множество комичных ситуаций, пока ему не удается хоть как-то освоиться на острове. У него появляется даже Пятница - только на этот раз это темнокожая красавица, с которой Робинзон поначалу тщетно пытается найти общий язык.
+ Современный Робинзон не хочет отказываться от благ цивилизации и придумывает, как заменить телевизор, радио и все (   Читать дальше...   )Производство: ИталияЖанр: Комедия, ПриключенияРежиссер: Серджио Корбуччи / Sergio CorbucciАктеры: Паоло Вилладжо, Зеуди Арайа, Анна Ногара, Перси ХоганПеревод: Многоголосый закадровыйПродолжительность: 01:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCE99272225CE1E6A5A3B39787BEDCAF4CF5B9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506315   (676652) от 11.06.2012
 
 Вся президентская рать / All the President's Men (1976) [H.264] BDRip
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_671171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6CABF27A404254A999CDD821131C29E409B873A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028940   (670145) от 02.07.2016
-
-Возьми меня с собой на бейсбол / Take Me Out to the Ball Game (1949) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдди и Деннис — профессиональные игроки в бейсбол, но в глубине души они — конферансье водевиля. Неприятности в их размеренной жизни и карьере начинаются когда, в очередной раз, выходя на бейсбольное поле, друзья узнают, что у их команды новый владелец по имени — К. С. Хиггинс.
-Удивлению и возмущению парней нет предела, но главный сюрприз ждет команду впереди: оказывается (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Мелодрама, Комедия, СпортРежиссер: Басби БерклиАктеры: Фрэнк Синатра, Эстер Уильямс, Джин Келли, Бетти Гаррет, Эдвард Арнольд, Джулс Маншин, Ричард Лэйн, Том Дуган, Рамон БлэкбернПеревод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7E7F7C8BBA5AAB5F74169A703883C2CDF4B527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028889   (670068) от 02.07.2016
-
-Дело есть дело / Wat zien ik (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амстердам. Район Красных фонарей. Рассадник греха, наркотиков и извращенцев. Здесь всегда ждут и готовы обслужить любых клиентов с самыми уникальными и извращенными вкусами. Для главной героини фильма такая жизнь и вкусы клиентов - это средство для ведения своего дела. Все средства хороши. Но однажды влюбившись, она начинает осознавать, что такой бизнес и любовь (   Читать дальше...   )Производство: НидерландыЖанр: КомедияРежиссер: Пол ВерховенАктеры: Ронни Биерман, Сильвия де Люр, Пит Рёмер, Жуль Хамель, Бернард Дрог, Эрик Ван Инген, Аллард Ван Дер ШеерПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662D5505D63DF4CB61FE63042443B7900E4797BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137107   (669130) от 25.05.2017
-
-Следствие закончено, забудьте / L'istruttoria e chiusa: dimentichi (1971) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архитектора Ванци поместили на время следствия в тюрьму. Его подозревают в том, что он сбил человека на пешеходном переходе. Попав в тюрьму, Ванци знакомится с её обитателями — матерыми уголовниками, убийцами, сумасшедшими, жестокими надзирателями и крупным чиновником Сальваторе Роза, который сел, чтобы прикрыть махинации своих начальников.
-И здесь этот человек чувствует (   Читать дальше...   )Производство: Италия, Франция / Fair FilmЖанр: Триллер, КриминалРежиссер: Дамиано ДамианиАктеры: Франко Неро, Жорж Вильсон, Джон Стайнер, Риккардо Куччолла, Ферруччо Де Череза, Антонио Казале, Симона Санто, Даниэле Дублино, Тури Ферро, Пьеро НутиПеревод: Дублированный, одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA1A71897B7AABE73DFEFF5F4AA4BC00CFE0529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029094   (668576) от 03.07.2016
-
-След кота / Track of the Cat (1954) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668576.jpg" />
-</div>
-
-
-###  Подробнее
-
-События фильма происходят на высокогорном скотоводческом ранчо в 1890-х гг., когда на фоне охоты на пуму, задирающую скот, в семье ранчеров разворачивается склока за право управления собственностью.Производство: США / Wayne-Fellows ProductionsЖанр: Драма, ВестернРежиссер: Уильям А. УэллменАктеры: Роберт Митчем, Тереза Райт, Диана Линн, Тэб Хантер, Бьюла Бонди, Филип Тонг, Уильям Хоппер, Карл «Алфалфа» СвитцерПеревод: Одноголосый закадровый, любительский (7879)Субтитры: ОтсутствуютПродолжительность: 01:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74DF4CAA6FB5972DA9EEE5C8CAC27E0FCF755787
 ```
 
 https://mybot314.ru/tekegram_catalog/

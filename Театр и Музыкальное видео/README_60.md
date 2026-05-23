@@ -1,3 +1,174 @@
+###  Публикация: 515982   (654225) от 27.06.2012
+
+Metallica: Orion Music Festival 2012: The Black Album (2012) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Долгожданны фестиваль “Orion Music + More”.Cостоялся 23 и 24 июня 2012 года в Атлантик-Сити, Нью-Джерси. В котором приняла участие группа Metallica.01. Hit the Lights
+02. Master of Puppets
+03. Fuel
+04. For Whom the Bell Tolls
+05. The Shortest Straw
+06. The Struggle Within
+07. My Friend of Misery
+08. The God That Failed
+09. Of Wolf and Man
+10. Nothing Else Matters(   Читать дальше...   )Жанр: MetalПродолжительность: 02:13:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182975   (653593) от 22.05.2018
+
+Квартирник на НТВ у Маргулиса. Калинов мост (11.11.2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла рок-группа из Новосибирска "Калинов мост". Музыканты вспомнили, как начиналась их карьера, лидер Дмитрий Ревякин рассказал о влиянии народных песен и славянской мифологии на творчество группы, а Евгений Маргулис исполнил одну из песен, написанную солистом и основателем коллектива "Калинов мост", в стилистике (   Читать дальше...   )Производство: Жанр: КонцертПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B06EBDFBDAA55F58A6C2A8A99153EA0468948A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344838   (653223) от 01.06.2011
+
+Юбилейный концерт группы "ВИА ГРА" (2010) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт, посвященный десятилетию популярной и очень сексуальной группы "ВИА ГРА". В концерте, помимо существующего состава – Альбина Джанабаева, Надежда Мейхер и Ева Бушмина, примут участие и бывшие участницы группы – Ольга Корягина, Меседа Багаудинова, Алена Винницкая, Вера Брежнева и Анна Седокова, а также Валерий Меладзе.01.Стоп! Стоп! Стоп!
+02.Попытка №5
+03.Good Morning, папа!
+04.Цветок и нож(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECF7755D15B31AE3A4E9745FF9CE76DE0F46DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140670   (651957) от 09.06.2017
+
+Rammstein - Paris (2017) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Немецкие индастриал-металлисты Rammstein подготовили к выпуску свой новый концертный DVD и Blu-ray — «Paris» («Париж»). Материал для него был записан во Франции в марте 2012 года в ходе тура «Made In Germany».1. Intro
+2. Sonne
+3. Wollt Ihr Das Bett In Flammen Sehen
+4. Keine Lust(   Читать дальше...   )Производство: Германия, SpinefarmЖанр: Industrial MetalПеревод: ОтсутствуетПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBB1BB9EC16C043ED59652D7E47F54989A03C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 677239   (651227) от 12.07.2013
+
+Guf (Гуф) - клипы (2006-2013 )/ Guf - all video (2006-2013) HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapРежиссер: Guf и др.Актеры: Guf и др.Продолжительность: общая  02:31:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B6C42339D5316DC8CF84BF535FE1735CCBA86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903050   (651205) от 05.06.2015
+
+The Police: Certifiable - Live in Buenos Aires (2008) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Альбом Certifiable записан во время двух концертов на стадионе River Plate Stadium в Буэнос-Айресе в декабре 2007 г., которые состоялись в рамках триумфального тура воссоединенных The Police, посвященного 30-летию группы. Тур проходил по всем континентам кроме Африки с мая 2007 по август 2008. Финальное шоу состоялось 7 августа на знаменитой площадке Madison Square (   Читать дальше...   )Производство: США, A&MЖанр: RockПродолжительность: 01:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CDF9B0C68BF0B7343106FACCBCFE1E96A6A5B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 345309   (651146) от 02.06.2011
 
 Тартюф / Tartuffe (1989) SATRip (МХАТ)
@@ -6,7 +177,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_651146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +263,7 @@ Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +289,7 @@ David Gilmour - Live in Wroclaw (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -147,7 +318,7 @@ BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +348,7 @@ Metallica - Orion Music Festival - The Black Album (2012) HDTVRip 720 [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_648930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -206,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -234,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -260,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -289,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +489,7 @@ The Flying Dutchman / Andre Rieu -  The Flying Dutchman (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -356,7 +527,7 @@ AC/DC - Backtracks [Deluxe Edition] "Live At The Circus Krone" (2003/2009) DVDRi
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_646967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -385,7 +556,7 @@ W.A.S.P. - Live At The Lyceum, London (1984) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -414,7 +585,7 @@ The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -443,7 +614,7 @@ Vaya Con Dios - Live 2005 & 2006 (2016) TVRip>DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,187 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A5ECE69CD6742BEBB7B9D8027D112B2E502D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518346   (643617) от 03.07.2012
-
-The Realm Of Napalm Records Vol. III (2012) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Napalm Records представляет фанатам тяжелой музыки новый, третий DVD сборник лейбла. Треклист DVD включает в себя такие великие группы как Monster Magnet, Grave Digger, Alestorm и много других.1. ALESTORM - Shipwrecked
-2. ARKONA Liki - Bessmertnykh Bogov
-3. ARKONA - Stenka Na Stenku
-4. ARKONA - Yarilo
-5. ARTAS - Rassenhass
-6. DIABULUS IN MUSICA - Sceneries of Hope
-7. DRACONIAN - The Last Hour of Ancient Sunlight
-8. EDENBRIDGE - Higher
-9. FEJD - Gryning
-10. GRAVE DIGGER - Highland FarewellЖанр: MetalПеревод: ОтсутствуетФормат: DVD VideoПродолжительность: 03:52:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292110   (642821) от 31.03.2019
-
-Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Dream Theater в Nippon Budokan Hall 26 апреля 2004 года (Токио, Япония).
-Blu Ray выпущен 18 октября 2011, если верить вики.1. "As I Am" – 8:34
-2. "This Dying Soul" – 12:12
-3. "Beyond This Life" – 19:34
-4. "Hollow Years" – 9:19(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: ProgressiveРежиссер: Mike PortnoyПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B231A39F663123EE65689992A1FA4211D2929E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678152   (641810) от 17.07.2013
-
-Кубана 2012 / Kubana 2012 (2013) [H.264] HDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_641810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gogol bordello - My companjera.
-02. Skatalites - Bye bye.
-03. Noize MC - Yes future.
-04. The Subways - Rock'n'roll queen.(   Читать дальше...   )То, чего мы все так долго ждали, свершилось! Теперь атмосфера, царившая в прошлом году на Полуострове Свободы, придет в каждый дом нашей необъятной страны! Ведь фильм о KUBANA-2012 смонтирован, отполирован до блеска и подготовлен к раздаче.Жанр: МузыкаРежиссер: Александр Соломахин (bazzooka GARAGE FILMZ)Перевод: ОтсутствуетПродолжительность: 02:37:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032931   (641658) от 09.07.2016
-
-The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление The Rolling Stones в Гайд-парке Лондона состоялось 5 июля 1969 года, два дня спустя после гибели Брайана Джонса, одного из основателей группы. Это был грандиозный концерт собравший больше 250 000 зрителей, в котором наряду с Роллингами выступили King Crimson, Family, Battered Ornaments, Third Ear Band, Alexis Korner's New Church, Screw и Roy Harper. Участие (   Читать дальше...   )01. Midnight Rambler
-02. Street Fighting Man
-03. (I Can’t Get No) Satisfaction
-04. I’m Free(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC83FE08C2AF2B9AE5C52D70240CE2A1DCFCCF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348128   (639619) от 08.06.2011
-
-Серия "Jazz Icons" / Duke Ellington (Дюк Эллингтон) - Live in '58 (2007) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_639619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Tan Fantasy/Creole Love Call/The Mooch
-02. Harlem Air Shaft
-03. Sophisticated Lady
-04. My Funny Valentine(   Читать дальше...   )Жанр: Jazz, BigBandПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517976   (638774) от 05.07.2012
-
-Призрак оперы / The Phantom of the Opera (2004) HDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638774.jpg" />
-</div>
-
-
-###  Подробнее
-
-е:
- Его голос взывает к ней из темных глубин здания оперного театра, который стал вторым домом для невинной хористки Кристины. Только руководительница балетной труппы мадам Жири знает, что таинственный "ангел музыки" Кристины — на самом деле Призрак, уродливый музыкальный гений, обитающий в катакомбах театра и наводящий ужас на артистов, которые там живут и работают.
- Когда темпераментная дива Карлотта уходит из театра в разгар генеральной репетиции нового спектакля, жаждущим славы управляющим не остается ничего иного, как вытолкнуть под огни рампы Кристину. Ее выступление на премьере завораживает и зрителей, и Призрака, который отныне посвящает себя тому, чтобы сделать из нее звезду сцены. Но он — не единственный, перед которым благоговеет юная сопрано, — в скором времени за Кристиной начинает ухаживать богатый покровитель театра виконт Рауль де Шаньи.
- Хотя Призрак подчинил Кристину своей власти, ее неодолимо влечет к эффектному Раулю, что приводит в ярость "гения музыки". Высокие страсти, свирепая (   Читать дальше...   )Жанр: мюзикл, триллер, драма, мелодрамаРежиссер: Джоэл ШумахерПродюсер: Джефф Абберли, Остин Шоу, Джулия БлэкманАктеры: Джерард Батлер, Эмми Россум, Патрик Уилсон, Миранда Ричардсон, Минни Драйвер, Сайэрэн Хайндз, Саймон Кэллоу, Виктор МакГуайр, Дженнифер Эллисон, Мюррей Мелвин, Кевин МакНолли, Джеймс Флит, Имоджен БэйнПеревод: ДублированныйПродолжительность: 02:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36E1E59848BC285BAC7565E2E69BD0F1B5C3680
 ```
 
 https://mybot314.ru/tekegram_catalog/

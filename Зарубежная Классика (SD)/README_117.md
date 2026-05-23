@@ -1,3 +1,109 @@
+###  Публикация: 1688734   (121556) от 22.01.2024
+
+Лорна Дун / Lorna Doone (1951) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация романа Ричарда Д. Блэкмора.
+Действие фильма происходит на фоне событий английской революции XVII века на западе страны. Местные феодалы из клана Дунов убивают фермера Джека Рида, его сын Джон клянется отомстить. Однажды на рыбалке Джон чуть не утонул: его спасла юная наследница враждебного клана, Лорна Дун. Джон, поражённый красотой девушки, влюбляется (   Читать дальше...   )Производство: США / Edward Small ProductionsЖанр: драма, мелодрама, приключения, экранизацияРежиссер: Фил КарлсонАктеры: Барбара Хейл, Ричард Грин, Карл Бентон Рейд, Уильям Бишоп, Рон Рэнделл, Шон МакКлори, Онслоу Стивенс, Лестер Мэтьюз, Джон Денер, Глория ПетроффПеревод: Одноголосый любительский (Kolobroad)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C3A76072530DC0EC7194CFD30142EE2E661800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693149   (121150) от 24.01.2024
+
+Жюльетта, или Ключ к сновидениям / Juliette ou La Clef des songes (1951) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Этот фильм «поэтичный рассказ о юном герое, которому нет счастья в реальном мире, и который ищет забвения в мире грёз».Производство: Франция / Films Sacha GordineЖанр: драмаРежиссер: Марсель КарнеАктеры: Жерар Филип, Сюзанн Клотье, Жан-Роже Коссимон, Рене Женен, Ролан Лезафр, Габриель Фонтан, Артюр Девер, Луиз Фуке, Марсиаль Реб, Marion DelboПеревод: Авторский (Роман Янкелевич)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9548B71970BE02F99BA5EB647C61A131BDAD6CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118382   (121080) от 25.01.2024
+
+К сокровищам авиакатастрофы / Race for the Yankee Zephyr (1981) BDRip [H.264]
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В озере, в высокогорьях Новой Зеландии, охотник Гибби Гибсон обнаруживает самолет потерпевший крушение во времена Второй Мировой Войны. Когда он рассказывает об этом, гангстеры начинают преследовать его, угрожая ему и его дочери, потому что они знают, где находятся 50 миллионов долларов пропавшие при крушении. Пилот вертолета Барни, рискуя своей жизнью, помогает (   Читать дальше...   )Производство: Австралия, Новая Зеландия, СШАЖанр: Боевик, драма, приключенияРежиссер: Дэвид ХеммингсАктеры: Кен Уол, Лесли Энн Уоррен, Дональд Плезенс, Джордж Пеппард, Бруно Лоуренс, Грант Тилли, Роберт Брюс, Гарри Разерфорд-Джонс, Тони Спаркс, Кларк Уокингтон ...Перевод: Профессиональный многоголосый, дублированныйСубтитры: РусскиеПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3FDC10D7EB6621378344EB34DF2C9B477C42C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442988   (121075) от 25.01.2024
+
+Крамер против Крамера / Kramer vs. Kramer (1979) BDRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Тед Крамер, целиком посвятив себя карьере, не замечает того, что происходит в собственной семье. Поэтому от него уходит жена, оставляя незадачливого отца заботиться о шестилетнем сыне.
+Теперь Крамер старший должен выступить в непривычной роли: ему предстоит ухаживать за Крамером младшим, проводить с ним больше времени и, наконец, попытаться проникнуть в хрупкий и (   Читать дальше...   )Производство: США / Columbia Pictures, Stanley Jaffe ProductionЖанр: ДрамаРежиссер: Роберт БентонАктеры: Дастин Хоффман, Мэрил Стрип, Джейн Александр, Джастин Генри, Говард Дафф, Джордж Коу, ДжоБет Уильямс, Билл Моор, Хоуланд Чемберлен, Джек Рэмэдж и др.Перевод: Дублированный, ДвухголосыйСубтитры: Русские, Английские, ФранцузскиеПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809820D4F4BF899D1EB829278018B697BB47825F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690312   (121036) от 25.01.2024
 
 Золото древних инков / Das Vermachtnis des Inka (1965) DVDRip [MVO]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1E20D248FDB9FA4543383C6A20B75AA89656D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705625   (113807) от 09.03.2024
-
-Человек с улицы Полумесяца / The Man in Half Moon Street (1945) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гениальный хирург трансплантировал своему пациенту гланды, в результате чего тот целых 60 лет оставался абсолютно молодым. Но вот хирурга время взяло, он постарел, и больше не может делать операции своему пациенту. Тот начинает думать, как ему сохранить свою молодость.Производство: США / Paramount PicturesЖанр: фильм-нуар, триллер, драмаРежиссер: Ральф МерфиАктеры: Нильс Астер, Хелен Уокер, Райнхольд Шюнцель, Пол Кэвэна, Эдмунд Бреон, Мортон Лоури, Мэттью Болтон, Брэндон Херст, Эрни Адамс, Норман ЭйнслиПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BC28ED1D71EC9CEF00624169EF2DC93504C357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705884   (112308) от 01.04.2024
-
-Леди исчезает / The Lady Vanishes (1938) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на романе Этель Лины Уайт "Колесо вращается" 1936 года... Путешествуя на поезде через Европу, Айрис Хендерсон встречает доброжелательную старуху мисс Фрой. Они общаются с другими пассажирами, а позже Айрис просыпается и обнаруживает, что мисс Фрой пропала. Её недоумение усиливается, когда ни один из попутчиков, с которыми они общались, не (   Читать дальше...   )Производство: Великобритания / Gainsborough PicturesЖанр: детектив, триллерРежиссер: Альфред ХичкокАктеры: Маргарет Локвуд, Майкл Редгрейв, Пол Лукас, Мэй Уитти, Сесил Паркер, Линден Треверс, Нонтон Уэйн, Бейзил Рэдфорд, Мэри Клер, Эмиль Борео, Гуги Уизерс, Сэлли Стюарт, Филип Ливер, Сельма Вас Диас, Альфред ХичкокПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A04B1453AC9A379E1512352C00F5BD2A275D563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718290   (110995) от 24.04.2024
-
-Восход солнца / Sunrise: A Song of Two Humans (1927) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сценарий фильма основывается на вышедшем в 1917 году романе Германа Зудермана «Путешествие в Тильзит». В основе сюжета классический любовный треугольник. В интертитрах персонажи названы просто Мужчина, Жена, Женщина Из Города... Мужчина влюбляется в Женщину Из Города, которая подговаривает его устроить его жене «несчастный случай» и переехать к ней в город. Они договариваются, (   Читать дальше...   )Производство: США / Fox Film CorporationЖанр: драма, мелодрамаРежиссер: Фридрих Вильгельм МурнауАктеры: Джордж О`Брайен, Джанет Гейнор, Маргарет Ливингстон, Дж. Фаррелл МакДональд, Джейн Уинтон, Артур Хаусман, Эдди Болан, Салли ЭйлерсПеревод: профессиональный одноголосыйЯзык озвучки: русскийСубтитры: русские (Fenix Club), английские (интертитры)Продолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCE75200A18BCB4211DA128B70117FC801EBD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718701   (110888) от 26.04.2024
-
-Семь женщин МакГрегоров / 7 donne per i Mac Gregor (1967) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бодренькие старички МакГрегоры со своими седенькими старушками, видимо, в приступе маразма, решают закопать всё своё золото возле дома, так сказать, “на всякий случай”. Но на их беду это действо подмечает приспешник бандита Мальдонадо, который с подручными, конечно же, похищает семейные сокровища. После этого для МакГрегоров “дело чести” найти пропавшее золото и (   Читать дальше...   )Производство: Италия, Испания / Jolly Film, Produzione D.S. (Dario Sabatello), Talía FilmsЖанр: комедия, вестернРежиссер: Франко ДжиральдиАктеры: Дэвид Бэйли, Уго Бланко, Альберто Дэлль’Акква, Сатурно Серра, Паоло Магалотти, Хулио Перес Табернеро, Наццарено Дзамперла, Агата Флори, Жорж Риго, Франческо ТенсиПеревод: Авторский, В. ГорчаковЯзык озвучки: Русский, итальянский, английскийСубтитры: АнглийскиеПродолжительность: 01:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7071D97C91D29ABFF2F41E3A93FCF620B9F81F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

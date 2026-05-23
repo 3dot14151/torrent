@@ -1,3 +1,107 @@
+###  Публикация: 1229649   (624052) от 07.06.2018
+
+GHOUL (2018) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня игры Нил (Nil) - профессиональный вор. Она заключает контракты и исполняет то, что хотят его работодатели; но конечно не всегда все идет гладко как хотелось бы. Ее следующая задача - украсть красную сумку. Нил останавливается в гостинице за пределами города и у нее появляется эта возможность. Но странное чувство, которое она испытывала с тех пор, (   Читать дальше...   )Тип издания: RepackРазработчик: Miracle StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA5097F9A21600C6B75DA6502C8923B638B0758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035958   (623996) от 18.07.2016
+
+Crysis 3 (2013) [Ru] (1.3/upd3) Portable PortGamPC
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в 2047 году, спустя 24 года после событий, описанных в Crysis 2. После подавления угрозы цефалоподов возник вакуум власти, который в итоге оказался заполнен C.E.L.L., развившейся из частной военной компании в многопрофильную мегакорпорацию. Установив монополию в ряде ключевых областей экономики, в том числе — в энергетике, C.E.L.L. задействовала (   Читать дальше...   )Тип издания: PortableРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FFC6547DD90D3CCC54DA3A1DED371A1988EFE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295014   (623590) от 10.04.2019
+
+Call of Duty: World at War (2008) [Ru] (1.7.1263) Repack xatab
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 1944 году победа союзников уже не вызывает сомнений. Исход войны предрешен, но гитлеровцы и японские солдаты по-прежнему стоят насмерть. Последняя стадия великого противостояния приближается, и игрок окажется в эпицентре событий. Две напряженные и безумно затягивающие кампании пройдут на островах Тихого океана и на растерзанных артиллерией улицах Берлина.Тип издания: RepackРазработчик: TreyarchЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B558BBBE47313DE7EABF97C77BE4E00E1D3599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225676   (620518) от 09.06.2018
+
+The Forest (2018) [Ru/Multi] (1.08) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть..Тип издания: RepackРазработчик: Endnight GamesЖанр: Survival Horror, SandboxЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47C716F0FBAA71B0A9C6D5CBB864F7D56AD2BAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036253   (620309) от 20.07.2016
 
 Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nemos
@@ -6,7 +110,7 @@ Aliens: Colonial Marines (2013) [Ru/En] (1.0.210.751923/upd1.4.0/dlc) Repack nem
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Necromunda: Hired Gun (2021) [Ru/Multi] (1.62662/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Space Hulk: Deathwing (2018) [Ru/En] (2.42/dlc) Repack Mizantrop1337 [Enhanced E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ We Happy Few (2018) [Ru/Multi] (1.7.79954/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Doom 3 [Ru/En] (RePack/1.3.1) 2004 l kuha
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ World Of Undead (2016) [En] (1.0 Hotfix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Outlast 2 (2017) [Ru/En] (1.0.17517) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Prey - Mooncrash (2018) [Ru] (1.0.1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sniper: Ghost Warrior (2010) [Ru] (1.3) Repack =nemos= [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Occupation (2019) [Ru/Multi] (1.3) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Call of Duty 4: Modern Warfare (2007) [Ru] (1.7) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Unreal (2000) [En] (226/dlc) License GOG [Gold]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Lust for Darkness (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Nosferatu: Wrath of Malachi (2003) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ Hard Reset: Extended Edition [Ru/En] (Repack/1.51) 2011 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_605137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Duke Nukem Forever (2011) [Ru/Multi] (1.0.244/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Inner Voices (2017) [Ru/Multi] (20170704) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Half-Life 2 Anthology (2004-2007) [Ru/En] (1.0) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Labyrinth Escape (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Labyrinth Escape — это игра от первого лица, в котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF289736A22877ADDBEABA6AF4E730476697A50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149903   (597717) от 12.07.2017
-
-ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armed Assault - это стопроцентное продолжение Operation Flashpoint. Например, камера демонстрирует заход на посадку двух UH-60. Вокруг до боли знакомый серо-зеленый ландшафт: горы, несколько небольших лесков, долина, по которой пролегает дорога, уютно выглядящий городок. Можно даже зажмуриться от удовольствия, а воспоминания все равно продолжат врываться в голову. (   Читать дальше...   )Тип издания: LicenseРазработчик: Bohemia Interactive StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BB750EC6423048E27FE0F4893C363D385E4FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526518   (596704) от 24.07.2012
-
-Crysis 2 Maximum Edition [Ru/En/Multi9] (Steam-Rip/1.9) 2011 | R.G. Кинозал
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир потрясла серия экологических катастроф, и человечество находится на грани вымирания. Инопланетяне вернулись с твердым намерением стереть людей с лица земли и начали при этом с одного из самых культовых земных городов. Улицы Нью-Йорка наводнили инопланетные захватчики, и волна оживших кошмаров постепенно захлестывает город и его жителей. Городские коммуникационные системы разрушены, здания лежат в руинах. Такого Нью-Йорка Вы еще не видели. Ни правоохранительные организации, ни военная машина США не могут справиться с захватчиками, и все, кто не успел вовремя убежать, уже мертвы. Чтобы выжить в этом хаосе, Вам понадобятся технологии, о которых ни один земной солдат еще и понятия не имеет. Один человек унаследует то, что поможет ему выжить. Один суперсолдат, вооруженный и экипированный по последнему слову технологий будущего в Nanosuit 2, предпримет отчаянную попытку спасти человечество на улицах Нью-Йорка.(   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Разработчик: CrytekЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Английский, Русский, Multi9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70BFB13C4E6CB5AC053BA57249FA641D02189E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039539   (595546) от 01.08.2016
-
-Whispers (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Whispers — это шутер от первого лица. Вы играете за смотрителя загородных домов, в отсутствие хозяев. Вам предстоит следить за домом друга. Дом находится посреди поля, вдали от цивилизации. Он оставил инструкции для вас. Ничего сложного, просто следить за чистотой дома. Но что-то с этим домом не так, это вам и предстоит узнать.Тип издания: RepackРазработчик: PeaceЖанр: Adventure, Action, 3D, 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC3D4F6E6F985D1ED2B326CB770CB0042112284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150387   (594669) от 14.07.2017
-
-Crysis 3 (2013) [Ru] (1.3/dlc) Rip Other s [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crysis 3 продолжает знаменитую серию шутеров от Crytek. Действие игры разворачивается в 2047 году, а вам предстоит выступить в роли Пророка. Он возвращается в Нью-Йорк, где узнает о том, что город находится под куполом Nanodome, который был создан корпорацией C.E.L.L. Жителям сообщают, что Nanodome необходим для их защиты и очистки метрополисов от последних цефов, (   Читать дальше...   )Тип издания: RipРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4A21A1F771C532C3BF778E3CB7620B79F46CD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

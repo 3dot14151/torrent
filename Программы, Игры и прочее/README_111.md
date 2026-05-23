@@ -1,3 +1,85 @@
+###  Публикация: 1596470   (169550) от 10.12.2022
+
+Picture Fish - Fish Identifier v2.4.15 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите быть экспертом по рыбе в своей жизни? Мощный искусственный интеллект Picture Fish может помочь вам идентифицировать все виды рыб, независимо от того, принадлежит ли они к морской, пресной или солоноватой воде.
+Просто сделайте или загрузите изображение рыбы, приложение Picture Fish поможет вам идентифицировать ее за считанные секунды. Вы можете получить (   Читать дальше...   )Тип издания: ProРелиз состоялся: 07.09.2022Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F9C0002F282F23C3ABBB41990BA5C36D8ED2681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514059   (169234) от 07.12.2021
+
+Business Calendar v2.44.0 + Lite Mod [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Напоминания в вашем телефоне уже мало чего способны напомнить? Заметки удаляются и становятся чем-то ненадежным? Настало время установить приложение помощнее. Именно таким и является приложение под названием Business Calendar, вобравшее в себя все важнейшие функции, связанные с постановкой и планированием задач.
+
+Безусловно, при первом знакомстве с приложением можно (   Читать дальше...   )Тип издания: Premium + Lite ModРелиз состоялся: 27.10.2021Разработчик: Appgenix SoftwareПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3504B837B186826017FD7D0AC823B46B20DFD38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672468   (169205) от 28.10.2023
+
+PicWish: AI Photo Editor v1.5.6 Mod by Raju054 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте самое простое приложение для редактирования фотографий с искусственным интеллектом! Удалите фон и размытие фотографии, чтобы ваши продукты выделялись! Вот ваши полностью автоматические функции ластик фона, улучшитель фотографий и ластик фотографий и ретушь. Никаких навыков не требуется. Супер простой в использовании.
+PicWish — фоторедактор с искусственным (   Читать дальше...   )Тип издания: ModРелиз состоялся: 27.10.2023Разработчик: WangxuTechПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD01FBA8121FB6C632DE149C6A0475F2326675F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826478   (169105) от 19.10.2025
 
 PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
@@ -6,7 +88,7 @@ PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +140,7 @@ DW Contacts & Phone & SMS 3.2.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +193,7 @@ Pro Pilkki 2 v1.9 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +219,7 @@ Snap VPN: Super Fast VPN Proxy 4.7.0.1 Mod by Pie Mods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +246,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by Alien (ToonXTech) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +272,7 @@ PDF Extra: сканер и редактор 10.6.2171 Lite-Mod by Number one' [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +298,7 @@ Dynamic Island - dynamicSpot 1.76 (200104) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +324,7 @@ PDF Extra: сканер и редактор 10.7.2189 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +350,7 @@ CamScanner 6.50.0.2309270000 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +376,7 @@ CCleaner Pro: ПО для очистки 23.21.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +402,7 @@ Death Worm™ Deluxe 2.0.054 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +428,7 @@ Survivalist: invasion PRO v0.0.431 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +454,7 @@ Prince of Persia Shadow&Flame v2.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +480,7 @@ Half-Life 2: Эпизод два v78 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +506,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +532,7 @@ HappyMod 3.0.5c Mod by Igorek72rus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +559,7 @@ Sectograph Pro v5.21_build_175_Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +587,7 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +643,7 @@ Vivaldi for Android 6.2.3110.143 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -587,7 +669,7 @@ Aimp v4.02.1368 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,87 +682,6 @@ AIMP - это легковесный мобильный аудиоплеер п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5ABB309FF5440EE3AAC496BE780BB2C31F13ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431651   (165582) от 15.12.2020
-
-Roblox v2.458.415263 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165582.jpg" />
-</div>
-
-
-###  Подробнее
-
-ROBLOX - Здесь каждый режим противостояния предполагает борьбу с другими игроками. Есть несколько динамических вариаций, включая битву за выживание, командные игры, а также уничтожение ходячих мертвецов.Тип издания: Пиратка (Мод)Релиз состоялся: 3 декабря 2020 г.Разработчик: Roblox CorporationПоддерживаемая ОС: Android 4.4 и вышеЖанр: ПриключенияЯзык интерфейса: Русский есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2664DC82AC439771BE51C282E3D33E82D29ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673525   (165238) от 01.11.2023
-
-Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screenshot Touch – это удобное и простое приложение, которое облегчит вам создание скриншотов и видео с экрана своего смартфона. На многих телефонах нынче существует и встроенная функция создания скриншота, но таких точных и разнообразных настроек, как в Screenshot touch, вы не найдете нигде! Захватывайте любую область экрана, убирайте ненужное, делайте скриншоты (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 26.10.2023Разработчик: Daejeong KimПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516742   (165178) от 12.12.2021
-
-Sticker Maker v0.0.3-20 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте свои стикерпак для WhatsApp. Вы можете использовать мемы или свои фотографии, любая фотография с вашего телефона будет работать. Сделайте стикер для вашей подруги, вашей семьи, ваших друзей в 4 простых шага.
-1. Выберите имя для своего стикерпак
-2. Добавьте стикер в стикерпак, нарежьте их пальцем.
-3. Сохранить стикерпак(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 01.09.2021Разработчик: Viko & CoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5874B6EA118F1CB180273BBF58DA022D8F5376C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

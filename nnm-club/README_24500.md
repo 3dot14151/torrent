@@ -1,26 +1,25 @@
-###  Публикация: 470984   (97287) от 20.03.2012
+###  Публикация: 1769354   (100683) от 28.12.2024
 
-[Wallpapers] HD Wallpapers Pack 2
+Time Fjord - And My Hand Holds The Jug (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 2
-Название: HD Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Right On Track for the Trainwreck (2:55)
+02. When Questionable People Have the Answers (3:36)
+03. Overpoured (I've Had It and I've Had It) (2:49)
+04. Patterning (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38135ED9BB938218C94DD9B060E01F1191A91FD8
+magnet:?xt=urn:btih:0DE0D0769339590C417306B2FCBA26FEF87F0500
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471030   (97286) от 20.03.2012
+###  Публикация: 1769349   (100682) от 28.12.2024
 
-[Wallpapers] Best HD Wallpapers Pack (21.03.12)
+The Washing Machine Cie - Ladies and Gentlemen (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. The Raiders (3:25)
+02. Smoke (4:14)
+03. Yeah-Yeah (3:18)
+04. Body on the Floor (3:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE8360E46310E8B9BA1433536CE0EFEB046AC2A9
+magnet:?xt=urn:btih:3A87A77C4431002D56BEEF41162AB032B2B58DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471028   (97285) от 20.03.2012
+###  Публикация: 1769290   (100681) от 28.12.2024
 
-[Wallpapers] Nature Wallpapers (21.03.12)
+Markus Schulz - Global DJ Broadcast Classics Showcase 20th Edition (2024-12-26) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Push - Universal Nation
+02. Mesh - Purple Haze
+03. Rex Mundi - Backpain
+04. Bart Claessen & Raz Nitzan presents Who.Is - We.Are (Markus Schulz In Search of Sunrise Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F398CC1D2919493682A653306DD499FE3908648
+magnet:?xt=urn:btih:65A30505EA080930FD46B3FFF1F838E5EF3C2A58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,29 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471070   (97284) от 20.03.2012
+###  Публикация: 1769355   (100680) от 28.12.2024
 
-[Wallpapers] HD Wallpapers Pack 5
+Veravey - Blooming Inspiration (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 5
-Название: HD Wallpapers Pack 5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Cinta Kali Ini (4:23)
+02. Take It Easy (4:41)
+03. Worries (5:02)
+04. In My Veins (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
+magnet:?xt=urn:btih:24CEE1724B6F478EAD8DD779D3CFCA6A71182F70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470262   (97282) от 20.03.2012
+###  Публикация: 1769458   (100679) от 28.12.2024
 
-[Wallpapers] Cityscapes HD Wallpapers (18.03.12)
+VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. TP One & D`Arcangel - Jade Eyes Of Asia (Mixed) [05:02]
+02. Mike Van Fabio - Love Of Yesterday (Mixed) [03:45]
+03. Kaselia & N-sKing - Endless Horizon (Mixed) [04:54]
+04. Laucco - Yinghu (Mixed) [04:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
+magnet:?xt=urn:btih:C73C4B1745B5D314744F701065D210C0442DAFD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,29 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471010   (97281) от 20.03.2012
+###  Публикация: 1769346   (100678) от 28.12.2024
 
-[Wallpapers] Nature Pictures №33
+The Mudhounds - The Dirt I’m Used To (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №33
-Название: Nature Pictures №33
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. High Water Blues (2:55)
+02. White Trash Mind (3:08)
+03. Mississippi Mud (2:55)
+04. Corn Liquor (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
+magnet:?xt=urn:btih:615DBBED15049262CDF43AF609187028797CD826
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471009   (97279) от 20.03.2012
+###  Публикация: 1769332   (100677) от 28.12.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (21.03.12)
+Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is Alive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Let It Snow [2:31]
+02. We Three Kings [3:55]
+03. Have Yourself a Merry Little Christmas [4:56]
+04. Sleigh Ride [3:48](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:32:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
+magnet:?xt=urn:btih:A36F87876E4A2937B90914D1249FA34C65C79200
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,34 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467132   (97278) от 20.03.2012
+###  Публикация: 1769198   (100676) от 28.12.2024
 
-Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House>
+Rosemary Clooney - Irving Berlin's White Christmas (1954) 2014, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Erick Decks & DJ Sign feat. Felice - Running 2012 (Original Erick Decks Extended Mix)
-02 - A. Romeo & Plage & Alateya - Summer Night (Dabruck & Klein Remix)
-03 - Moguai - Mpire (Original Mix)
-04 - Nadia Ali, Starkillers & Alex Kenji - Pressure (Alesso remix)
-05 - Yves Larock & Jesus Luz & Liliana Almeida - Running Man (Hard Rock Sofa Remix)
-06 - Hardwell - Cobra (Official Energy Anthem 2012)
-07 - Tommy Trash - Cascade (Original Mix)
-08 - Ce Ce Rogers & Syke 'n' Sugarstarr - I Believe (Max Lean Remix)
-09 - Vitodito & Oza - Kawaii (Dirty Club Mix)
-10 - Neon Hitch - F U Betta (Chuckie Club Remix)(   Читать дальше...   )2012Жанр: Progressive HouseПродолжительность: 01:09:23
+01. White Christmas [3:30]
+02. Mandy [2:39]
+03. Snow [2:43]
+04. Gee, I Wish I Was Back in the Army [2:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
+magnet:?xt=urn:btih:FD18A689A255A660DB4099113824E61B094B2221
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,34 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468054   (97277) от 20.03.2012
+###  Публикация: 1769352   (100675) от 28.12.2024
 
-VA - The Dance Cube XXXX 2CD (2011) [MP3|320 кб/с]<Trance>
+The Wind Blowers - Blues for Rainy Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-CD1 Продолжительность: 01:10:48
-====================================
-01 - Mat Zo - Bipolar (Original Mix)
-02 - Robbie Rivera Feat. Jes - Turn It Around Feat Jes (David Solano & Landis Remix)
-03 - Tigran Oganezov - Kronos (Original Mix)
-04 - Cathy Burton - Reach Out To Me (Chris Schweizer Dub)
-05 - Tigran Oganezov - Brainbug (Original Mix)
-06 - DJ Madwave & Steve Sanders - Nooza (Damian Wasse Remix)
-07 - DJ Munder - Fly Away (Original Mix)
-08 - Solis & Mike Danis - Eleven (Broning Remix)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 02:26:19
+01. Ain't Got No Money (1:56)
+02. Back Door Blues (3:24)
+03. Bad Luck (2:47)
+04. Bad Time Blues (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
+magnet:?xt=urn:btih:D1739C4EDC5F896F18236377706E6CA446806692
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,29 +259,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471016   (97276) от 20.03.2012
+###  Публикация: 1769477   (100674) от 28.12.2024
 
-[Wallpapers] Flower Wallpapers Pack 2
+Газета | Тайны СССР №14 (165) (июль 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Flower Wallpapers Pack 2
-Название: Flower Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
+magnet:?xt=urn:btih:411388D59F803F66B5D2656D99C401237B008FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -292,25 +285,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470623   (97275) от 20.03.2012
+###  Публикация: 1769463   (100673) от 28.12.2024
 
-[Wallpapers] Best HD Wallpapers Pack (19.03.12)
+Военная тайна с Игорем Прокопенко (28.12.2024) WEBRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
+magnet:?xt=urn:btih:059B7730BEA67E30A04713E993FCD198BFE7037A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -318,34 +311,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470678   (97274) от 20.03.2012
+###  Публикация: 1769384   (100672) от 28.12.2024
 
-Overkill - The Electric Age (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
+Пленница / Золотая клетка / Caught (1949) BDRip [H.264]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Come And Get It (6:18)
-02. Electric Rattlesnake (6:20)
-03. Wish You Were Dead (4:19)
-04. Black Daze (3:55)
-05. Save Yourself (3:44)
-06. Drop The Hammer Down (6:25)
-07. 21ST Century Man (4:13)
-08. Old Wounds, New Scars (4:12)
-09. All Over But The Shouting (5:30)
-10. Good Night (5:37)2012Жанр: Thrash MetalПродолжительность: 00:50:32
+По роману Либби Блок... Мечты молодой девушки Леноры Имс сбылись. Она вышла замуж за миллионера Смита Олрига. Однако после свадьбы она понимает, что её муж безумен. Она уходит от мужа и устраивается на работу в больницу в бедном районе. Там она встречает доктора Лэрри Кинаду и влюбляется в него. Но её муж не собирается с этим мириться...Производство: США / Enterprise Productions Inc.Жанр: нуар, драма, мелодрамаРежиссер: Макс ОфюльсАктеры: Джеймс Мэйсон, Барбара Бел Геддес, Роберт Райан, Фрэнк Фергюсон, Курт Буа, Рут Брэйди, Натали Шафер, Арт Смит, Барбара Биллингсли, Ральф БруксПеревод: профессиональный многоголосый (ТРК Петербург (2006))Язык озвучки: русский, английскийСубтитры: нетПродолжительность: 01:28:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
+magnet:?xt=urn:btih:30F99E47D375F9BF93DFB4667951BD8AB84870BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,34 +337,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469652   (97272) от 20.03.2012
+###  Публикация: 1769388   (100671) от 28.12.2024
 
-Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Listening, Swing, Latin>
+Пленница / Золотая клетка / Caught (1949) BDRip [H.264/720p]
 
->>Архив торрентов
->>Архив Музыки
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Boquita pintada
-02. Mujer que te peinas
-03. Bas-Aut
-04. A donde vas?
-05. La Lupita
-06. El loco Igor
-07. El vals del circo
-08. El sonador
-09. Balcarce
-10. Madre querida(   Читать дальше...   )Жанр: Ethnic Jazz, Easy Listening, Swing, LatinПродолжительность: 00:55:55
+По роману Либби Блок... Мечты молодой девушки Леноры Имс сбылись. Она вышла замуж за миллионера Смита Олрига. Однако после свадьбы она понимает, что её муж безумен. Она уходит от мужа и устраивается на работу в больницу в бедном районе. Там она встречает доктора Лэрри Кинаду и влюбляется в него. Но её муж не собирается с этим мириться...Производство: США / Enterprise Productions Inc.Жанр: нуар, драма, мелодрамаРежиссер: Макс ОфюльсАктеры: Джеймс Мэйсон, Барбара Бел Геддес, Роберт Райан, Фрэнк Фергюсон, Курт Буа, Рут Брэйди, Натали Шафер, Арт Смит, Барбара Биллингсли, Ральф БруксПеревод: профессиональный многоголосый (ТРК Петербург (2006))Язык озвучки: русский, английскийСубтитры: нетПродолжительность: 01:28:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2E15F6F4563F55DD8D74854344A64B918B437CF
+magnet:?xt=urn:btih:72C971B82BD0E64DF003C24A4FAD2B18FE16A8CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,29 +363,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471007   (97268) от 20.03.2012
+###  Публикация: 1769415   (100670) от 28.12.2024
 
-[Wallpapers] HD Pictures №2
+QOwnNotes 24.12.7 Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №2
-Название: HD Pictures №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
+magnet:?xt=urn:btih:A60F1DD1F9ED563AAAE76D8B93C2D538538E7371
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +389,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471029   (97267) от 20.03.2012
+###  Публикация: 1769400   (100669) от 28.12.2024
 
-[Wallpapers] Mixed Wallpapers (21.03.12)
+Живая еда с Сергеем Малозёмовым (28.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Холодец помогает сохранить кожу упругой, а кости — крепкими? Заводятся ли в нем опасные бактерии? Безопасно ли покупать магазинный холодец и какой из покупных образцов одобрили бабушки?
+ Какие спектакли с едой устраивают в ресторанах, чтобы впечатлить гостей? И как сделать интересную подачу дома?
+ Правда ли, что шампанское — самый вредный алкоголь?
+ Шоколадная бомбочка: (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:44:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
+magnet:?xt=urn:btih:021188B45826C2FE15C89E0A4892BF68A2F33910
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,29 +418,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471008   (97266) от 20.03.2012
+###  Публикация: 1769444   (100668) от 28.12.2024
 
-[Wallpapers] HD Wallpapers Pack 3
+VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 3
-Название: HD Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. DEEP INJECTION - Unspoken (03:02)
+02. Dj D.A.N.I. & M3SSDI3N3R - Welcome To The Clockwork Show (02:43)
+03. ElektroHerz - Fernglas (R3Wind Remix) (02:46)
+04. Wright & Davids - Darkness Night (02:52)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:27:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
+magnet:?xt=urn:btih:C352CD24CDE52AE0A3C94D8DEDFA237F8ABCBB4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,29 +447,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470987   (97265) от 20.03.2012
+###  Публикация: 1769468   (100667) от 28.12.2024
 
-[Wallpapers] HD Pictures №1
+Вражьи тропы (1935) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Pictures №1
-Название: HD Pictures №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+По мотивам романа И.Шухова "Ненависть".
+Посвящена популярной в то время теме коллективизации и раскулачивания. Сознательная беднота разоблачает кулаков-вредителей и начинает организовывать колхозы. Горе в семье богатея Епифана Окатова: решил глава семейства публично покаяться в "своей неразумной и вредной для советской власти жизни", отречься (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драмаРежиссер: Иван Правов, Ольга ПреображенскаяАктеры: Михаил Нароков, Андрей Абрикосов, Борис Тенин, Эмма Цесарская, Марина Ладынина, Николай Плотников, Хаким Давлетбеков, Пётр Репнин, Александр Громов, Иван БобровСубтитры: отсутствуютПродолжительность: 01:36:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
+magnet:?xt=urn:btih:79D1F3D45AFC69BB525DDEE0334C3A5A224D2307
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,29 +474,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470988   (97264) от 20.03.2012
+###  Публикация: 1769683   (100666) от 29.12.2024
 
-[Wallpapers] Nature Pictures №32
+НХЛ 2024-2025. Питтсбург Пингвинз - Нью-Йорк Айлендерс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №32
-Название: Nature Pictures №32
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+29 декабря 2024, воскресенье. 03:30 МСК. Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: MSGЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+magnet:?xt=urn:btih:69EEA2BA7CA3AA1E34204531EF0B683761CCC805
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,33 +501,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470164   (97263) от 20.03.2012
+###  Публикация: 1769685   (100665) от 29.12.2024
 
-VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+НХЛ 2023-2024. Вашингтон Кэпиталз - Торонто Мэйпл Лифс (28.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Музыки
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Zyce & Flegma - Afterglow (8:41)
-2. Cabal - The sacred Spirit (7:38)
-3. Aquafeel - GloryLand (6:43)
-4. Aqualize - Land of 2 Suns (7:51)
-5. Audioload - Way Out (7:42)
-6. Andromeda - Sensation (Aquafeel RMX) (6:32)
-7. Time in Motion - Colour (8:07)
-8. Progenitor - Typical Human Behaviour (8:18)
-9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+29 декабря 2024, воскресенье. 03:00 МСК. Стадион: Скоушабэнк-Арена (Торонто, Канада), 19 125 зрителей (94% при вместимости 20 270)
+Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Главный судья: Питер Макдугалл (Реджайна, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+magnet:?xt=urn:btih:5536893E203D073336BE7E4F5CB348D549AD9550
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,25 +528,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470712   (97262) от 20.03.2012
+###  Публикация: 1769702   (100664) от 29.12.2024
 
-[Wallpapers] Best HD Wallpapers (20.03.12)
+Mal Waldron & Marion Brown - Much More! (1989) Free Lance [FLAC|Lossless|image + .cue] <Post-Bop>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Soul Mates [9:43]
+02. Someone to Watch over Me [4:58]
+03. All God's Chillun Got Rhythm [3:35]
+04. My Funny Valentine [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
+magnet:?xt=urn:btih:9EAC5058D69E5CA9251721CB7ADC93B1082CB26E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,25 +557,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470715   (97261) от 20.03.2012
+###  Публикация: 1769759   (100663) от 29.12.2024
 
-[Wallpapers] Nature Desktop Wallpapers (20.03.12)
+Lance and Lea - Boots & Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country, Blues, Blues Rock, Singer-Songwriter>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Longneck State Of Mind (2:55)
+02. Cowboys From Texas (3:09)
+03. Neon Dream (3:52)
+04. Heartbreak Hall Of Fame (Lea’s Version) (3:18)(   Читать дальше...   )Жанр: Country, Blues, Blues Rock, Singer-SongwriterПродолжительность: 01:06:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
+magnet:?xt=urn:btih:325DD81CB67F576EF8FDD81FEA34DC90037017BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,29 +586,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 471067   (97259) от 20.03.2012
+###  Публикация: 1769767   (100662) от 29.12.2024
 
-[Wallpapers] HD Wallpapers Pack 4
+Mako - Virtual Blues II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers Pack 4
-Название: HD Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Bench Side (2:23)
+02. Cozy Corner (2:44)
+03. Cruel Shadow (2:34)
+04. Digital Soulmates (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
+magnet:?xt=urn:btih:1618404EF4BBC4C9CB4D5CE408D8AEBA685C470A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,29 +615,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470985   (97258) от 20.03.2012
+###  Публикация: 1769763   (100661) от 29.12.2024
 
-[Wallpapers] Nature Pictures №31
+Mad Dillon's Deputies - Biting Dynamite (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature Pictures №31
-Название: Nature Pictures №31
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Return Of The Dynamite Biters (1:35)
+02. Friendly Fire (4:28)
+03. Creatures Of The Night (4:16)
+04. Underground Shuffle (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:06:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
+magnet:?xt=urn:btih:AD3CF4E65C1344CFBCEC8CFDFE71171C5B591219
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -680,25 +644,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470621   (97256) от 20.03.2012
+###  Публикация: 1769754   (100660) от 29.12.2024
 
-[Wallpapers] Desktop wallpapers (19.03.12)
+Kripton - Fire on My Strings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Digital Dreams (1:10)
+02. Soulful Blues (English version in the style of Blues Rock) (2:54)
+03. Digital Show (2:59)
+04. Delta blues (2:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
+magnet:?xt=urn:btih:08E199C8CF08FDF78FF78D9D4D7D5FFFE11FDAD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,25 +673,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 470709   (97255) от 20.03.2012
+###  Публикация: 1769776   (100659) от 29.12.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
+Mark Bennett Gartman - Crossing of the Roads (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Avenue D Blues (3:31)
+02. The Train (2:43)
+03. Mama I'm Tired (3:01)
+04. Can't Hold Back (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
+magnet:?xt=urn:btih:7789A47D7F268D9A055ADAD33A98A29933AED797
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -732,34 +702,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467137   (97253) от 20.03.2012
+###  Публикация: 1769780   (100658) от 29.12.2024
 
-Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
+Mesquite Cafe - Raven's Cry (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Tommy Vee & Nicola Fasano & Steve Forest & Luca Guerrieri - Tell Me (Meg Nerak Vocal Mix)
-02 - Eurythmics vs. Tonite Only & Nicky Romero - Sweet Gonna Dreams (Relanium Bootleg)
-03 - David Di Sabato - Orbits (Alex Cucciolini Remix)
-04 - Ultra Nate - Save Me (Dj Chus and Abel Ramos Miami Mix)
-05 - Dj Soulstar feat. Wally B - Move (Tune Brothers Remix)
-06 - Tom Geiss & Mark Simmons feat. Polina - Dream On (A.C.K. & Love N Joy Remix)
-07 - Jared Dietch feat. Kelli Sae - You're Not Alone (Gregori Klosman Instrumental Mix)
-08 - Sebastien Drums feat. Mitch Crown - Fly Again (Rob Adans Remix)
-09 - Joey C & Dj Torio & Nikki Kay - Fade Away (Valetto Remix)
-10 - Mitchell Niemeyer - Botox (Nene Dasile Remix)(   Читать дальше...   )2012Жанр: Progressive House/CommertialПродолжительность: 01:04:39
+01. Snakebite Juice (3:05)
+02. Believe (4:39)
+03. Purple Pants (2:49)
+04. I Know How To Run (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CE2EFD7CCBC8A6465C9792EC1556E6171D19814
+magnet:?xt=urn:btih:01E6566BBE96860FD0701C6349A6DFEA94EC5024
 ```
 
 https://mybot314.ru/tekegram_catalog/

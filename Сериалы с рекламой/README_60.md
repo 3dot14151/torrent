@@ -1,3 +1,55 @@
+###  Публикация: 1813535   (6769) от 20.08.2025
+
+Охотники на гринго / Los Gringo Hunters / The Gringo Hunters (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В основе сюжета — статья журналиста Кевина Сиффа, опубликованная в The Washington Post, о деятельности реального элитного подразделения мексиканской полиции, неофициально известного как «Охотники на гринго». Официальное название подразделения — «Группа по международным связям» (International Liaison Unit). Прозвище «Охотники на гринго» — неофициальное, но широко (   Читать дальше...   )Производство: Мексика, США / Imagine Entertainment, Imagine Television, RedrumЖанр: боевик, триллер, драма, криминалРежиссер: Алонсо Альварес, Адриан Грюнберг, Наталия Беристен и др.Актеры: Мануэль Масальва, Арольд Торрес, Эктор Котсифакис, Эндрю Лелэнд Роджерс, Себастьян Роше, Джессика Линдси, Дин Симон, Clayton Conroy, Кэмерон Дай, Dale Carley и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствие 2х рекламных баннеров
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8AC2D717EDB959A8F3C2BBB7CB5D84C00569C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812876   (2126) от 19.09.2025
+
+Вождь войны / Chief of War (2025) WEBRip (сезон 1, серии 1-9 из 9) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются на Гавайских островах в конце XVIII века, когда четыре королевства архипелага находятся в состоянии непрерывных войн. Воин по имени Каиана возвращается домой и осознаёт, что внутренние конфликты лишь ускоряют процесс колонизации Гавайев внешними силами. Чтобы предотвратить потерю независимости и объединить разрозненные народы, Каиана возглавляет (   Читать дальше...   )Производство: США / Chernin Entertainment, Fifth Season, Hard J ProductionsЖанр: история, военный, драмаРежиссер: Брайан Мендоза, Андерс Энгстрем, Джастин Чон и др.Актеры: Джейсон Момоа, Люсиан Бьюкенен, Te Ao o Hinepehinga, Те Кохе Тухака, Маинеи Киминака, Siua Ikale'o, Моусес Гудз, Джеймс Удом, Бенджамин Хотжес, Brandon Finn и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:05:00 серияРеклама: Присутствуют 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E1C0B4C80061FC4AF5356CA5E37112C20F49A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816349   (1241) от 24.09.2025
 
 Список смертников: Тёмный волк / The Terminal List: Dark Wolf (2025) WEBRip (сезон 1, серии 1-7 из 7) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

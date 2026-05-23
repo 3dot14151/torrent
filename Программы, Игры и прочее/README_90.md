@@ -1,3 +1,87 @@
+###  Публикация: 1579278   (232945) от 26.09.2022
+
+Bright - учить английский язык 1.4.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Выучить английский просто!
+Добро пожаловать в Bright: умное и простое приложение для изучения английского языка.
+Bright использует топ-метод интервального повторения и специальную технику тренировки памяти Fast Brain. Благодаря интерактивной форме обучения пользователи запоминают 90% информации.
+Мы подготовили 38 наборов английских слов с разными уровнями сложности: (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 13 сент. 2022 г.Разработчик: EnglishAppsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514AA58CA9763CBF165178A70CEAB7DBDE88409E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579381   (232798) от 27.09.2022
+
+Spelling Master: Spell & Vocab 2.21 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Улучшенная версия с более чем одним миллионом загрузок поддерживает написание слов на английском языке в Великобритании и США.
+Произношение слова, значение и пример использования слова в реальном предложении.
+Фонетика Word также доступна.
+Загрузите сейчас, чтобы выучить и попрактиковаться в новых словах из выбранного списка часто пропущенных английских слов.Тип издания: PremiumРелиз состоялся: 13 сент. 2022 г.Разработчик: SkynetComputingПоддерживаемая ОС: Android 7.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0467790BE49A0C0A2A5BA498C6010C18EC33690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579318   (232712) от 27.09.2022
+
+English Pronouncing Dictionary 5.6.60 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Cambridge English Pronouncing Dictionary (CEPD) представляет собой справочник по современному произношению британского и американского английского. Специально разработан для совершенствования произношения каверзных слов от ‘although’ до ‘zucchini’. Наряду с 230 000 слов, названий и словосочетаний, в нём вы найдёте личные имена, названия компаний, термины из научно-технической (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 12 сент. 2022 г.Разработчик: Cambridge Learning (Cambridge University Press)Поддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C97F74F98EEB1280E1076294CB115C76BFE94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579962   (232323) от 29.09.2022
 
 1.1.1.1: Faster & Safer Intern 6.17 b2698 (ZeroTrust, Unlimited) [Ru]
@@ -6,7 +90,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +117,7 @@ Urban VPN proxy Unblocker 1.0.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +143,7 @@ Erudite v12.10.0 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +169,7 @@ Universal Copy v6.3.3 Мод by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +195,7 @@ InShot v1.950.1411 Mod by Alexey070315 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +221,7 @@ DOG VPN-Unlimited freedom VPN 3.8.8 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +247,7 @@ VPN Russia - VPN сервера в России v1.136 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +273,7 @@ Made - Редактор и коллаж 1.2.14 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -215,7 +299,7 @@ Locus Map 4 v4.10.0 [Ru] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -269,7 +353,7 @@ Mivo - Видеоредактор 3.34.619 Mod by AppModz [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -295,7 +379,7 @@ SMD info v1.39 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -323,7 +407,7 @@ MediBang Paint Pro 25.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -349,7 +433,7 @@ X Icon Changer - Change Icons 4.2.9 Mod by Citrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -375,7 +459,7 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -401,7 +485,7 @@ Dynamic Island 1.3.0 Mod by youarefinished [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -427,7 +511,7 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -453,7 +537,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -479,7 +563,7 @@ Moviebase Premium 4.1.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -505,7 +589,7 @@ DiskDigger Pro 1.0-pro-2023-04-11 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -531,7 +615,7 @@ Always on Edge 8.0.1 Mod by AppModz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -557,7 +641,7 @@ EasyWay - общественный транспорт 6.0.2.44 Lite-Mod by andy_
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -583,7 +667,7 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -594,90 +678,6 @@ AmiHear - Hearing Aid App 2.6 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E37CF9D17B38DF70B0E6011D060CBA63655D49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583569   (228795) от 15.10.2022
-
-Новости Mail.ru v4.6.0 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день рассказываем о том, что происходит в России и мире, про звезд, спорт и котиков. Для вас — узнавайте о событиях своего региона. Информер прогноза погоды и курса валют поможет в решение ежедневных задач.
-Актуально — получайте самые свежие новости.
-Объективно — читайте статьи из разных СМИ в одном приложении.
-Ярко — смотрите видео и фоторепортажи.Тип издания: AdfreeРелиз состоялся: 10.10.2022Разработчик: VK.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77E692CB23046CBE54C339A78659D536604B890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268134   (228763) от 09.12.2018
-
-Триггерные точки v1.5.5 Pro [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение предоставляет информацию о триггерных точках по всему телу. Местонахождение и пальпация триггерной точки, направление боли, лечение и упражнения. Головные боли, судороги ног, покалывание в сердце, тугоподвижность шеи, быстрое наступление усталости в икроножной области ног и многое другое, вызвано по причине триггерных точек. У вас болит спина, а врачи (   Читать дальше...   )Тип издания: Пиратка (активирована Pro версия)Релиз состоялся: 28.11.2018Разработчик: SalutemПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A20354067921F943C3618D7543ACCE0DD0F9680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512958   (228712) от 26.11.2021
-
-Muscle & Motion - Posture 2.2.08 premium [Ru/Multi]
-
->>Программы, Игры и прочее
->>Прочее для мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё один эпохальный продукт от Muscle & Motion, посвящённый в этот раз осанке с отображением материала в том числе снова в 3D видео и схемах.
-Продукт содержит:
-. Видео и теоретическую информацию по нарушениям осанки
-. Видео с описаниями по анатомии растяжки(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 11.10.2020Разработчик: Muscle & MotionПоддерживаемая ОС: Android 4.4 и вышеЯзык интерфейса: Русский, Английский, французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9977AB068AC34AFA69579237C32ABDE1E02402CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

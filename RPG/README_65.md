@@ -1,3 +1,81 @@
+###  Публикация: 500473   (33830) от 18.12.2024
+
+SpiderWeb Games (Avadon, Avernum, Exile, Geneforge, Nethergate, Subterra) (1995-2024) [Ru/En] License [Антология]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SubTerra возвращается с десятками новых объектов и более чем сотней новых уровней! Цель остается - схватить драгоценные камни и направиться к выходу, но с новыми препятствиями, такими как фокусники, клеевые блоки, хрупкие драгоценные камни и обратная гравитация. Познакомьтесь с новыми врагами, такими как голем, пусть ваша собака будет следовать за вами и помогать (   Читать дальше...   )Тип издания: LicenseРазработчик: Crystal ShardЖанр: RPG, IsometricЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4970DCF41F7648E7DCDA3D4ECF75C2632691C6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766658   (33613) от 20.12.2024
+
+Crown Wars: The Black Prince (2024) [Ru/Multi] (Build 16501847/dlc) Repack Let'sРlay [Sacred Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рыцари и разбойники повсюду сеют хаос и разрушения. Но еще большее зло плетет свои интриги, скрываясь в тенях. Бросьте клич из фамильного замка, возглавьте армию и сразитесь с силами зла в этой пошаговой стратегии. В замке, который станет вашей твердыней, вы будете нанимать, снаряжать и обучать солдат, чтобы они защищали королевство от любых угроз. Создавайте отряды (   Читать дальше...   )Тип издания: RepackРазработчик: Artefacts StudioЖанр: Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B01560D888E5B0E15C5E58B49FC875AC2DDAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767480   (33386) от 22.12.2024
+
+Atelier Ryza 3: Alchemist of the End & the Secret Key (2023) [Multi] (1.7.0.0/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Последнее лето, последний секрет... Последнее приключение Ризы вот-вот начнется! История начинается, когда группа островов, называемых островами Карк, появляется недалеко от родного города Ризы - главного героя. Видя в этом угрозу своему дому, Райза и ее друзья исследуют острова и обнаруживают руины с огромными воротами. Как только Райза подходит к воротам, в её (   Читать дальше...   )Тип издания: SceneРазработчик: KOEI TECMO GAMES CO., LTD.Жанр: Приключенческие игры, Казуальные игры, Ролевые игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный), Китайский (традиционный) и другиеЯзык интерфейса: Английский, Китайский (упрощенный), Китайский (традиционный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236F4AC50CD51B549E126C6771F75CF44BC2A0E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767443   (33345) от 22.12.2024
 
 Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Rune [Deluxe Edition]
@@ -6,7 +84,7 @@ Neptunia Game Maker R:Evolution Deluxe Edition (2024) [Multi] (UWP/dlc) Scene Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Diablo II (2): Resurrected (2021) [Ru/En] (1.6.81914) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Iron Oath (2022) [En] (1.0.021) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Legend of Heroes: Trails to Azure (2023) [Multi] (1.1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ V Rising (2024) [Ru/Multi] (1.0.10.2-r83846-b3/dlc) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Pathfinder: Kingmaker (2018) [Ru/Multi] (2.1.7b.fix/dlc) Repack Wanterlude [Impe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.5.0.0/dlc) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Dragon Quest Monsters: The Dark Prince (2024) [Multi] (1.0.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Dungeon Defenders (2011) [Multi] (10.0.0/dlc) Scene TinyIso
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Deathbulge: Battle of the Bands (2023) [En] (1.2.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Sin Slayers: Reign of The 8th (2024) [Ru/Multi] (1.5.0.6/dlc) Repack Let'sРlay 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Caribbean Legend (2024) [Ru/En] (1.3.5/dlc) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Realms of Arkania: Star Trail (Remake) (2017) [Multi] (1.10) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Starcom: Unknown Space (2022) [Ru/Multi] (17344) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Starcom: Unknown Space - это увлекательное сочетание к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFA049055C007B2B65564E828BE16EF346CFF48C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758199   (31960) от 05.01.2025
-
-Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Repack seleZen [Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас ждёт Тедас - красочный мир, полный суровой дикой природы, коварных лабиринтов и сияющих городов, а также жестоких сражений и тайной магии. И теперь два порочных древних бога вырвались из оков вековой тьмы и одержимы желанием уничтожить мир. Тедасу нужен кто-то, на кого можно положиться. И этим новым героем Dragon Age станет Рук. Будьте тем, кем захотите, и играйте, (   Читать дальше...   )Тип издания: RepackРазработчик: BioWareЖанр: Экшены, Приключенческие игры, Ролевые игры, СтратегииЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC3D5C4CFFA9D2BF5120B33CDC034515DC9817C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767089   (31846) от 06.01.2025
-
-Heads Will Roll Reforged (2023) [Ru/En] (2.02b/dlc) Repack Let'sРlay [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heads Will Roll: Reforged позволит игроку примерить на себя роль обычного средневекового солдата, волею судеб оказавшегося в эпицентре легендарной Столетней войны между королями Англии и Франции. Вы начинаете свой путь простым пехотинцем, единственной целью которого является выживание, но при должном уровне мастерстве, хитрости, а также пролитой крови, вы вскоре (   Читать дальше...   )Тип издания: RepackРазработчик: 1917 StudiosЖанр: Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80AA153F8F8164B72C2988B90638CE69725E49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771352   (31787) от 06.01.2025
-
-Coromon (2022) [Ru/Multi] (1.3.6) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coromon – ролевое инди-приключение про приручение животных для их дальнейших поединков между собой, по типу Покемонов. Этот проект использует раритетное пиксельное визуальное оформление как дань уважения игровой индустрии прошлого века. Камера находится под углом для создания изометрического взгляда на окружающий мир, который гораздо более осматривается при таком (   Читать дальше...   )Тип издания: RepackРазработчик: TRAGsoftЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE877AA706CBFEFBCFC1C4DD5B97B9E3D3CCA64
 ```
 
 https://mybot314.ru/tekegram_catalog/

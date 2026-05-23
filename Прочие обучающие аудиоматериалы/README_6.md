@@ -1,3 +1,109 @@
+###  Публикация: 1611552   (1041080) от 12.02.2023
+
+Клиффорд Пиковер | Искусственный интеллект (2022) [MP3, Станислав Концевич]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга рассказывает о том, как человечество постепенно, шаг за шагом шло к созданию искусственного интеллекта и как он стал неотъемлемой частью нашей жизни. Как представляли себе искусственный разум ученые, философы и писатели разных эпох? Какие механизмы создавали наши предки, чтобы облегчить решение умственных задач, и в чем сегодня алгоритмы превосходят нас (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 05:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F657C0E4BEF9AC6D5C785F1A58752BF53C8130EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611783   (1040757) от 13.02.2023
+
+Даршини Дэвид | Доллар всемогущий (2021) [MP3, Алексей Шмелев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вы никогда не задумывались, почему мы можем позволить себе гораздо больше одежды, чем наши деды, но не дом, в котором ее хранить? Почему цена бензина может удвоиться за несколько месяцев, а падает гораздо медленнее? Почему правительства тех или иных стран игнорируют одни ужасные конфликты, происходящие на планете, но не стесняются вмешиваться в другие?
+За всем этим (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 09:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03CFB66A16A32CA3A95E72D8416CC1B7D18C792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612789   (1039881) от 17.02.2023
+
+Хоуп  Джарен | Темная сторона изобилия (2021) [MP3, Мария Ермакова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+За последние 50 лет население планеты удвоилось, производство пищи утроилось, потребление энергии выросло в четыре раза. Это спровоцировало климатические проблемы, большая часть из которых необратимы.
+Геохимик, профессор Университета Осло и автор бестселлера «Девушка из лаборатории» Хоуп Джарен провела основательное исследование. Опираясь на статистику, цифры и факты, (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 05:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA76127B8B77EE09BD3D2CB8AB74C308B8EFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425107   (1039296) от 15.01.2021
+
+Диана Лиф Кристиан | Творим совместную жизнь, или Как создать Экопоселение или Общину Вашей Мечты (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Настольная книга создателей альтернативных поселений и идейных общин, таких как: кохаузинг, эко-поселение, коммуна и т.п. В книге рассмотрен опыт создания многих альтернативных поселений, обобщены правильные практики и рассмотрены допущенные ошибки.Тип издания: аудиокнига своими рукамиЖанр: Кохаузинг, Эко-поселение, Идейная общинаПеревод: Ольховой Дмитрий, Загоруйко Оксана, Болгаре Диана, Ольховой ПавелПродолжительность: 17:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633B64198793DA84012B9BA07C4DBF80D8DA65B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615557   (1037552) от 26.02.2023
 
 Кьелл А. Нордстрем, Пер Шлингман | Urban Express. 15 правил нового мира, в котором главные роли у городов и женщин (2019) [MP3, Даниил Крылов]
@@ -6,7 +112,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -464,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,114 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29B1F5716B16AAC56464662824CCE1A2590EFCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482364   (1007541) от 08.07.2021
-
-Мишель Монтень | Опыты (2009) [MP3, Владимир Сушков]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007541.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Опыты» Мишеля Монтеня (1533-1592) давно стали настольной книгой мудрости для европейского читателя. В отличие от множества других книг, сыгравших свою роль и сошедших со сцены, афоризмы французского мыслителя с момента своего первого появления в печати в 1580 году не знали забвения. Шекспир, Фрэнсис Бэкон, Вольтер, Дени Дидро, Жан-Жак Руссо, Локк, Байрон, Пушкин, (   Читать дальше...   )Жанр: Философские эссеПродолжительность: 65:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD1851D01723086F5AD0B851CC817D908BD4C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349839   (1004067) от 03.01.2020
-
-Сэм Кин | Что скрывает атмосфера (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто задумывается о том, что в нас при каждом вдохе попадает семь триллионов молекул веществ? А что такое воздух? Из чего состоит, какие секреты таит в себе?
-Сэм Кин, молодой популярный автор, уже титулованный в научном мире, раскрывает в своей новой книге все тайны воздуха и и не менее загадочные секреты тех, кто связан с его открытием.
-Наука через остроумную историю (   Читать дальше...   )Жанр: Научно популярноеПеревод: Т. П. МосоловаПродолжительность: 11:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EAE2BF17CFA4A88D8006B79EA07A58DB8A7B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349806   (1004036) от 03.01.2020
-
-Николай Пейчев | Многомерная модель человека (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезные авторские трактовки проблем с чакрами и что надо делать при их слабом функционировании!
-Эта аудиокнига рассказывает о причинах различных заболеваний человека с точки зрения его жизненных установок, модели поведения и образа жизни.
-Николай Пейчев за многие годы практической диагностики заболеваний выработал свою систему корректировки поведения и мышления (   Читать дальше...   )Жанр: МедицинаПродолжительность: 05:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A822DF9DAAE40312D89052ACDE5091060BCAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350973   (1002724) от 08.01.2020
-
-Хоуп Джарен | Девушка из лаборатории (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деревья, как и люди, упорны, изобретательны и способны адаптироваться к любым условиям. Геобиолог Хоуп Джарен, трижды стипендиат программы Фулбрайта, уже более 20 лет изучает деревья, семена, цветки и почву и не перестает удивляться поразительным возможностям растений. Ее книга «Девушка из лаборатории» – автобиография ученого, влюбленного в свою работу. Личная история (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 10:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D9F8AB2C2C6BFF8D72C779EF8768609385AF77
 ```
 
 https://mybot314.ru/tekegram_catalog/

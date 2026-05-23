@@ -1,109 +1,3 @@
-###  Публикация: 1125973   (766759) от 16.04.2017
-
-Детгиз, Детская литература | Библиотека приключений и научной фантастики (273 тома) (1936-2004) [FB2, PDF, DJVU, DOC, RTF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия, издававшаяся Государственным издательством детской литературы (Детгиз), потом - "Детская литература". Первая книга выпущена в 1936 году.
-В кругах собирателей была известна под названием "рамка" («Золотая рамка», «Рамочка», «Золотая библиотека») и пользовалась большим успехом у нескольких поколений любителей фантастики и приключений, чем (   Читать дальше...   )Жанр: Приключения, фантастикаФормат: FB2, PDF, DJVU, DOC, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080750A1FED0194EB75ED3B23E87364D90B6EF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278715   (766740) от 28.01.2019
-
-Братья Гримм | Полное собрание сказок и легенд в одном томе (2015) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые сказки братьев Гримм, чудесные, ироничные, страшные – и знакомые каждому с детства. Популярные и любимые герои: Красная Шапочка, Храбрый портняжка, Бременские музыканты – соседствуют с не столь известными: Белой и Чёрной невестой, Домовыми, Чёртом с тремя золотыми волосками – в книге собрано более двухсот сказок и легенд! Сказочное чтение увлечёт и развлечёт (   Читать дальше...   )Жанр: зарубежные детские книги, сказки, легендыФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD16C2E0E17E34E461BA898FF17EC58419E235F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393893   (766417) от 02.07.2020
-
-Гудрун Паузеванг | Большая книга о разбойнике Грабше (2017) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грабш – потомственный разбойник, которого придумала классик немецкой детской литературы Гудрун Паузеванг. Этот заросший волосами великан наводит ужас на всю Чихенбургскую округу. Он живет в пещере среди болот в Вороновом лесу и добывает себе пропитание и одежду, грабя жителей Чихенау и Чихендорфа. Но все меняется, когда в его пещере оказывается миниатюрная женщина (   Читать дальше...   )Жанр: Повести и рассказы, Приключения для детейПеревод: Екатерина АраловаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F4F0E993F4497588E1B2F5D5C6EC191F5B98BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393882   (766374) от 02.07.2020
-
-Шибел Паундер | Вести глубин (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766374.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести глубин» – первая книга серии «Русалки» английской писательни-цы Шибел Паундер, автора полюбившейся серии «Ведьмочки Гламбурга».
-Русалочки Битти, Мими и Зельда проводят каникулы на суше и вдруг по-лучают таинственную крабограмму. Оказывается, королева русалок Арабел-ла Скар в опасности, а в Тайной Лагуне всюду шныряют пираньи. Подругам предстоит всех спасти! (   Читать дальше...   )Жанр: Фантастика, Приключения для детейПеревод: Надежда КончаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F75D43C949BFA3C6FAA9E79CA1309C0857AEF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393884   (766304) от 02.07.2020
 
 Сара Пеннипакер | Пакс (2018) [EPUB]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -670,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,6 +578,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6CA6AD8B6D316CFA7F874CD6971530FE27655CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382509   (764260) от 03.01.2022
+
+Михаил Пляцковский | Разные пиратские истории [1997] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красочное издание содержит 25 поучительных историй для младшего школьного возраста.Жанр: Детская литература, поучительные рассказыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205E2C78D9D3E2386E78B215447CFE9BEED26444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521684   (764112) от 03.01.2022
+
+Михаил Липскеров | Добрые сказки. Как Волк Телёночку мамой был (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Многие знают мультфильмы, которые были сняты по произведениям Михаила Липскерова: «Волк и Телёнок», «Уважаемый Леший», «Живая игрушка» и другие. Добрые и забавные герои этих историй сразу полюбились зрителю, а сами произведения запомнились чувством юмора, по которому сразу узнаётся автор Михаил Липскеров.
+В книгу вошли четыре сказки: «Как Волк Телёночку мамой был», (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B872334072C4E64D2F5F684963A5E94DE7BEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214531   (764072) от 22.03.2018
+
+Василий Никонов | Сохатёнок (1975) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Повесть о ребятах, которые живут на Забайкальском Севере, о таёжной природе, о том, как дети спасли и вырастили сохатёнка.Жанр: Детская прозаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9D8E446F5F843BD9194662580C7CF19252EE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747332   (763634) от 05.07.2020
+
+Ю. Ермолаев | Салют, пионерия! Рассказы, стихи (1987) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник произведений советских писателей - Анатолия Рыбакова, Аркадия Гайдара, Льва Кассиля, Александра Твардовского, Зои Воскресенской, Агнии Барто, Алексея Мусатова, Николая Добронравова, Самуила Маршака, Сергея Михалкова, Расула Гамзатова, Валентина Берестова и других о жизни пионеров.Жанр: детская художественная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2CB7EF8788D8064B8C6917E5C39EE1F66EC9EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

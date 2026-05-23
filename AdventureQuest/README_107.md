@@ -1,3 +1,107 @@
+###  Публикация: 1797186   (18239) от 15.05.2025
+
+EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Классический хоррор, вдохновленный оригинальными играми на выживание 90-х, EBOLA VILLAGE - это современный взгляд на приключение от первого лица, в котором главная героиня Мария расследует загадочные события, произошедшие в СССР. Мария сидит в своей квартире и смотрит любимый сериал, передача прерывается, и начинается прямой эфир о биологической угрозе.Тип издания: RepackРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E408C588EAB49043ADB4D0C418ED2AB11000DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797314   (18229) от 15.05.2025
+
+Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) Repack Decepticon [Ultimate Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете, находит в снегу тело своей близкой подруги Сафи. Девушку убили. В надежде спасти её Макс пытается вернуться в прошлое, хотя уже много лет не перематывала время. Вместо этого она находит способ перемещаться в параллельный мир, где Сафи жива и ей всё так же грозит опасность. (   Читать дальше...   )Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034E26A7371BF026EAB813251FAFF701526FFD74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797315   (18227) от 15.05.2025
+
+Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) Repack FitGirl [Ultimate Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете, находит в снегу тело своей близкой подруги Сафи. Девушку убили. В надежде спасти её Макс пытается вернуться в прошлое, хотя уже много лет не перематывала время. Вместо этого она находит способ перемещаться в параллельный мир, где Сафи жива и ей всё так же грозит опасность. (   Читать дальше...   )Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B73C7D27B72AE9CE1AA266DBEDDCBF7C443158C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797247   (18214) от 15.05.2025
+
+Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) Repack Other s [Ultimate Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Макс Колфилд, временная преподавательница фотографии в престижном Каледонском университете, находит в снегу тело своей близкой подруги Сафи. Девушку убили. В надежде спасти её Макс пытается вернуться в прошлое, хотя уже много лет не перематывала время. Вместо этого она находит способ перемещаться в параллельный мир, где Сафи жива и ей всё так же грозит опасность. (   Читать дальше...   )Тип издания: RepackРазработчик: Deck Nine GamesЖанр: Приключенческие игрыЯзык озвучки: Английский, Французский, Немецкий, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23060434B21BFAEC82613F8107AA542BE2BB6F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797152   (18208) от 15.05.2025
 
 Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let'sРlay [Ultimate Edition]
@@ -6,7 +110,7 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Sinking City (2019) [Ru/Multi] (ms6 58246 s mc2 4/dlc) License GOG [Remaster
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Outer Wilds (2019) [Ru/Multi] (1.1.16/dlc) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Manivore (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0 HotFix 4) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Beholder: Conductor (2025) [Ru/Multi] (1.0.4.278) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Undying Flower (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Duck Detective: The Ghost of Glamping (2025) [Multi] (2.2.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Deliver At All Costs (2025) [Multi] (250331-143608) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Deliver At All Costs (2025) [Multi] (250331-132937) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Psychoscopy (2022) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Near-Mage (2025) [Ru/Multi] (1.0.0b/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ DreadOut Remastered Collection (2025) [Ru/Multi] (2.2.18f/1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Kathy Rain 2: Soothsayer (2025) [Multi] (1.0.3.4089) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Broken Sword - Shadow of the Templars Reforged (2024) [Ru/Multi] (1.1.8) Repack 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCD3CF7D265B9BD8EB2359955D344D7933BCC31F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794666   (16013) от 01.06.2025
-
-True Fear: Forsaken Souls (2025) [Ru/Multi] (1.1.3:13) Repack Let'sРlay [Part 3]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16013.jpg" />
-</div>
-
-
-###  Подробнее
-
-True Fear: Forsaken Souls Part 3 - заключительная глава трилогии психологического триллера. Благодаря механике point-and-click, сложным головоломкам и кинематографическим вставкам, погрузитесь в мрачную атмосферу ужаса, которая переосмысливает жанр.Тип издания: RepackРазработчик: Goblinz Enterprises LtdЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEB4C0B5A07B17342C0A50CABE665217860A1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800122   (15988) от 01.06.2025
-
-Brassheart (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brassheart - приключенческая игра, действие которой происходит в альтернативных 1920-х годах, вдохновленная дизельпанком и классикой жанра. В этом мире вы играете за Полу, отважного пилота. Она следует за подсказками, которые могут дать ей способ спасти ее отца, похищенного его собственным изобретением, мятежной супермашиной Валькирией.Тип издания: RepackРазработчик: Hexy StudioЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A264437ED3D1A8546549BEDFB98C708BB1EF772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800366   (15895) от 02.06.2025
-
-Pieces of me / Кусочки меня (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психологический триллер и драма в жанре "симулятор ходьбы", который является спин-оффом к игре “September 7th”. 2009 год. Гриша возвращается в город своего детства, чтобы навестить младшую сестру. Но вместо привычной встречи – странная тишина и следы, которые будто хотят, что – то сказать. Знакомые улицы кажутся пустыми, а школа, где он провёл лучшие и (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A1DEFC8686DA7CE0DCC4305D4665D73D036F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800390   (15884) от 02.06.2025
-
-The Danger Zone (2025) [Ru/En] (1.0.1) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15884.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Danger Zone - постапокалиптический 2.5D шутер с видом сбоку и элементами выживания в уникальной стилистике "вечного заката". Добро пожаловать в новый мир. После того как тысячи межконтинентальных ядерных ракет рассекли землю, прошло уже достаточно времени: ушла эпоха вечных и холодных зим. Радиоактивный фон медленно устремился вниз. А люди, десяток (   Читать дальше...   )Тип издания: RepackРазработчик: HaverЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5E5611ED2DD206A695C9A24D459BA3082C3808
 ```
 
 https://mybot314.ru/tekegram_catalog/

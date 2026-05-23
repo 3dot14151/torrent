@@ -1,3 +1,107 @@
+###  Публикация: 1176072   (364697) от 24.10.2017
+
+Welcome to Hanwell (2017) [En] (1.0/Hotfix) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Welcome to Hanwell - хоррор с открытым миром. В нем целый город ночных кошмаров. Когда в городе Хануэлл стали появляться «аномалии», все как одна напоминающие ночные кошмары и грезы психопатов, в городе был создан совет общественной безопасности HCPP, призванный изучать потусторонних монстров и регулировать их взаимодействие с обычными жителями. Некоторое время все (   Читать дальше...   )Тип издания: RepackРазработчик: Nathan SeedhouseЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F010F3DDF7A04ADAEA6684ADB1E1F609754DD00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171908   (364688) от 24.10.2017
+
+Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Страшно даже представить, что кошмары Джонатана могут оказаться явью. Inmates - это игра в жанре психологического ужаса с элементами головоломок. Игроку предстоит выяснить, как Джонатан оказался в тюрьме, и раскрыть тайны скрытые в этих стенах. Джонатан просыпается после кошмаров в тюремной камере, не понимая, как он тут оказался. Все вокруг кажется ему до боли знакомым. (   Читать дальше...   )Тип издания: LicenseРазработчик: Davit AndreasyanЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C607A514D81EFF47E62680E93D5018713C1EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415944   (364517) от 17.10.2020
+
+Wolfenstein II: The New Colossus (2017) [Ru/En] (20181127/dlc) Repack CoD - MW2
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Wolfenstein: The New Colossus — продолжение Wolfenstein: The New Order, в котором вы отправитесь в новое захватывающее приключение. Америка, 1961 год. Убив фашистского генерала Черепа, вы одержали лишь временную победу. Миром продолжают править фашисты.Тип издания: RepackРазработчик: Machine GamesЖанр: Action (Shooter), 3D, 1'st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889E39B156AA9E833DEDA640754F9C676BED60C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328321   (362659) от 30.09.2019
+
+Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augmented Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Deus Ex: Human Revolution - третья часть популярного РПГ проекта, действия которого происходят в мире киберпанка. Главным героем выступает Адам Дженсен, работающий в службе безопасности компании Sarif Industries, которая является одной из лидирующих фирм по производству имплантатов для людей.Тип издания: RepackРазработчик: Eidos Montreal и Nixxes SoftwareЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DFCD09F75A1E7A0CA76907BFE36CCAB7F474B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307454   (362650) от 30.09.2019
 
 Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
@@ -6,7 +110,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Operation Flashpoint: Red River (2011) [Ru] (1.2.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Serious Sam 3: BFE - Deluxe Edition [Ru/Multi 8] (Repack/3.0.3) 2011 l R.G. Reve
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Serious Sam 3: Before First Encounter - Deluxe Edition [Ru/En/Multi9] (Steam-Rip
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) Repack R.G. Механ
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Gods Basement (2018) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Final DOOM (1994) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.0781467/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346179.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Infliction (2018) [Ru/Multi] (3.0) Repack Other s [Extended Cut]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Infliction – сюжетный психологический хоррор от
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4002E950C965C933CB78434C1D91BA2FE5B02DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340493   (339192) от 28.10.2020
-
-Sniper Ghost Warrior Contracts (2019) [Ru/En] (5730292/upd16/dlc) Repack Other s
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попробуйте себя в роли настоящего снайпера на суровых просторах Сибири благодаря новейшей игровой системе на базе контрактов, подстегивающей стратегическое мышление. Выполняйте интересные задания, имеющие множество вариантов прохождения.Тип издания: RepackРазработчик: CI GamesЖанр: Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B16FCB11F3532CC0E1BD4974AEF2AF8A64A7858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180696   (339160) от 04.11.2017
-
-Call of Duty: WWII (2017) [Ru/En] (1.3) SteamRip R.G. Origins [Singleplayer Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty: WWII достоверно покажет Вторую мировую войну, представит игровой процесс нового поколения и предложит три режима: «Кампания», «Сетевая игра» и «Совместная игра». События сюжетной кампании развернутся на европейском театре военных действий, где вас ждет абсолютно новая историяТип издания: SteamRipРазработчик: Sledgehammer Games, Raven SoftwareЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6843334494CD8D745329CE296F91CAA752EDA1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954612   (338834) от 08.11.2015
-
-Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repack R.G. Origami
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blue Estate дарит уникальное погружение в мир мафии Лос-Анджелеса, увлекая бесконечным юмором, оригинальным геймплеем и невероятным весельем! В Blue Estate вы играете за Тони Лучиано, нервного сынка крестного отца итальянской мафии Лос-Анджелеса, и за Кларенса, бывшего морского котика, без гроша в кармане, который стал киллером и твердо вознамерился разгрести кашуТип издания: Lossless RepackРазработчик: HeSawЖанр: Arcade (Shoot'em up) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1C8DD7AE477EF0F0FE94E46DA6AFD7E54BDE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074473   (337328) от 19.11.2016
-
-Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отряд профессиональных бойцов отправляется на разведку к одной из космических станций. После несчастного случая данная станция была полностью эвакуирована очень много лет назад, а защитное поле заблокировало все выходы наружу. Но поступивший оттуда сигнал, заставил командование обеспокоиться. В ходе разведки корабль отряда обстреливают и оставшиеся в живых приходят (   Читать дальше...   )Тип издания: RepackРазработчик: Black Lime StudioЖанр: Action, 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75E481ABDE9FA430EC94FD6F39BE1D3A6053999
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1721957   (57082) от 09.05.2024
+
+Патрик Ленсиони | Пять пороков команды: практика преодоления. Программа для лидеров, менеджеров и модераторов (2023) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Патрик Ленсиони, автор бестселлера «Пять пороков команды», делится техниками и приемами, которые помогут превратить неэффективную команду в слаженную.
+Бизнес-роман Патрика Ленсиони «Пять пороков команды» стал мировым бестселлером. По многочисленным просьбам читателей автор написал практическое руководство, которое поможет воплотить идеи книги в жизнь и создать эффективную (   Читать дальше...   )Жанр: Бизнес-романы Зарубежная деловая литератураПеревод: Павел ШевцовИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658CE96391B17D820C7F2E56DF8BDDD817E44702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722026   (57081) от 09.05.2024
+
+Ларс-Йохан Эге | Happy-happy. Шведская система успешных переговоров без обид и проигравших (2021) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Результат переговоров напрямую зависит от способа ведения беседы. По словам Ларса-Йохана Эге, опытного шведского переговорщика, который работает с отделом по освобождению заложников ФБР, переговоры можно считать успешными только тогда, когда обе стороны удовлетворены и, следовательно, счастливы. В этой книге автор описывает 5 способов для достижения согласия с кем (   Читать дальше...   )Жанр: Переговоры, Саморазвитие / личностный рост, Искусство общенияПеревод: Жанна БорисоваИздательство: Эксмо, БомбораФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170561CA68E890B0EB50BE8BEE79DF2D0391CAFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881046   (57016) от 10.05.2024
+
+Владимир Тараненко | Разоблаченный логотип, или Психогеометрия (2013) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Автор книги «Разоблаченный логотип, или Психогеометрия», знаменитый эксперт по визуальной психодиагностике, физиогномике и графологии Владимир Тараненко, предпринял уникальную попытку проанализировать пространство окружающих нас вещей и выявить воздействие содержащихся в них геометрических форм не на символическом и культурном, а на глубинном психологическом уровне. (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаИздательство: Ника-ЦентрФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888BF044DB6905C3868AF2476CA592BEB6CE74C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722929   (56721) от 13.05.2024
 
 Кэти Кинг | Искусственный интеллект в маркетинге. Как использовать ИИ и быть на шаг впереди (2024) [PDF, EPUB, FB2, FB3, TXT, MOBI, RTF]
@@ -6,7 +85,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +140,7 @@ Marc P. Cosentino | Case in Point 9: Complete Case Interview Preparation (2016) 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +193,7 @@ Kathryn Hennessy (editor) | How Money Works (2017) [PDF] [EN]
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +219,7 @@ A. Damodaran | Narrative and Numbers. The Value of Stories in Business (2017) [E
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,87 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EF615BE1D9DF6882675FB0CC7E5A221DE7FCAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755070   (40507) от 13.10.2024
-
-Б. Проктор, С. Галлахер | Секрет привлечения денег (2023) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боб Проктор более шестидесяти лет занимался изучением законов и парадигм денег. В этой книге он предлагает читателю переосмыслить свои отношения с финансами, обратившись к труду Уоллеса Уоттлза «Наука привлечения денег». Доступным языком автор выражает наиболее сложные для понимания идеи Уоттлза и описывает практические способы применения всех этих идей в жизни.Жанр: деловая литератураПеревод: Е. БакушеваИздательство: Минск: «Попурри»Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB3DE9B2F16AD5A9305AB259DB73EA91BE17146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755061   (40498) от 13.10.2024
-
-В. Игнаткина | Достижения в резюме: 100 примеров (2023) [PDF, EPUB, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40498.jpg" />
-</div>
-
-
-###  Подробнее
-
-По статистике 9 из 10 соискателей, описывая свой профессиональный опыт в резюме, не указывают полученные результаты или, как еще их называют, – достижения. Они обходятся общими фразами, типа «ориентированность на результат», «достижение целей» и т.п., совершенно забывая о том, что именно эта информация выделяет их среди других кандидатов с похожим функционалом. А (   Читать дальше...   )Жанр: справочный материал, обучениеИздательство: СамиздатФормат: PDF, EPUB, DOCXКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0FA44FABC6948C4682AB1B5B519B7B286D3143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755111   (40422) от 14.10.2024
-
-Кристина Бенито | Финансовая осознанность. Как зарабатывать, экономить и приумножать деньги (2023) [FB2, EPUB, MOBI, RTF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли одновременно быть и богатым, и счастливым?
-Деньги должны упрощать нам жизнь, но превращаются в кошмар бессонных ночей. Нам никак не удается вырваться из убийственного колеса трат и сроков выплат. Можно ли это изменить?
-
-Кристина Бенито изучала экономику и работала в Лондоне. Она отлично знает механизмы, движущие финансовым миром, и убеждена, что для эффективного (   Читать дальше...   )Жанр: Бизнес. ЭкономикаИздательство: ПопурриФормат: FB2, EPUB, MOBI, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FDD2647CE4516EB093BA285B0B5A9E4C897D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

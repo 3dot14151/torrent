@@ -1,3 +1,113 @@
+###  Публикация: 1748525   (44020) от 10.09.2024
+
+Наталия Андросова | Сборник вебинаров по архитектурке, строительству и ЖКХ (2022-2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+✅Техническое регулирование в области обеспечения безопасности зданий и сооружений
+✅Область применения и особенности расчета железобетонных конструкций
+✅Физико-механические характеристики и деформативность бетона в железобетонных
+конструкциях(   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 05:08:09Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749674   (43452) от 15.09.2024
+
+George Vondriska | Изготовление ящиков: «ласточкин хвост» и замки для ящиков (2015) WEBRip [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Представьте себе, сколько циклов открытия и закрытия ящик совершает за свою жизнь. Мало того, что люди постоянно тянут и толкают ящики, в большинстве случаев ящики загружены тяжелыми вещами. Особенно в вашей мастерской. Если вы нашли время, чтобы сделать ящик, найдите время, чтобы сделать его правильно — и пройдите этот видеокурс, который поможет вам создать превосходные (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5971816F612AFDC90E12DA082EEBF85B4E5C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482412   (43318) от 17.09.2024
+
+Алексей Земсков | Профессиональный ремонт помещений (2019) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Профессиональный ремонт любой сложности!
+Уроки по всем видам ремонтно-строительных работ!
+Сантехника, электрика, стяжка, штукатурка, гипсокартон, шпаклевка, плитка, обои, покраска.
+(   Читать дальше...   )Жанр: Строительство и ремонтПродолжительность: 12:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9352AFDF1B47ADAD2EE7E912E9F0451D925F23F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751028   (42760) от 22.09.2024
+
+George Vondriska | Основы изготовления мебели (2015) WEBRip [EN, RU / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+При изготовлении столов, стульев и другой мебели в значительной степени используются врезные и шиповые столярные изделия, которые лежат в основе нашего курса "Основы изготовления мебели". Начиная с подбора столярных изделий в соответствии с вашим проектом и заканчивая изготовлением идеально подогнанного соединения, вы познакомитесь с врезными и шиповыми (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D832A5E868ABD01030629866E3885386C7A48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752153   (42083) от 28.09.2024
 
 George Vondriska | Основы изготовления шкафа (2015) WEBRip [EN, RU / EN Sub]
@@ -6,7 +116,7 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +171,7 @@ George Vondriska | Делайте качественные двери (2015) WEB
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +197,7 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +223,7 @@ George Vondriska | Необходимые техники заточки (2015) W
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -226,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -252,7 +362,7 @@ chemelova.design, Кристина Чемелова | Курс по стройк
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -281,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -310,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -339,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -368,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -397,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -426,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -455,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -484,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -510,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -538,7 +648,7 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -565,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -594,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -606,115 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:921DDE02D937250E0B6D0B15C57B42ABCF5AC49D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780013   (27462) от 16.02.2025
-
-Артем Крылов | Проектирование в Revit и Лира-сапр многоэтажного жилого дома с подземным паркингом. Разделы КР, КЖ (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27462.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе вы научитесь проектировать полный раздел КР и КЖ, используя REVIT и ЛИРА-САПР, а также освоите расчет на прогрессирующее обрушение. В процессе обучения вы разберетесь в работе с программами REVIT, ЛИРА-САПР, AutoCAD и САПФИР.
-
-Что вы получите после прохождения курса:Практические навыки от инженеров-практиков.
-Курс создан профессионалами, которые не (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 51:42:32Реклама: Ватермарки на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE88B3E1E65D4B06792E38B3F1134AEE9D1FBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780011   (27421) от 16.02.2025
-
-Алена Спирина, Ольга Пениоза | Все секреты кекса (2020) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безвозвратно прошло то время, когда кексы пекли «на глаз» и «на скорую руку»!
-Современные кондитеры вывели их на уровень, когда кекс стал круче, чем торт, и даже названия стали затейливыми: гато де вояж, тревел кейк, мадлен...
-Мягкие и сочные, воздушные и плотные, наполненные орехами или цукатами. Большие и маленькие, посыпанные сахарной пудрой (   Читать дальше...   )Жанр: ВебинарЯзык озвучки: РусскийПродолжительность: 07:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA80D464DC902283C2E20CC9B0026291B2A6CDB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780642   (27101) от 19.02.2025
-
-Вероника Папкова | Самая вкусная самса с индейкой (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здесь вы найдете все секреты приготовления одной из вариаций самсы с индейкой. Любите такое? Смотрите, готовьте и собирайте комплименты от дегустаторов.Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83B65899841984AB96B1E3E68A87FFD70BCB609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780646   (27080) от 19.02.2025
-
-Анна Грибанова | Домашний квас (2024) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это вкусно. Это полезно. Это увлекательно. Ты можешь почувствовать себя кулинаром и повелителем бактерий в одном флаконе  и наблюдать как в обычной трехлитровой банке зарождается бурная микробиологическая жизнь.Жанр: Обучающее видеоЯзык озвучки: РусскийПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:674A680A490E6C4648CB7E56F9EA224F8AA32481
 ```
 
 https://mybot314.ru/tekegram_catalog/

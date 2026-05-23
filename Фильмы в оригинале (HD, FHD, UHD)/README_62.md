@@ -1,3 +1,83 @@
+###  Публикация: 1727609   (54451) от 03.06.2024
+
+Журнальный столик / La mesita del comedor (2022) WEB-DL [H.264/720р] [ES / RU, EN, ES, Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Хесус и Мария - пара, переживающая трудные времена в отношениях. Тем не менее, они только что стали родителями. Чтобы украсить свою новую жизнь и квартиру, они решают купить новый журнальный столик. Решение, которое изменит всё их существование.Производство: Испания / Alhena Production, Apocalipsis Producciones, La Charito FilmsЖанр: драма, ужасы, комедияРежиссер: Кайе КасасАктеры: Дэвид Парейа, Эстефания Де Лос Сантос, Хосеп Мария Риера, Клаудия Риера, Эдуардо Антунья, Кристина Дилья, Ициар Кастро, Клаудия ФонтПеревод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: Русские, английские, испанскиеПродолжительность: 01:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCEB31DD56B784FEA4D97DF2D55B15FE3946FD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727453   (53890) от 09.06.2024
+
+Пи / Pi (1998) UHD Blu-ray [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit] [EN / EN, SPA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Талантливый математик Макс Коэн в течение многих лет пытается найти и расшифровать универсальный цифровой код, согласно которому изменяются курсы всех биржевых акций.
+По мере приближения к разгадке, мир вокруг Макса превращается в мрачный кошмар: его преследуют могущественные аналитики с Уолл-Стрита и жестокие фанатики из тайной религиозной секты, готовые пойти на (   Читать дальше...   )Производство: США / Harvest Filmworks, Truth and Soul Pictures, Plantain Films, Protozoa PicturesЖанр: ужасы, фантастика, триллер, драма, детективРежиссер: Даррен АронофскиАктеры: Шон Гуллет, Марк Марголис, Бен Шенкман, Памела Харт, Стивен Перлман, Самия Шоаб, Аджай Найду, Кристин Мэй-Энн Лао, Эсфер Лао Нивз, Джоэнн ГордонПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (SDH), испанскиеПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74ABB9754C50C339B890E77EA98F8ACCC37515C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729784   (53528) от 12.06.2024
+
+Любовь юной Нак / Nang Nak (1999) WEB-DL [H.264/1080p] [THAI / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Старинная легенда о любви, которая сильнее смерти. Мак уезжает на войну, оставляя безутешную молодую беременную жену Нак. Нак и ребенок умирают во время родов. Но, когда Мак, оправившись от тяжелого ранения с помощью буддистских монахов, возвращается, его встречают жена и ребенок.
+Он долго не догадывается, что живет с привидениями. Нак понимает, что может прийти (   Читать дальше...   )Производство: Таиланд / Tai EntertainmentЖанр: ужасы, мелодрама, военныйРежиссер: Нонзи НимибутрАктеры: Интира Яренпура, Винай Краибутр, Manit Meekaewjaroen, Pramote Suksatit, Pracha ThawongfiaПеревод: ОтсутствуетЯзык озвучки: тайскийСубтитры: русские (Голованов Алексей), английские (Suganya Pankote)Продолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCD023D0280751A8A8AA093D11D99B477575898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731226   (52804) от 19.06.2024
 
 Томиэ: Перерождение / Tomie: Re-birth (2001) HDTVRip [H.264/720p] [JP / RU, EN Sub]
@@ -6,7 +86,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_41025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB903743674D57A762D7CDDC766491C1645F38EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773209   (31029) от 14.01.2025
-
-Квир / Queer (2024) WEB-DL [H.265/2160p] [4K, Dolby Vision, Profile 5, 10-bit] [En / Ru, En Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31029.jpg" />
-</div>
-
-
-###  Подробнее
-
-1950-е годы. Жизнь Уильяма Ли, мужчины средних лет, влачащего жалкое существование в Южной Америке, меняется после знакомства со студентом Юджином Аллертоном.Производство: Италия, США / The Apartment, Frenesy Film Company, Fremantle, Media North AmericaЖанр: биография, драма, мелодрамаРежиссер: Лука ГуаданьиноАктеры: Дэниэл Крэйг, Даан Де Уит, Джейсон Шварцман, Энрике Сага, Колин Бейтс, Дрю Старки, Симон Риццони, Дрю Дродж, Эриель ШульманПеревод: СубтитрамиЯзык озвучки: АнглийскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 02:16:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38764F3E4007A1EB908A7D55BC0447939603D958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777040   (28691) от 04.02.2025
-
-Богота / Bogota: Majimak gihoeui ttang / Bogota: City of the Lost (2024) WEB-DL [H.264/1080p] [Kor / Ru, Ukr, En, Kor Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек переезжает в Колумбию вместе со своей семьей в поисках лучшей жизни, но в итоге живет, перебиваясь с ноги на ногу. Впоследствии он вопреки всему становится доминирующим на черном рынке Боготы.Производство: Корея Южная / Idioplan, Megabox Plus M, Watermelon Pictures Co., Ltd.Жанр: криминал, драмаРежиссер: Ким Сон-джэАктеры: Сон Джун-ги, Ли Хи-джун, Чо Хён-чхоль, Квон Хэ-хё, Пак Чи-хван, Лим Сон-джэ, Ким Хо-джон, Ким Тхэ-бэкПеревод: ОтсутствуетЯзык озвучки: КорейскийСубтитры: Русские, Украинские, Английские, Корейские (Forced, Full, SDH)Продолжительность: 01:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15796B50E40064A67E672022C9EDA67BBC5EBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783033   (25382) от 08.03.2025
-
-Два к одному / Zwei zu eins / Two to One (2024) BDRip [H.264/720p] [DE / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях... Хальберштадт. Лето 1990 года. Марен, Роберт и Фолькер случайно натыкаются на миллионы старых банкнот ГДР, подлежащих уничтожению. Рискуя, они вывозят деньги и вместе с друзьями и соседями создают систему превращения бесполезных денег в товары. Их план поначалу кажется весёлой игрой, но быстро превращается в поворотный момент (   Читать дальше...   )Производство: Германия, arte, Lichtblick Filmproduktion, Magic Media Production...Жанр: комедия, криминалРежиссер: Натя БрункхорстАктеры: Сандра Хюллер, Макс Римельт, Рональд Церфельд, Урсула Вернер, Петер Курт, Мартин Брамбах, Катрин Уэлиш, Ансельм Хадерер, Лотте Ширин Кейлинг, Роберт ХоллерПеревод: субтитрамиЯзык озвучки: немецкийСубтитры: русские (ndiuf3 - содержат нецензурную брань), немецкиеПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B0BCAE5910A603576616B0DC8CE7C6488A9EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

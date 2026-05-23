@@ -1,3 +1,188 @@
+###  Публикация: 889983   (745696) от 19.04.2015
+
+Microsoft Office 2013 SP1 Professional Plus 15.0.4711.1000 (x64) RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере любого уважающего себя пользователя, который использует ПК не только для развлечений. Эффективные и удобные в использовании средства помогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3952803D931817881325E271B0AC152C1204519F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521988   (744640) от 15.01.2022
+
+Сергий против нечисти (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бывший священник Сергий, отстраненный от служения в церкви, стал охотником за нечистью. В процессе охоты он сталкивается со следователем Екатериной, которой только предстоит познакомиться с миром сверхъестественного. Сергий и Катя становятся командой и вместе начинают борьбу с фольклорными злодеями — Кощеем, Баюном и прочими.Производство: Россия / МТС Медиа, Паник продакшнЖанр: комедия, ужасы, фэнтези, боевикРежиссер: Кирилл КузинАктеры: Роман Маякин, Лукерья Ильяшенко, Ирина Розанова, Дмитрий Куличков, Николай Шрайбер, Ольга Веникова, Михаил Осипов, Ирина Вилкова, Екатерина Фисун, Наталья ТетеноваПродолжительность: ~00:15:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9567BA14BEE12DCB694E85C03F324C3E774B5927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020486   (744417) от 26.05.2016
+
+Time Machine VR (2016) [En] (1.0.0.18931) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Time Machine VR – приключенческая игра, созданная для шлема виртуальной реальности. Проект позволит вам в роли ученого отправиться во времена Юрского периода и встретиться с древними существами, ДНК которых содержат ключ к выживанию людей. При помощи доступного оборудования вам предстоит близко подбираться к существам и сканировать их для получения полезной информации, (   Читать дальше...   )Тип издания: RepackРазработчик: Minority Media Inc.Жанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B6EB1A4773117FA892A7CD6CFC0C4B7971116B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020629   (744414) от 26.05.2016
+
+13 часов: Тайные солдаты Бенгази / 13 Hours: The Secret Soldiers of Benghazi (2016) BDRip [H.264/1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2012 год. Бенгази, Ливия. Группа террористов решает «отпраздновать» события 11 сентября нападением на американское посольство. Шестерке бойцов из элитного спецотряда приказано вмешаться только в крайнем случае. Но когда под угрозой десятки жизней, долг и совесть берут верх над субординацией. И мужественные солдаты без колебаний вступают в бой с яростной группировкой (   Читать дальше...   )Производство: США, 3 Arts Entertainment, Dune Films, Latina PicturesЖанр: Боевик, триллер, драма, военныйРежиссер: Майкл БэйАктеры: Джон Красински, Джеймс Бэдж Дэйл, Пабло Шрайбер, Дэвид Денман, Доминик Фумуса, Макс Мартини, Алексия Бальер, Дэвид Костабайл, Пейман Моаади, Мэтт ЛетчерПеревод: Дублированный (Line)Субтитры: ОтсутствуютПродолжительность: 02:23:39Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27DA86060E1A2D4B0ADE0A1A4C16908A7CCA058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941964   (744410) от 26.05.2016
+
+Симпсоны / The Simpsons (2015) WEB-DLRip [H.264/720p-LQ] (27 сезон, 1-22 серия из 22) JetvisStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм - пародия на американский уклад жизни. Cемейство Симпсонов состоит из пяти членов: папаша Гомер, мать семейства Мардж, их дочери Лиза и Мэгги и несносный подросток Барт.Производство: СШАЖанр: МультсериалРежиссер: Мэтт ГроунингПеревод: Двуголосый закадровый, профессиональныйОзвучка / Автор перевода: JetvisStudioПродолжительность: 22 серии по ~ 00:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5073E3351291CF10B554C32830F6DF20EB23E3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216746   (744350) от 03.04.2018
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.04.01 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3960EB1FB3E3177F7B74F3A3CE12EB7D624240D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217186   (744344) от 03.04.2018
+
+Дмитрий Елисеев | Сайт объявлений на Laravel (2018) PCRec [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс для вас, если Вы:
+- Занимаетесь разработкой на Laravel или планируете его изучить
+- Разрабатываете на других фреймворках, но хотите перенять знания к себе в проект
+- Испытываете сложности с документацией и хотите потренироваться на практике(   Читать дальше...   )Жанр: Laravel, PHP, ПрограммированиеПродолжительность: 68:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA63AF0E2C35B80F6FD6E43638B5D42DCD68D75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396450   (743788) от 17.07.2020
 
 Как идут глобальные часы Вселенной?
@@ -6,7 +191,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_743788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +217,7 @@ Tetris Effect (2019) [Multi] (1.0.6) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +243,7 @@ Adobe Photoshop 2020 21.2.1.265 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +269,7 @@ GoodbyeDPI 0.2.1. Launcher 5.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +327,7 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 01.2022 by OVGorskiy 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +353,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_743099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -246,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_742975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +457,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.3 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +483,7 @@ IT-курсы из «Бауманки» решили еще раз заблок�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_742931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +589,7 @@ Crysis 2 (2010) [Ru/En] (v.1.9) Repack R.G. Games [Maximum Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +667,7 @@ Resident Evil 3 (2020) [Ru/Multi] (build 7599632/dlc) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,191 +678,6 @@ RESIDENT EVIL 3 – полностью обновленный ремейк хо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC1CA949B854F67E1B2B7781FD3CE5735B062385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779401   (741872) от 17.01.2022
-
-Владимир Козин и Игорь Екимов | Сам себе электрик. Блок профи (2013) [unpacked]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите научиться самостоятельно исправлять неполадки в электропроводке, не вызывая электриков? Этот обучающий видеокурс научит Вас этому. Основная задача этого видеокурса – углубиться в технологии и уже оперировать сложными системами.Жанр: Обучающий видеокурсФормат: unpacked
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09B23A58BC7444D1F8854BCCF4361444CAC5648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 394211   (741853) от 14.02.2019
-
-Pink Floyd - Discovery Box, 16 Studio Album (1967-1994) 2011, EMI Music Group, Remaster, BoxSet, 16CD [FLAC (tracks + .cue)|Lossless]<Psychedelic Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышедший 26 сентября 2011 года 16-дисковый бокс Pink Floyd: Discovery представляет собой подборку всех 14 студийных альбомов группы, выпущенных на тот момент (The Endless River вышел 3 года спустя). Все альбомы были заново отремастированы в 2011 году легендарным продюсером Pink Floyd Джеймсом Гатри с использованием оригинальных аналоговых мастер-лент. Все альбомы (   Читать дальше...   )The Piper at the Gates of Dawn (August 1967)
-A Saucerful of Secrets (June 1968)
-More (soundtrack, June 1969)
-Ummagumma (October 1969)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033BFD162E02FD74CC9EBEDCCC49B970A52E6E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282940   (741852) от 14.02.2019
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v19.2 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298ADCDB6608DE21E99773B147D9DA35E7707036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282937   (741850) от 14.02.2019
-
-Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Designer SP3 12.0.6807.5000 RePack by SPecialiST v19.2 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office Enterprise 2007 — самый полный набор программ корпорации Майкрософт, предназначенный для тех, кому необходимы эффективные средства совместной работы и обработки информации, доступные независимо от местонахождения пользователя или состояния сети. Пакет Office Enterprise 2007 вобрал в себя все достоинства пакета Microsoft Office Professional Plus 2007 и дополнен (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F67DBA82D2454C93B0BB88A107F6A937E929533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 816628   (741845) от 14.02.2019
-
-Подшивка журналов | Linux Format №70-244 (2005-2018) [PDF] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format - первый в России ежемесячный журнал на русском языке, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью.Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EDACAA6AF112446210F0B6A77B30E5E7574A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217338   (741783) от 05.04.2018
-
-3 апреля 2018 года исполнилось 45 лет с момента появления сотовой связи
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741783.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 апреля 1973 года инженер Motorola Мартин Купер (на фото ниже) взял в руки телефон Motorola DynaTAC и набрал номер Джоэля Энгеля, начальника исследовательского отдела Bell Laboratories. Между инженерами состоялся первый в истории разговор по сотовой связи. Плоды этого события – вернее, даже достижения – мы пожинаем до сих пор, и вовсе нельзя сказать, что мы этому (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216734   (741606) от 05.04.2018
-
-KMS Tools 01.04.2018 Portable by Ratiborus [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741606.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2578BB8C7EB9DABE299079DE3A1671ABA4AC369
 ```
 
 https://mybot314.ru/tekegram_catalog/

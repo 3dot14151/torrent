@@ -1,3 +1,107 @@
+###  Публикация: 1169520   (788810) от 14.01.2019
+
+Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) Repack R.G. Catalyst
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Прославленная студия-разработчик Arkane Studios представляет Dishonored: Death of the Outsider, очередную самостоятельную главу серии Dishonored, высоко оцененной критиками. Вам снова предстоит роль ассасина со сверхъестественными способностями, на этот раз — печально известной Билли Лерк.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, Stealth, 1st Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2243D3AB74FE5E360293690917E426CBB9954203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511338   (788717) от 21.11.2021
+
+Nerf Legends (2021) [Multi] (0.1) License FAIRLIGHT
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре NERF Legends вы попадете в научно-фантастический мир будущего, где столкнетесь с легионами недружелюбных роботов и устрашающими боссами. Вооружитесь бластерами NERF, созданными по образу и подобию реальных игрушек этой серии, и сражайтесь с ужасающими врагами среди уникальных необычных пейзажей, делая впечатляющие сложные выстрелы. Достаточно ли хорошо вы (   Читать дальше...   )Тип издания: LicenseРазработчик: FUN labs Romania S.R.L.Жанр: FPSЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072A8DA4B47E0ACA560D8B5BA7390A2FBA353800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203123   (788446) от 01.02.2018
+
+The Apartment (2018) [En] (1.0) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Apartment - психологический триллер. Сочетает в себе детективную приключенческую игру от первого лица, психологический ужас и интересные головоломки, связанные с темной и тяжелой историей, где линии между реальностью и кошмаром размываются...Тип издания: LicenseРазработчик: Shattered MirrorЖанр: Action, Adventure, Horror, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B300D44842E8CD4BD101DCD767EB0AD9107983CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203819   (787484) от 03.02.2018
+
+Blue Estate The Game / Viktor Kalvachev's - Blue Estate: The Game (2015) [Ru/Multi] (1.0.637056) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blue Estate дарит уникальное погружение в мир мафии Лос-Анджелеса, увлекая бесконечным юмором, оригинальным геймплеем и невероятным весельем! В Blue Estate вы играете за Тони Лучиано, нервного сынка крестного отца итальянской мафии Лос-Анджелеса, и за Кларенса, бывшего морского котика, без гроша в кармане, который стал киллером и твердо вознамерился разгрести кашуТип издания: RepackРазработчик: HeSawЖанр: Arcade (Shoot'em up), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FF5C5DDDF5EB19982CCA3D9EECCE4F89B8D6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388318   (786624) от 06.06.2020
 
 Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
@@ -6,7 +110,7 @@ Protocol (2018) [Ru/Multi] (1.0) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Roots of Insanity (2017) [Ru/Multi] (1.1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Blackwood Crossing (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Star Wars: Battlefront 2 / Star Wars: Battlefront II (2005) [Multi] (1.1) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Blackwood Crossing (2017) [Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Chernobyl Terrorist Attack (2017) [En] (1.15) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Arma 2: Combined Operations (2010) [Multi] (1.62.95248.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Silent Descent (2018) [En] (1.03) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -345,7 +449,7 @@ Conarium (2017) [Ru/Multi] (1.0.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -397,7 +501,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -423,7 +527,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Borderlands: Trilogy (2009-2014) [Ru/Multi] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Observer / >observer_ (2017) [Ru/Multi] (1.0.0.3) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.9) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Hello Neighbor — игра в жанре хоррор, в которой игр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D219F6AF5D3EEFB0CC4522B02906B1D316C157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208431   (779837) от 22.02.2018
-
-Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior 2, продолжение неординарного шутера от студии Flying Wild Hog, рассказывает о новых злоключениях бывшего корпоративного сёгуна Ло Вана. Превратившись в наемника-одиночку, великий воин борется за жизнь в насквозь прогнившем мире: теперь он должен сокрушить легионы демонов, заполонивших планету, в чем ему поможет огромный арсенал пистолетов, мечей, магических (   Читать дальше...   )Тип издания: LicenseРазработчик: Flying Wild HogЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF70DAF46B6DDC3257296DD3AE4D0826FFCA24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208696   (779697) от 23.02.2018
-
-Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие триллера Alien: Isolation разворачивается спустя пятнадцать лет после событий оригинальной кинокартины Ридли Скотта «Чужой». И теперь уже дочери Эллен Рипли, Аманде, предстоит столкнуться с ужасом из космических глубин в попытке выяснить всю правду об исчезновении матери. В роли Аманды вы повстречаетесь с ослепленными паникой, доведенными до крайней степени (   Читать дальше...   )Тип издания: RepackРазработчик: The Creative Assembly, Feral InteractiveЖанр: Action (Survival horror), 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAA0DD627EF731A0F543808A78460A82D2D0D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209485   (779167) от 27.02.2018
-
-Hunt Down The Freeman (2018) [En] (1.0/upd1) Repack =nemos=
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Valve дала «зелёный свет» в Steam фанатскому спин-оффу Half-Life, под названием Hunt Down The Freeman. Игра, выросшая из популярной в узких кругах любительской модификации, может похвастаться нестандартным геймплеем и полноценным сюжетом, в котором геймерам предлагается примерить на себя роль члена военного спецподразделенияТип издания: RepackРазработчик: Royal Rudius EntertainmentЖанр: Action (Shooter), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812DAB6C106A137EB5F7C70514CEC4AF1E09A259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210138   (778890) от 01.03.2018
-
-Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/Multi] (1.8/dlc) SteamRip R.G. Origins [Season Pass Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778890.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом новейшем военном шутере вы отправитесь в тыл врага. Вы станете американским снайпером, заброшенным в Грузию вблизи границы с Россией. Вы сами сможете выбирать способы выполнения заданий в открытом мире, который не прощает ошибок. Отправляйтесь во вражеский тыл и расширьте возможности Sniper Ghost Warrior 3 вместе с сезонным пропуском.Тип издания: SteamRipРазработчик: CI GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Французский, Немецкий, ПольскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA9EE24ECE99324C5155076C84E7F6CECF7A3EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

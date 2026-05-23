@@ -1,3 +1,160 @@
+###  Публикация: 1823729   (125878) от 12.10.2025
+
+Долгая прогулка / The Long Walk (2025) WEB-DLRip [H.264/1080p] [Line, AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В стране проводится ежегодное соревнование «Долгая прогулка», в котором участвуют сто молодых людей. Они должны идти со скоростью выше трёх миль в час, после трёх нарушений участник выбывает. Главный приз - крупная сумма и исполнение всех желаний до конца жизни.Производство: США / Lionsgate, Manitoba Film and Video Tax Credit Program, Media Capital TechnologiesЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Тут Ньюот, Чарли Пламмер, Бен Ван,Джордан Гонсалес, Джошуа Оджик, Марк Хэмилл, Роман Гриффин ДэвисПеревод: Дублированный (Line)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:54Реклама: Присутствует баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A68B9950BB16A6DA7527BF7463608D507F4869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823393   (125781) от 11.10.2025
+
+Карамело / Caramelo (2025) WEBRip [DVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Целеустремлённый шеф-повар Педро вот-вот воплотит в жизнь свою мечту об управлении рестораном, но неожиданно поставленный диагноз переворачивает всё с ног на голову. Вместе с дружелюбной дворнягой он отправляется в трогательное путешествие, чтобы заново открыть себя, найти смысл жизни и вдохновение в настоящем.Производство: Бразилия / Migdal FilmesЖанр: драма, комедия, семейныйРежиссер: Диего ФрейтасАктеры: Рафаэль Витти, Каролина Феррас, Ademara, Кристина Перейра, Paola Carosella, Kelzy Ecard, Арианне Ботэльо, Noemia Oliveira, Оливия Араужо, Wes Machado и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:42Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C46FC720D9E64DA6ABFA358CEA20966A6CEA197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821992   (94759) от 04.10.2025
+
+Школьный автобус / The Lost Bus (2025) WEBRip [DVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает реальную историю, произошедшую в 2018 году во время самого разрушительного и смертоносного лесного пожара в истории Калифорнии. Водитель школьного автобуса Кевин Маккей и учительница Мэри Людвиг героически спасают учеников, вывозя их из горящего города Парадайс.
+«Школьный автобус» (2025) — драматический триллер от обладателя BAFTA и «Золотого льва» (   Читать дальше...   )Производство: США / Apple Original Films, Blumhouse Productions, Comet PicturesЖанр: триллер, драмаРежиссер: Пол ГринграссАктеры: Мэттью Макконахи, Америка Феррера, Юл Васкес, Эшли Эткинсон, Кимберли Флорес, Levi McConaughey, Кэй Макконахи, John Messina, Кейт Уортон, Дэнни Маккарти и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:10:25Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92B91BD22E96DDD3D1EAED59CD280B4D89177AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755798   (40019) от 18.10.2024
+
+Братья / Brothers (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Один из двух братьев, отсидевший в тюрьме за совершенное ими ограбление, уговаривает второго, пытающегося начать законопослушную жизнь, последний раз пойти на дело, чтобы избавиться от терроризирующего его продажного копа.Производство: США / Brolin ProductionsEstuary FilmsLegendary EntertainmentЖанр: боевик, комедияРежиссер: Макс БарбаковАктеры: Джош Бролин, Питер Динклэйдж, Мариса Томей, Брендан Фрейзер, Гленн Клоуз, Девин Далтон, Тейлор Пейдж, Джошуа Микель, Jonathan Aidan Cockrell, Уильям ТокарскиПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8820FAAF8E0DBC4B3EA093E14DCECD50F3720D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755801   (39994) от 18.10.2024
+
+Братья / Brothers (2024) WEB-DLRip [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Один из двух братьев, отсидевший в тюрьме за совершенное ими ограбление, уговаривает второго, пытающегося начать законопослушную жизнь, последний раз пойти на дело, чтобы избавиться от терроризирующего его продажного копа.Производство: США / Brolin ProductionsEstuary FilmsLegendary EntertainmentЖанр: боевик, комедияРежиссер: Макс БарбаковАктеры: Джош Бролин, Питер Динклэйдж, Мариса Томей, Брендан Фрейзер, Гленн Клоуз, Девин Далтон, Тейлор Пейдж, Джошуа Микель, Jonathan Aidan Cockrell, Уильям ТокарскиПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:30:16Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E104CC948A7CEB4E7B250E8D066973E7B18EE893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756006   (39902) от 19.10.2024
+
+Вторжение в правительство / The Whip (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Девушка, ухаживающая за своей сестрой-инвалидом, замышляет дерзкое ограбление в здании парламента, чтобы помешать разрушительным реформам социального обеспечения, известным как "Кредит независимости"Производство: Великобритания / WorkbusЖанр: триллер, драмаРежиссер: Christopher PresswellАктеры: Шиан Дэнован, Гала Уэссон, Том Найт, Daniel Davids, Рэй Буллок мл., Meg Fozzard, Мэй Каннингэм, Эйслинн Де'Ат, Rachel Dobell, Claire De BoerПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223A336ACBDEECDB5F6BD8CF8D4B1C2B8A062ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756004   (39895) от 19.10.2024
 
 Голубая пещера / Mavi Magara / The Blue Cave (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
@@ -6,7 +163,7 @@
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,162 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A22EBA4AA098698D318CC9F6A7CF564FD96A14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758330   (38546) от 02.11.2024
-
-Дверь в подвал / Cellar Door (2024) WEB-DLRip [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремясь начать жизнь с чистого листа после выкидыша, супружеская пара получает в подарок дом своей мечты с одной оговоркой - ни при каких обстоятельствах нельзя открывать дверь подвала.Производство: США / Culmination Productions, Practical Pictures, Cosmic Arena ProductionsЖанр: триллерРежиссер: Вон СтайнАктеры: Скотт Спидман, Джордана Брюстер, Лоренс Фишбёрн, Кэти О’Грэйди, Крис Коннер, Рэнди Шульман, Jenny Tien, Zach Feiner, Naiya Amilcar, Jesaar LandavasoПеревод: Многоголосый любительский (@MUZOBOZ@)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:38:29Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813D83FD6AC620376F415C564EA5348A3C70F9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758350   (38527) от 02.11.2024
-
-Свобода / Libre / Freedom (2024) WEB-DLRip [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленная реальными событиями история Бруно Сулака, настоящего Арсена Люпена 20-го века.Производство: Франция / Pitchipoï ProductionsЖанр: боевик, триллер, мелодрама, биографияРежиссер: Мелани ЛоранАктеры: Лукас Браво, Мелани Лоран, Иван Атталь, Радивойе Буквич, Давид Айала, Слиман Дази, Jesse Guttridge, Léa Luce Busato, Simon Royer, Стив ТьеншоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:20Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C1684061C69A39DDD4DAB53D5B7817A422B909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758342   (38524) от 02.11.2024
-
-Тёмная страна / Morkeland / Kingmaker (2024) WEB-DLRip [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ульрик Торп когда-то был бесстрашным журналистом-следователем, а сейчас страдает от кризиса среднего возраста и не может найти работу. Он оказывается втянут в новый политический заговор.Производство: Дания, Швеция / Meta Film, Meta Film Stockholm, Film i VästЖанр: триллер,  драмаРежиссер: Миккел СерупАктеры: Андерс В. Бертельсен, Сара Фанта Траоре, Mohamed Djeziri, Jan Tjerrild, Томас Гулдберг Мадсен, Cecilie Beck, Лене Мария Кристенсен, Шарлотта Мунк, Patrick A. Hansen, Mathilde Arcel F.Перевод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:10Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A504E45424C5CA5DA195D5254F21F2958DAC7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758348   (38522) от 02.11.2024
-
-Свобода / Libre / Freedom (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленная реальными событиями история Бруно Сулака, настоящего Арсена Люпена 20-го века.Производство: Франция / Pitchipoï ProductionsЖанр: боевик, триллер, мелодрама, биографияРежиссер: Мелани ЛоранАктеры: Лукас Браво, Мелани Лоран, Иван Атталь, Радивойе Буквич, Давид Айала, Слиман Дази, Jesse Guttridge, Léa Luce Busato, Simon Royer, Стив ТьеншоПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:51:20Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F844C7C9021B631A9F6DDDA7AAC6F40C18674F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752504   (38518) от 02.11.2024
-
-Последствия. Мост в огне / Aftermath (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернувшийся с войны ветеран, страдающий посттравматическим стрессовым расстройством, вместе со своей сестрой-подростком оказывается в ловушке на бостонском Мемориальном мосту Тобина, когда группа бывших военных-революционеров, оснащенная мощным оружием, берет всех в заложники.Производство: США / Voltage PicturesЖанр: боевик, триллерРежиссер: Патрик ЛюссьеАктеры: Ник Апостолидес, Джефф Боффар, Томас Броган, Кевин Чэпмен, Джошуа Вулф Коулмен, Mark Dancewicz, Jared Frenke, Хайди Гарза, Мэйсон Гудинг, Bhanu GopalПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:19Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C40CCB6BE33DFDC6062CC936D6B8F18024A7AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758341   (38517) от 02.11.2024
-
-Тёмная страна / Morkeland / Kingmaker (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ульрик Торп когда-то был бесстрашным журналистом-следователем, а сейчас страдает от кризиса среднего возраста и не может найти работу. Он оказывается втянут в новый политический заговор.Производство: Дания, Швеция / Meta Film, Meta Film Stockholm, Film i VästЖанр: триллер,  драмаРежиссер: Миккел СерупАктеры: Андерс В. Бертельсен, Сара Фанта Траоре, Mohamed Djeziri, Jan Tjerrild, Томас Гулдберг Мадсен, Cecilie Beck, Лене Мария Кристенсен, Шарлотта Мунк, Patrick A. Hansen, Mathilde Arcel F.Перевод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:40:10Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83AD68FAEC187FC8C497F6BFD1D1A082AA18B9CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

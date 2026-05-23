@@ -1,3 +1,109 @@
+###  Публикация: 613567   (982532) от 04.02.2013
+
+А.В.Митрофанов | Малогабаритный цветной телевизор класса IV (1982) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Описана модель малогабаритного полупроводниково-интегрального цветного телевизора класса IV на кинескопе, имеющем линейчатую структуру люминофорного покрытия экрана, теневую маску щелевого типа и электронные прожекторы, расположенные в одной горизонтальной плоскости. Рассмотрены особенности схемы и конструкции, методы регулировки основных блоков, приводятся способы (   Читать дальше...   )Жанр: Техническая литература, Радиоэлектроника и TVФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D840D455A553871BB8C797CCDB919D400C6C7A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355639   (982204) от 27.01.2020
+
+А.С. Сигов (ред.) | Основы конструирования и технологии производства радиоэлектронных средств. Ионно-плазменные технологии (2019) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются технологические процессы в производстве элементов и устройств радиоэлектронной аппаратуры (РЭА) — электронных проборов, полупроводниковых и гибридных микросхем, микроэлектромеханических систем, антенных устройств, функциональных и защитных покрытий и других, где в качестве основного инструмента используются ионно-плазменные потоки и пучки (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72BE0E372E7BC5849E4589A834D33A5E725143CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614206   (981140) от 05.02.2013
+
+А.С. Копылов и др. | Водоподготовка в энергетике [2006] [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены современные методы обработки воды, очистки конденсатов и обезвреживания сточных вод на электростанциях. Описаны устройства, принципы действия, способы расчёта и оптимизации основных установок, включенных в схемы предочисток, ионитных, мембранных и термических водоподготовок, даны рекомендации по их эксплуатации. Отражены наиболее значительные достижения в области водоподготовки.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1813458C0EFBB3C8042CAF01AB4490CCCE6E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413831   (978582) от 07.02.2013
+
+Б.А. Тыркин | Монтаж холодильных установок [1986] [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В данной книге описано современное оборудование холодильных установок, рассмотрены принципы работы холодильных машин. Даны основные сведения по монтажу компрессоров, насосов, аппаратов, трубопроводов и изотермических резервуаров, а также по такелажным работам.
+Специальная глава посвящена правилам техники безопасности при монтаже технологического оборудования.
+Для рабочих, бригадиров и мастеров, занятых монтажом холодильных установок.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93CBC1A363586F58EE8EBF481821E16DE46C46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 437286   (978551) от 16.01.2012
 
 Гельмут Киппхан | Энциклопедия по печатным средствам информации. Технологии и способы производства [2003] [PDF]
@@ -6,7 +112,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -434,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -576,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DC48380D532D64CED2D1F9BB0736AD2F52D07E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360156   (961779) от 14.02.2020
-
-А.П. Цой и др. | Монтаж, эксплуатация и ремонт холодильного оборудования (2018) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие составлено в соответствии с учебным планом по специальности «Холодильно-компрессорные машины и установки», содержит расширенное описание монтажа оборудования холодильных установок. Разделы пособия посвящены описанию организации монтажных работ, фундаментов для холодильного оборудования, монтажа холодильных установок малой производительности и компрессоров, (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279531772D7B8CEAAA511680281145981F3B85DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978654   (960870) от 25.01.2016
-
-В.П. Дьяконов | Сверхскоростная твердотельная электроника [2 тома] (2013) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960870.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом томе описана элементная база твердотельных электронных устройств общего назначения нано- и пикосекундного диапазона времен - от туннельных и диодов с накоплением заряда, биполярных, полевых и лавинных транзисторов до новых S-диодов, лавинных обострителей, дрейфовых диодов с резким восстановлением, SOS-диодов и интегральных микросхем.
-Во втором томе описаны (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF99AFC576948D3D459F026E5120C691C323380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978738   (960599) от 25.01.2016
-
-Марк Е. Хернитер | Электронное моделирование в Multisim (2010) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой подробное руководство по моделированию электрических и электронных схем в программе Multisim компании Electronics Workbench. В ней на примерах из области электротехники и электроники демонстрируется методика построения схем и проведения различных типов анализа в программе.При описании методик приводится вид экрана компьютера после проведения (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3C61A43315881A6D0B4E84C856E562860A4F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979364   (959689) от 26.01.2016
-
-В.П. Бадялик | Основы телевизионного вещания со спутников (2004) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены принципы построения систем для приема телевизионного вещания через спутники-ретрансляторы. Даны сведения об антеннах различных типов, первичных облучателях, поляризаторах электромагнитных волн, малошумящих усилителях сигналов СВЧ, частотных преобразователях (конвертерах). Рассмотрены факторы, оказывающие влияние на качество приема и способы снижения помех.Жанр: ТелевидениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93373D29058B684E190D5D07CF8FA1FBC676FDB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

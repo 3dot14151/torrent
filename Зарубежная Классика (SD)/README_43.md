@@ -1,3 +1,109 @@
+###  Публикация: 1524115   (726489) от 13.02.2022
+
+Майор Данди / Major Dundee (1964) BDRip [H.264] [Director's Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бесстрашный офицер ведет разношерстный отряд кавалеристов через мексиканскую границу, преследуя индейцев племени апачи, чтобы спасти трех похищенных белых детей и отомстить за резню, устроенную этими индейцами.Производство: США / Jerry Bresler ProductionsЖанр: Вестерн, БоевикРежиссер: Сэм ПекинпаАктеры: Чарлтон Хестон, Ричард Харрис, Джим Хаттон, Джеймс Коберн, Майкл Андерсон мл., Зента Бергер, Марио Адорф, Брок Питерс, Уоррен Оутс, Бен ДжонсонПеревод: Многоголосый профессиональный, Первый каналСубтитры: АнглийскиеПродолжительность: 02:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274FDF5BDD456BE5A9CC1A529FC533904DBCE6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787797   (726317) от 25.05.2014
+
+Жил-был полицейский / Il tait une fois un flic... (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Комиссар Кампана (по легенде — брат недавно убитого мафиози) отправляется в Ниццу со спецзаданием — найти и обезвредить боссов наркокартеля. Кампана — мрачный крутой мужик, привыкший решать все вопросы кулаком и пистолетом, не любящий женщин и детей, мешающих работе.
+
+Однако на этот раз руководство решило осложнить ему жизнь — вместе со своей напарницей, очаровательной (   Читать дальше...   )Жанр: Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Мишель Константен / Michel Constantin, Микаэль Лонсдаль / Michael Lonsdale, Даниэль Ивернель / Daniel Ivernel, Мирей Дарк / Mireille Darc, Венантино Венантини / Venantino Venantini, Робер Дальбан / Robert DalbanПеревод: Многоголосый закадровыйПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753EEBB91C0F1076AD1D5CA48994B4173FD829DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128518   (726273) от 26.04.2017
+
+Река плохого человека / El hombre de Rio Malo (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Американская революция….. но Кингу с его бандой на это наплевать — они по-прежнему продолжают грабить банки. И вдруг выясняется, что у некоего мистера Монтеро есть чек на миллион долларов, и этот чек оказывается нужен не только Кингу, но и другим бандюгам….Производство: Испания, Италия, Франция / International Apollo Films, Les Productions Jacques Roitfeld, Zurbano FilmsЖанр: Комедия, ВестернРежиссер: Эухенио МартинАктеры: Ли Ван Клиф, Джеймс Мейсон, Джина Лоллобриджида, Симон Андреу, Диана Лорис, Джанни Гарко, Альдо Самбрель, Джесс Хан, Даниэль Мартин, Луис РивераПеревод: Авторский (С.Визгунов)Субтитры: ОтсутствуютПродолжительность: 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA847175992B8283C568F78E709D73B625BF1ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019272   (726171) от 04.06.2016
+
+С тобой на острове / On an Island with You (1948) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На островах Тихого океана идут съемки фильма с кинозвездой Розалиндой Реннолдс и ее женихом Рикардо Монтезом в главных ролях. В качестве консультанта приглашают лейтенанта ВМФ Лоуренса Кингсли. Оказывается, что лейтенант давно влюблен в актрису и готов на все ради танца с ней, даже на угон самолета с Розалиндой на борту...Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Ричард ТорпАктеры: Эстер Уильямс, Питер Лоуфорд, Рикардо Монтальбан, Джимми Дуранте, Сид Черисс, Ксавьер Кугат, Леон Эймс, Катрин Бомонт, Дик СиммонсПеревод: Одноголосый закадровый (Игорь Клушин «Хромолка»)Язык субтитров: Русский (Forced, Full), Английский (Full)Продолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5B61165C677E3F29E1D4BFF72CAD8278A0F71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019155   (726028) от 04.06.2016
 
 Прекрасная купальщица / Bathing Beauty (1944) DVDRip [H.264] [АVO]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_719035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91EEE0599EA5DCAB8AFCDD055239000A9B1148FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285479   (716436) от 28.02.2019
-
-Тигр / Il tigre (1967) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716436.jpg" />
-</div>
-
-
-###  Подробнее
-
-45-летний инженер Франческо Винчецини имеет все, что нужно для счастья — престижную работу, красавицу жену, двоих детей. Рождение внука не обрадовало, а только заставило задуматься о возрасте. Случайное знакомство с напористой девушкой Каролиной немного развеяло Франческо, но теперь предстоит выбор — остаться с женой или все бросить и уехать с Каролиной.Производство: Италия / Fair FilmЖанр: Драма, КомедияРежиссер: Дино РизиАктеры: Витторио Гассман, Энн-Маргрет, Элинор Паркер, Фиоренцо Фиорентини, Антонелла Стени, Луиджи Вануччи, Катерина Боратто, Жак Эрлен, Элеонора Браун, Нино СегуриниПеревод: Многоголосый закадровый (СВ "Дубль" по заказу ВГТРК)Субтитры: ОтсутствуютПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B38CC28DD7911AD0DDC9FD90F566F378D0B1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532201   (716392) от 18.02.2022
-
-Новый кинотеатр «Парадизо» / Nuovo Cinema Paradiso (1988) BDRip [H.264] [AVO] [Director's Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сальваторе Ди Вита, ставший известным режиссёром, однажды поздно вечером, вернувшись домой, узнаёт от своей подруги, что звонила его мать и сообщила о смерти некоего Альфредо. Сальваторе возвращается в прошлое, к своему детству и юности... События фильма начинаются сразу после Второй мировой войны в провинциальном городке Джанкалдо на Сицилии. 6-летний Сальваторе (   Читать дальше...   )Производство: Франция, Италия, Cristaldifilm, Les Films Ariane, Rai Tre Radiotelevisione Italiana, TF1 Films Production, Forum PictureЖанр: драма, мелодрамаРежиссер: Джузеппе ТорнатореАктеры: Филипп Нуаре, Сальваторе Кашо, Марко Леонарди, Жак Перрен, Антонелла Аттили, Энцо Каннавале, Иза Даниэли, Лео Гульотта, Пупелла Маджио, Аньезе НаноПеревод: авторские (Юрий Сербин; Роман Янкелевич)Субтитры: русские, английскиеПродолжительность: 02:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEA22173D6641106FD1303008BDA91B8B6C76CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528621   (716169) от 18.02.2022
-
-Чужой / Alien (1979) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716169.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем возвращающийся на Землю грузовой космический корабль перехватывает исходящий с неизвестной планеты неопознанный сигнал. Экипаж, в соответствии с основными инструкциями, обязан найти и исследовать источник сигнала. Оказавшись на планете, астронавты повсюду обнаруживают неопознанные предметы, по виду напоминающие гигантские коконы.Производство: Великобритания, СШАЖанр: ужасы, фантастика, триллерРежиссер: Ридли СкоттАктеры: Сигурни Уивер, Том Скерритт, Иэн Холм, Джон Хёрт, Гарри Дин Стэнтон, Вероника Картрайт, Яфет Котто, Боладжи Бадеджо, Хелен Хортон, Эдди ПауэллПеревод: Одноголосый АвторскийСубтитры: отсутствуютПродолжительность: 02:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C80F1F1C255351E1B866AEFB941DA8B0E21142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021996   (715634) от 09.06.2016
-
-Остров приключений / Mysterious Island (1961) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько северян спаслись из плена южан на воздушном шаре и попали на необитаемый остров, оказавшийся таинственным — неизвестный доброжелатель постоянно оказывал помощь «робинзонам».Производство: Великобритания, США / Ameran Films Ltd., Columbia Pictures CorporationЖанр: Фантастика, Фэнтези, Приключения, СемейныйРежиссер: Сай ЭндфилдАктеры: Майкл Крэйг, Джоан Гринвуд, Майкл Каллэн, Гэри Меррил, Херберт Лом, Бет Роган, Перси Херберт, Дэн Джексон, Гарри МонтиПеревод: Многоголосый закадровый (DVD Магия)Язык субтитров: Русский, английскийПродолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB3755330A0C8DFDEBA54B864CB9AB3C20C36D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

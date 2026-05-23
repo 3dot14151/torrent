@@ -1,3 +1,110 @@
+###  Публикация: 801138   (636389) от 01.07.2014
+
+Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И всё-таки мир прекрасен [2014, TV, 12 эп.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет вращается вокруг Нике – целеустремлённой принцессы Дождливого Герцогства, обладающей загадочной силой: она может управлять дождём. Из-за проигрыша старшим сёстрам в «Камень, ножницы, бумага» Нике вынуждена выйти замуж за правителя Солнечного Королевства Ливиуса Первого, которого она никогда даже не видела. Всего за три года этот самый Ливиус (Ливи для краткости) завоевал целый мир, за что и получил прозвище «Ужасный Король». Однако при первой встрече будущих супругов выясняется, что Ливиус – всего лишь (   Читать дальше...   )Жанр: комедия, романтика, фэнтези, сёдзёРежиссер: Камэгаки ХадзимэПродолжительность: 12 серий по 23 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92ED1A15192556FB7B7C7D7812D0E03508A8D673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776656   (636090) от 01.07.2014
+
+Seikoku no Dragonar | Dragonar Academy | Академия Драконов [2014, TV, 12 эп.] HDTV 720p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Посреди могучих держав лежит небольшое горное королевство Лотремон, славное единственной в мире академией, где готовят наездников на драконах. Мало кто способен «запечатлеть» разумного зверя, вырастить его, а потом несколько лет учиться вместе, составляя идеальную боевую пару. Лучшие рыцари получают от дракона магические доспехи и оружие, заменяя собой целые армии, поэтому любая страна с готовностью оплатит недешевое обучение своих кандидатов. Юные таланты прибывают в академию Ансариван отовсюду, в том числе из враждующих земель, но Лотремон издавна считается нейтральной территорией, где запрещены боевые действия. Сильных соседей вроде империи Зефарос договоры не волнуют, но время еще не пришло…
+
+Обычно боевая пара создается один раз, но Аш Блейк – исключение. После загадочного происшествия в детстве парень обрел способность ладить с любым драконом, а вот собственного, несмотря на знак всадника, никак не мог получить. Насмешки кончились, когда после встречи в горах Аш все же пробудил своего партнера… только им (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, эттиРежиссер: Тада СюнсукэПродолжительность: 12 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106D92F121A67A2073F92BA9EE912612C1D8B77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005158   (634127) от 13.07.2016
+
+Joker Game / Игра Джокера [2016, TV, 12 из 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Организация под названием «Агентство Д» создана осенью 1937 года в качестве независимого армейского подразделения по личной инициативе подполковника Юки. По слухам, Юки сам в прошлом был хорошим агентом и добыл у врага немало секретов, пока его не предал союзник. До побега из плена подполковника жестоко пытали, чем объясняется отсутствие левой руки и то, что он ходит (   Читать дальше...   )Производство: Production I.GЖанр: военное, детектив, исторический, сейненРежиссер: Номура КадзуяПеревод: Nika_Elrik, Harushechka, Helge (YakuSub Studio)Субтитры: ASSФормат: MP4Продолжительность: 12 серий по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B0C5F945343CD6703DC2B26EE7B588A2E76053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529313   (633435) от 09.04.2022
+
+Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир постоянно умирает [ТВ-1] [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это вампир. Для того, чтобы спасти пропавших детей от гибели, охотник на вампиров Рональд отправился в замок к всесильному Драку. Но в логове чудовища его ждало нечто неожиданное… Могущественный вампир оказался ничтожной букашкой, которая мгновенно обратилась в пепел.
+© wakanimПроизводство: студия Madhouse / マッドハウスЖанр: комедияРежиссер: Кодзина ХиросиПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49338681E04110396F0D9BCB1AFECF568569D92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529314   (633298) от 09.04.2022
 
 Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайка и Носферату [2021, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +113,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +165,7 @@ Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Судьба
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +191,7 @@ Sekai Saikou no Ansatsusha, Isekai Kizoku ni Tensei Suru | Лучший в ми�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +218,7 @@ Cider no You ni Kotoba ga Wakiagaru | Words Bubble Up Like Soda Pop | Слова
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +244,7 @@ Tokyo 24-ku | Tokyo 24th Ward | Токио: 24-й район [2022, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +270,7 @@ Bungaku Shoujo - Kyou no Oyatsu ~Hatsukoi~ / Book Girl / Книжная лако
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +297,7 @@ Beelzebub / Beelzebub / Вельзевул (Бесопуз) [2011, TV, 60 из 6
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +323,7 @@ Higurashi no Naku Koro ni Kai / When They Cry II: Solutions / Когда пла�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +349,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +375,7 @@ Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +401,7 @@ SSSS.Gridman | Гридмен [2018, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +427,7 @@ A.I.C.O. Incarnation | И.Р.К.О.: Воплощение [2018, ONA, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +455,7 @@ Getsuyoubi no Tawawa 2 | Tawawa on Monday 2 | Тавава по понедель
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +483,7 @@ Heion Sedai no Idaten-tachi | The Idaten Deities Know Only Peace | Боги-ст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +509,7 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ Toaru Majutsu no Index III / A Certain Magical Index 3 / Индекс волше
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +564,7 @@ Wonder Egg Priority | Приоритет чудо-яйца [2021, TV, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +593,7 @@ Summer Ghost | Летний призрак [2021, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +621,7 @@ Shihaisha no Tasogare / Twilight of the Dark Master / Сумерки Повел�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -541,7 +648,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records | Никчёмный учите�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +674,7 @@ RS Keikaku: Rebirth Storage | Проект «БП»: База Перерожде
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,111 +685,6 @@ RS Keikaku: Rebirth Storage | Проект «БП»: База Перерожде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BE3C04CECD4258CB520527893DA4B347BC249D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035651   (626387) от 17.07.2016
-
-Ani Tore! EX / Anitore! EX / Тренировки с аниме! [2015, TV, 12 из 12] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626387.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Прокачай своё тело и душу!" Каждая серия содержит отдельный элемент спортивный тренировки, такие как отжимания, приседания, повороты позвоночника, йога и т.д. Пять девочек, стремящихся стать идолами, будут тренироваться с вами, и в результате беспокоящее их содержание жира в организме понизится на 1000%...!?Производство: Студия Rising Force / ライジングフォースЖанр: комедияРежиссер: Нигорикава АцусиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA4B66BF76A9E5B7C9DB723080309280747BBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909795   (625825) от 18.06.2015
-
-Happy World! | Счастливый мир! [2002, OVA, 3 эп.] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бог наделил всех людей одинаковым количеством везения и невезения. Но иногда происходят некие отклонения от планов создателя, и на свет появляются существа, относящиеся к категории "лузер обыкновенный". Такеси Омура - один из таких.
-Этот человек обладает таинственным даром. Даром, позволяющим ему ежесекундно находить приключения на свою пятую точку опоры. (   Читать дальше...   )Производство: ZEXCSЖанр: комедия, романтика, эттиРежиссер: Икэхата ТакасиПеревод: TM aka ТехноМагЯзык субтитров: РусскийФормат: DVDRipПродолжительность: 3 эп., 27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F237FC58E2FB29FC2E9D7AACE9E27F465C7D2528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909775   (625567) от 18.06.2015
-
-Shin SOS Dai Tokyo Tankentai | SOS! Tokyo Metro Explorers: The Next | SOS! Исследователи токийской подземки [2007, MV] BDRip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычные японские пацанята (4шт.), прихватив старую тетрадку с картой подземелий под Токио, через канализационный люк (особые приметы: открывается и закрывается, когда не нужно) отправляются исследовать подземку в поисках Великого Сокровища Ванпис™ (ну или Газилы™ на худой конец). Какие опасности поджидают ребят там? Таинственный Мистер Кислотный Дождь, хакнувший (   Читать дальше...   )Производство: SunriseЖанр: приключенияРежиссер: Такаги СиндзиПеревод: Blazing Wizard & Simon.clericЯзык субтитров: РусскийФормат: BDRipПродолжительность: 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDD94235E50E6782F4C4E8A8C2E00CBEFEFEEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127613   (625125) от 23.06.2017
-
-Saenai Heroine no Sodatekata Flat | Saekano: How to Raise a Boring Girlfriend.flat | Как из обычной девушки воспитать героиню [2017, TV, 11 эп. + 1 SP] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто мы оказываемся в плену своих увлечений, и ничего не видим вокруг, кроме них. Так и старшеклассник-отаку Томоя Аки не хотел замечать ничего, что окружало его. Настолько, что встретив девушку Мегуми, обладающую неземной красотой, даже не сразу понял, что она, оказывается, учится с ним в одной школе. Но красота её была скрыта за незаметной личностью и понятна (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: комедия, романтикаРежиссер: Камэй КантаПеревод: 1) GerKo, Ryuji, Tousaka Jun (01-06 + SP); SovetRomantica (07-11) 2) HorribleSubsЯзык озвучки: ЯпонскийСубтитры: 1) Русские; 2) АнглийскиеПродолжительность: 11 эп. + 1 SP по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F5F60E920A115500D45AAA2AF0E3641B78D71D
 ```
 
 https://mybot314.ru/tekegram_catalog/

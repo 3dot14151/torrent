@@ -1,3 +1,82 @@
+###  Публикация: 949298   (378865) от 22.10.2015
+
+Эверест / Everest  (2015) HDRip [H.264/1080p-LQ] [EN / Kor Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эверест - великая неприступная гора, покорить вершину которой мечтают многие профессиональные альпинисты. Одна из экспедиций на ее вершину закончилась настоящей трагедией, однако этот факт не останавливает отважных альпинистов.
+Опытный инструктор Роб Холл, собрав группу из лучших альпинистов, собирается совершить восхождение на самую высокую вершину планеты. Все (   Читать дальше...   )Производство: США, Великобритания, Исландия, Emmett/Furla Films, Universal Pictures, Working Title FilmsЖанр: триллер, драма, приключения, биография, историяРежиссер: Бальтасар КормакурАктеры: Джейсон Кларк, Джош Бролин, Джейк Джилленхол, Сэм Уортингтон, Джон Хоукс, Майкл Келли, Ингвар Эггерт Сигюрдссон, Кира Найтли, Эмили Уотсон, Робин Райт, Мартин Хендерсон, Томас М. РайтПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: корейскийПродолжительность: 02:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2420ECC8E2E4EA5AF8E8F8CE4891D419AFF6AE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068761   (377725) от 02.11.2016
+
+Служанка / Госпожа / The Handmaiden / Agasshi (2016) BDRip [H.264/720p-LQ] [KOR / Rus Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+30-е годы прошлого столетия. Корея, оккупированная японцами. Мошенник по прозвищу Граф предлагает бедной девушке Соке поучаствовать в деле, обещая солидный заработок. План афериста следующий. В огромном поместье, не общаясь с внешним миром, живет богатая японка Хидеко. Однако ее дядя, контролирующий каждый шаг девушки, изредка устраивает приемы для местных аристократов. (   Читать дальше...   )Производство: Южная КореяЖанр: Драма, Мелодрама, ТриллерРежиссер: Пак Чхан-укАктеры: Ким Мин-хи, Ким Тхэ-ри, Ха Джон-у, Чо Джин-ун, Ким Хэ-сук, Мун Со-ри, Ли Ён-нё, Ли Дон-хви, Ю Мин-чхэ, Чо Ын-хёнПеревод: ОтсутствуетЯзык озвучки: КорейскийПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEC3ACF23AE080E96EF06B23BF1B3E18A18A610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254197   (377155) от 12.10.2018
+
+Право на измену / Permission  (2017) BDRemux [H.264/1080p] [EN / Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уилл собирается сделать предложение своей девушке Анне, на что она отвечает, что прежде чем связать жизнь с одним мужчиной, она хочет повстречаться ещё с другими.Производство: США, Канада / Ball & Chain Productions, Circadian Pictures, Paper Trail, Picture FilmsЖанр: драма, мелодрама, комедияРежиссер: Брайан КраноАктеры: Джина Гершон, Дэн Стивенс, Ребекка Холл, Джейсон Судейкис, Мишель Хёрст, Рауль Кастилло, Франсуа Арно, Бриджет Эверетт, Сара Стил, Морган Спектор, Дэвид Джозеф Крэйг, Линдси ЭлизабетПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: испанскиеПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CD168D2F23D561ECB0FB017D37D4394D45B939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254126   (377149) от 12.10.2018
 
 Апостол / Apostle (2018) WEBRip [H.264/1080p-LQ] [EN / RU, EN Sub]
@@ -6,7 +85,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6040CE18B6BE8344D9ABF79147BF0A6B71EFB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950903   (367194) от 27.10.2015
-
-Агенты А.Н.К.Л. / The Man from U.N.C.L.E.  (2015) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наполеон Соло - агент ЦРУ, на счету которого огромное количество успешно проведенных операций. Он считается одним из лучших секретных агентов во всем мире, и с ним может сравниться только один человек - самый молодой и перспективный агент КГБ, Илья Курякин. Их противостояние переросло в настоящую войну, в которой никто не собирается уступать. Однако обстоятельства (   Читать дальше...   )Производство: США, Великобритания, Warner Bros., RatPac-Dune Entertainment, Wigram ProductionsЖанр: боевик, комедия, приключенияРежиссер: Гай РичиАктеры: Генри Кавилл, Арми Хаммер, Алисия Викандер, Элизабет Дебики, Хью Грант, Лука Кальвани, Сильвестр Грот, Джаред Харрис, Кристиан Беркель, Миша Кузнецов, Гай Уильямс, Марианна Ди МартиноПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530AA978EC20DFC2399CADCF872D2BACE92D4495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255213   (365556) от 17.10.2018
-
-Не волнуйся, он далеко не уйдёт / Don't Worry, He Won't Get Far on Foot  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон не умел вовремя останавливаться, когда дело касалось быстрой езды, красивых женщин и опасных шуток. Прихватив случайного приятеля на вечеринке, он садится в машину и чудом остаётся в живых. С этого момента начинается горькая и вдохновляющая, правдивая и трогательная история человека, который потерял все, и вынужден двигаться дальше, чтобы обрести себя как одного (   Читать дальше...   )Производство: Франция, США / Amazon Studios, Anonymous Content, Big Indie Pictures, IconoclastЖанр: драма, комедия, биографияРежиссер: Гас Ван СентАктеры: Хоакин Феникс, Джона Хилл, Руни Мара, Джек Блэк, Тони Гринхэнд, Бет Дитто, Марк Веббер, Ронни Адриан, Ким Гордон, Удо Кир, Кэрри Браунштейн, Итан ТиндукасириПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E805018FF9A469DB2B2C8E8756CE1A9016CBC7F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328229   (365542) от 29.09.2019
-
-Где Кайра? / Where Is Kyra? (2017) BDRemux [H.264/1080p] [EN / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365542.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Бруклине, Нью-Йорк, кроткая и скрытная Кира (Мишель Пфайффер) теряет работу и изо всех сил пытается выжить, на средства больной матери. По мере того, как идет время, ее проблемы только усугубляются. Это приводит ее на рискованный и таинственный путь, который угрожает ее жизни.Производство: Великобритания, США, Big Indie Pictures, Killer Films, Little Minx, Oldgarth MediaЖанр: ДрамаРежиссер: Andrew DosunmuАктеры: Мишель Пфайффер, Кифер Сазерленд, Сюзанн Шеперд, Энтони Окунгбова, Бабс Олусанмокун, Стелла Шнабель, Анжела Питропинто, Elizabeth Evans, Сэм Робардс, Рутаня ОлдаПеревод: ОтсутствуетСубтитры: Русские (Вадим Мартишевский), английскиеПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F28437871DA927719917743FC721BB720C5FF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

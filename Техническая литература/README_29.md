@@ -1,3 +1,109 @@
+###  Публикация: 1625161   (241346) от 09.04.2023
+
+Д.Л. Глизманенко | Получение кислорода (1972) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основы производства кислорода, азота и редких газов, приведены сведения о вспомогательных материалах, описано оборудование, аппаратура и процессы получения этих газов из воздуха, рассмотрены методы контроля производства и правила техники безопасности. Даны схемы и технические характеристики новых, освоенных промышленностью в последние годы, установок (   Читать дальше...   )Жанр: ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD2238DFE14051DC3A3D1E5314988BDEF5F4F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546233   (239595) от 24.04.2022
+
+Хейс К. Том, Хоровиц Пол | Искусство схемотехники. Теория и практика (2022) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В этой уникальной книге по схемотехнике содержится не только теоретический материал, но и полноценный курс лабораторных работ. Подробно рассмотрено применение аналоговых устройств (пассивных элементов, транзисторов, операционных усилителей), цифровых устройств (логических элементов, триггеров, счетчиков, ПЛМ, памяти, АЦП, ЦАП, ФАПЧ) и микроконтроллеров. Каждое из (   Читать дальше...   )Жанр: Техническая литература, электроника, схемотехникаПеревод: ООО «БХВ-Петербург»Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771B9B375ABBB769EB3E8EF1F8D4B8CF66C151D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547731   (238624) от 29.04.2022
+
+Скороходов Е.А. (ред.) | Общетехнический справочник (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В четвертом издании (3-е изд. 1989 г.) приведены сведения по математике, технической механике, ЕСКД, материалам в машиностроении, деталям машин, допускам, посадкам и техническим измерениям, ЕСТПП и ЕСТД, а также по элементам программирования.
+Для мастеров и квалифицированных рабочих.Жанр: Технические наукиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0A307D6780D9F7CD1023892D32A4BB246EC591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551211   (235309) от 14.05.2022
+
+М.И. Штерн | Современная электросеть. Новые технические решения (2019) [PDF] [Книга + DVD]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Практическая книга с видеокурсом призвана познакомить читателя с устройством, проектированием, монтажом, правилами безопасной эксплуатации, обслуживанием, ремонтом электросети современного дома и квартиры.
+Книга будет полезна и тем, кто делает ремонт квартиры, и тем, кто формирует под свои задачи электросеть строящегося коттеджа или купленной квартиры в новостройке (   Читать дальше...   )Жанр: ЭлектрикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F27A4FADC9132231202C26BADB7685527E0B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643020   (234910) от 30.06.2023
 
 Л. А. Новицкий, И. Г. Кожевников | Теплофизические свойства материалов при низких температурах. Справочник (2 издание) (1982) [DJVU]
@@ -6,7 +112,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Dohan Ibrahim | Circuit Simulation with TINA Design Suite and TINACloud (2022) [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -189,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +558,7 @@ J. Albahari | C# 10 in a Nutshell: The Definitive Reference (2022) [PDF, EPUB] [
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -570,116 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCCB234433702863CE637E6A5B2751902C5329B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426060   (215779) от 23.11.2020
-
-Гордон МакКомб | Робот на Arduino (2018) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215779.jpg" />
-</div>
-
-
-###  Подробнее
-
-В издании простым языком рассказывается, как создать робота своими руками на базе наборов Arduino.
-Вы сможете сконструировать робота с пятью основными функциями:
-запрограммированный набор движений;
-ориентация в пространстве;(   Читать дальше...   )Жанр: РобототехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D0E1051DF03F65FA69134965A160320EF25ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193945   (214064) от 23.12.2017
-
-А.А. Коннов, А.Е. Пескин (сост.) | Микросхемы для современных импортных видеомагнитофонов и видеокамер (2010) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_214064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, продолжая серию ”Энциклопедия ремонта”, является вторым выпуском, посвященным микросхемам для современных импортных видеомагнитофонов. В данный выпуск включены также микросхемы для импортных видеокамер. Приведены структурные схемы и назначение выводов около трехсот микросхем, применяемых в различных типах видеомагнитофонов и видеокамер.
-Данное издание рассчитано (   Читать дальше...   )Жанр: Электронные компонентыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9947FB45E6289625051892E6B78329A615DA28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584248   (212096) от 18.10.2022
-
-Коллектив авторов | Альбом чертежей подвижного состава Казенной Либаво-Роменской железной дороги (1901) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом чертежей подвижного состава (паровозы, тендеры, вагоны) казенной Либаво-Роменской ж.д..
-Репринт издания 1901 года. Данный альбом будет интересен моделистам и любителям истории железных дорог.Жанр: история техникиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E48CB043B580D36F4EB4615CBB8D6BB4F55DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584242   (212071) от 18.10.2022
-
-Д.В. Крушинский, В.Б. Петров и др. | Паровоз Л (2021) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212071.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге рассказывается история создания легендарного паровоза серии Л, а также краткая биография Главного Конструктора паровоза - Л.С. Лебедянского.
-Также рассказывается в общих чертах о принципе работы и устройстве паровоза, истории паровозов в мире и России и немного об основных отличиях паровоза серии Л от своих предшественников и последователей по отношению (   Читать дальше...   )Жанр: история техникиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C03C2D49C820C875C1D7BB6B84190462FAF5BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

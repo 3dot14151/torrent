@@ -1,3 +1,81 @@
+###  Публикация: 1098368   (909676) от 29.01.2017
+
+Темная Лига справедливости / Justice League Dark (2017) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главой группы сверхъестественных героев выступает Джон Константин, в команду которого входят - Болотная тварь, Затанна, Мертвец, Демон и Черная орхидея. Все они объединяются в Темную Лигу Справедливости, чтобы взять на себя оккультные и сверхъестественные угрозы, против которых Лига Справедливости может оказаться бессильной.Производство: США, Warner Bros. Animation, DC ComicsЖанр: Рисованная анимация, Фентези, ПриключенияРежиссер: Джей ОливаПерсонажи: Джон Константин, Бэтмен, Болотная тварь, Затанна, Мертвец, Демон, Черная орхидея.Перевод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: РГ "Black Show"Язык субтитров: Русский, АнглийскийПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7863BBB278DF93813A006BF69B9586771DA080E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866372   (909557) от 04.02.2015
+
+Семейка монстров / The Boxtrolls (2014) BDRip [720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда…Производство: USA / Laika EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Бен Кингсли, Джаред Харрис, Ник Фрост, Ричард Айоади, Трэйси Морган, Ди Брэдли Бейкер, Стивен Блум, Ника Футтерман, Пэт Фрэли, Фред ТатаскьорПеревод: профессиональный (полное дублирование)Язык субтитров: русские (полные, форсированные), украинские (полные, форсированные), английские (полные)Продолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363B7DF73898AA567AD61D5C6A5D7AABDB569DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866396   (909539) от 04.02.2015
+
+Семейка монстров / The Boxtrolls (2014) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда…Производство: USA / Laika EntertainmentЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиАктеры: Бен Кингсли, Джаред Харрис, Ник Фрост, Ричард Айоади, Трэйси Морган, Ди Брэдли Бейкер, Стивен Блум, Ника Футтерман, Пэт Фрэли, Фред ТатаскьорПеревод: профессиональный (полное дублирование)Язык субтитров: русские (полные, форсированные), украинские (полные, форсированные), английские (полные)Продолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20030C48DE9F9E06F6CBC129DA99B693BC1FEE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491677   (908150) от 26.08.2021
 
 Щенячий патруль в кино / PAW Patrol: The Movie (2021) WEB-DL [H.264/1080p] [DVO]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -556,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13BBD974D705E7BD84E3502E01227204E1B11C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637295   (899859) от 31.03.2013
-
-Бэтмен против Дракулы / The Batman vs Dracula: The Animated Movie (2005) WEB-DL [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899859.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как Готэм Сити спит под прикрытием темноты, вылетают две легендарные мыши. Одна из них превращает город в армию вампиров, а другая пытается сделать все возможное, чтобы предотвратить это событие.
-Но Дракула - зто не просто один из врагов Бэтмена, он обладает сверхъестественными способностями, скоростью и умом. Хотя даже со своим арсеналом технических приспособлений, (   Читать дальше...   )Жанр: мультфильм, ужасы, боевик, триллерРежиссер: Майкл Гогуэн, Сюн Юнь Ким, Сэм ЛьюПерсонажи: Джефф Беннетт (Arkham Asylum Inmate / дополнительные голоса, озвучка), Нил Дункан (Alfred Pennyworth, озвучка), Ричард Грин (дополнительные голоса, озвучка), Том Кенни (Oswald Cobblepot / The Penguin, озвучка), Кевин Майкл Ричардсон (The Joker, озвучка), Рино Романо (Bruce Wayne / The Batman, озвучка), Нил Росс (дополнительные голоса, озвучка), Джеймс Си (дополнительные (   Читать дальше...   )Перевод: Дублированный (Пифагор)Язык субтитров: Русские, английскиеПродолжительность: 01:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDA105FB388DE7608FB67229E7249F2B4430B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369655   (899606) от 25.03.2020
-
-Вперёд / Onward (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [Line]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-эльфы Иэн и Барли Лайтфуты живут в волшебном мире, населенном троллями, гоблинами, гномами, кентаврами и единорогами. Когда-то их мир переполняла магия, но те времена прошли, и теперь сказочные существа летают на самолетах, пользуются автомобилями, и ведут в целом прозаичную жизнь. Однако неожиданная находка приводит к тому, что братья решают отправиться в (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Дэн СкэнлонПеревод: Дублированный (Чистый звук без рекламы)Субтитры: отсутствуютПродолжительность: 01:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB462A02F5B7947C81AAE0E8543DD260556DB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637366   (899436) от 31.03.2013
-
-Побег с планеты Земля / Escape from Planet Earth (2013) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899436.jpg" />
-</div>
-
-
-###  Подробнее
-
-На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCC9BD21FCD0EAE4CB02A24040EACE01A409478
 ```
 
 https://mybot314.ru/tekegram_catalog/

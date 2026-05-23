@@ -1,3 +1,55 @@
+###  Публикация: 1098962   (905978) от 31.01.2017
+
+Resident Evil Anthology (1997-2000) [En] (2.0.2-1) Repack R.G. Revenants [Classics Collection]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры начинает свое повествование за сутки до событий Resident Evil 2. Под нашим контролем снова Джилл Валентайн - героиня первой части игры. Она не успела покинуть город из-за введенного карантина, в то время как остальные выжившие члены отряда S.T.A.R.S. уехали в Европу. Раккун всё больше и больше впадал в хаос. Джилл собрала вещи, взяла пистолет и вышла на (   Читать дальше...   )Тип издания: RepackРазработчик: Capcom EntertainmentЖанр: Survival Horror, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AC0234820906EBAB5836AFB4B67C90324B313A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099131   (905972) от 31.01.2017
+
+Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc) License GOG [Black Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в плену мрачного, неприветливого мира и ожидая расплаты за земные грехи, вы должны проложить путь через бессчетные толпы врагов, предотвратить начало Нечестивой войны и низвергнуть Люцифера. Но даже если вы одержите верх в этой безумной битве, вам придется уничтожить орды жутких демонов, жаждущих отомстить за своего владыку. Вы – последняя надежда ангелов.Тип издания: RepackРазработчик: People Can FlyЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C32BDF86423135B6D87E558E56F14987B32234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369093   (904786) от 22.03.2020
 
 Slave Zero (1999) [Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ Slave Zero (1999) [Multi] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Metal Gear (1987) [Multi] (1.0.cu) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Batman: Arkham Asylum (2009) [Multi] (1.1) License GOG [Game of the Year Edition
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Batman: Arkham Origins (2013) [Ru/Multi] (1.0/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Batman: Arkham City (2012) [Ru/Multi] (1.1/dlc) License GOG [Game of the Year Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Death to Spies / Смерть шпионам (2007) [Ru/En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Freddy Pharkas: Frontier Pharmacist (1993) [En] (1.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +396,7 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +422,7 @@ King's Table - The Legend of Ragnarok (1993) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Fallout Resurrection (2016) [Ru] (1.5.116) Repack/Mod Pyran
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Caesar (1993) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Caesar 2 (1995) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Wing Commander™ 4: The Price of Freedom (1995) [En] (3.0.1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:367671AF8F8B22960F5B18B5FF1DF519CEAAD4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104073   (882788) от 13.02.2017
-
-Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восточная Европа, 2008 год. На границах с Россией бушует война, от ее исхода зависит судьба всего мира. Пора вызывать на подмогу элитное спецподразделение армии США – отряд «Призраков», до зубов вооруженных новейшими технологиям и в совершенстве владеющих искусством убивать. Задача этих бойцов – расчистить путь для миротворцев НАТО и предотвратить глобальный конфликт, (   Читать дальше...   )Тип издания: LicenseРазработчик: Red StormЖанр: Action (Tactical, Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7A076A093F731166A160E4F870509A0A58A802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301486   (881329) от 05.04.2020
-
-SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если директор SinTEK Industries распространяет таблетки, изменяющие ДНК, – значит, пора пересмотреть законы морали. Если все та же коварная женщина-биохимик собирается захватить мир при помощи армии мутантов, – значит, пора переписать золотое правило нравственности. Вы – полковник Джон Блэйд, начальник самого известного частного охранного агентства Фрипорта. Элексис (   Читать дальше...   )Тип издания: LicenseРазработчик: Ritual EntertainmentЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
 ```
 
 https://mybot314.ru/tekegram_catalog/

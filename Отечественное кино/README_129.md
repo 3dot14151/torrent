@@ -1,3 +1,107 @@
+###  Публикация: 930801   (513653) от 24.08.2015
+
+Отель (2015) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды в одном курортном отеле был найден мертвым его владелец. Смерть обставлена как сердечный приступ, но частный детектив, так некстати там оказавшийся, усомнился в естественности смерти миллионера. Под подозрение в убийстве подпадает ближайший круг покойного. Мотив ясен — наследство, но кто же все-таки решился на такое? Как разобраться в этом клубке и самому (   Читать дальше...   )Производство: РоссияЖанр: ДетективРежиссер: Роман МушегянАктеры: Анатолий Смиранин, Екатерина Архарова, Ирина Чериченко, Борис Эстрин, Давид Кацарава, Сергей Глушков, Ирина ВиноградоваПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC49B635FC06C7171694078765EE15CAA491622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931189   (512664) от 25.08.2015
+
+Нинкина любовь (2015) HDTVRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нина всю себя посвятила младшей сестре. На собственную любовь и счастье времени не хватило. Жизнь ее скучна и однообразна. Но судьба приготовила на Нинкину долю много приключений и переживаний. Совсем скоро в ее жизни появятся двое мужчин, и далеко не сразу Нина поймет, кто из них ее настоящая любовь…Производство: Россия, Кинокомпания РусскоеЖанр: МелодрамаРежиссер: Игорь ПеринАктеры: Любовь Баханкова, Илья Алексеев, Илья Соколовский, Людмила Гаврилова, Василий Кортуков, Андрей БулатовПродолжительность: 01:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CF9BEE3D1FCA9B7E505242C4A39881330B13A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315546   (512618) от 20.07.2019
+
+Один день лета (2018) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вся жизнь недавней провинциалки, а теперь москвички Кати — одно сплошное селфи с чередой знаменитостей. Любые интриги ради лайка, любые подвиги во имя статуса «звезды инстаграм». Но количества подписчиков по-прежнему недостаточно, и ради заветной цели она отправляется в Санкт-Петербург, чтобы сделать селфи с загадочным художником, скрывающим свою личность, и тем (   Читать дальше...   )Производство: Россия, ЛенфильмЖанр: Комедия, музыка, мелодрамаРежиссер: Александр ИгудинАктеры: Татьяна Бабенкова, Алекс Коморовски, Степан Ледков, Андрей Носков, Юрий Гальцев, Максим Леонидов, Иван Краско, Эра Зиганшина, Анастасия Лазо, Алексей КопыловСубтитры: ОтсутствуютПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4117DBD2500572F2468CC350C43F31C9B65074EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931222   (512583) от 25.08.2015
+
+Охотник (2014) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Роберт — профессиональный киллер, один из лучших в этом опасном деле. Но иногда даже самые лучшие допускают ошибки. Одна ошибка Роберта, оборачивает все вокруг против него, увлекая в опасную игру всех, кто встречается ему на пути.Производство: Молдова, Shepherd Company & Patria ProductionЖанр: Боевик, ТриллерРежиссер: Иван НаниевАктеры: Паша Парфений, Борис Кулибаба, Лусия Андриуца, Иван Банару, Владимир Гончаров, Михаил Цуркан, Анжела ЧиобануПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC72ACD4EE698D4FA5C1774D6894E042FB9BFFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535804   (512330) от 20.08.2012
 
 Взбунтуйте город, граф! (1992) VHSRip2DVD5
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45895F8286892F990BEDFBF239685368B2C4579B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562856   (506886) от 11.07.2022
-
-Аманат (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506886.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любви сына имама Шамиля Джамалутдина и Лизы Олениной на фоне драматических событий военной истории России первой половины XIX века. Джамалутдин вошёл в историю как «великий заложник», и фильм — это попытка ответить на вопрос: заложник большой политики или большой любви. Исторический контекст заката Николаевской эпохи, на фоне которого разворачивается история (   Читать дальше...   )Производство: Россия / ООО Даггер ФилмЖанр: Биография, история, военный, драмаРежиссер: Антон Сиверс, Рауф КубаевАктеры: Амин Хуратов, Варвара Комарова, Арслан Мурзабеков, Андрей Соколов, Екатерина Гусева, Фёдор Лавров, Фархад Махмудов, Василий Мичков, Виталий Коваленко, Даниил СтраховПеревод: Не требуется (Русский)Субтитры: Русские (Full, hardsub на дагестанскую речь)Продолжительность: 01:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E4EBADE3540F23721FC5920268F6D33497A40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562888   (506885) от 11.07.2022
-
-Аманат (2022) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506885.jpg" />
-</div>
-
-
-###  Подробнее
-
-История любви сына имама Шамиля Джамалутдина и Лизы Олениной на фоне драматических событий военной истории России первой половины XIX века. Джамалутдин вошёл в историю как «великий заложник», и фильм — это попытка ответить на вопрос: заложник большой политики или большой любви. Исторический контекст заката Николаевской эпохи, на фоне которого разворачивается история (   Читать дальше...   )Производство: Россия /  ООО Даггер Филм , Algous studioЖанр: биография, история, военный, драмаРежиссер: Антон Сиверс, Рауф КубаевАктеры: Амин Хуратов,   Варвара Комарова,   Арслан Мурзабеков,   Андрей Соколов,   Екатерина Гусева,   Фёдор Лавров,   Фархад Махмудов,   Василий Мичков,   Виталий Коваленко,   Даниил СтраховПеревод: Не требуется (Русский)Субтитры: Русские (hardsub на дагестанскую речь)Продолжительность: 01:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9E816BF0DF88D3E7EEB7E4615E15E34E7F47A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316419   (506717) от 25.07.2019
-
-Я не такой! Я не такая! (2018) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги - Вера, Люба и Надя встречаются в загородном доме, чтобы отметить помолвку Нади, но во время празднования они узнают, что их любимые мужчины пользуются услугами одной и той же проститутки.
-И кажется, что женский идеальный мир разрушен навсегда. Отчаявшись, девушки решаются вызвать разлучницу на дом под видом клиенток, и девичник обретает совершенно неожиданный (   Читать дальше...   )Производство: Россия, Русская Фильм ГруппаЖанр: комедия, драмаРежиссер: Руслан ПаушуАктеры: Филипп Рейнхардт, Анна Чурина, Кристина Бабушкина, Рената Пиотровски, Анатолий Руденко, Иван Кокорин, Наталья Лесниковская, Тимур Боканча, Елена Драпеко, Валентина МазунинаПеревод: Не требуется - Русский (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E69C971C3DFFA76D910F8720F5002AB2DD0997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539372   (506408) от 26.08.2012
-
-Каникулы строгого режима (2009) BDRip [H.264/720p] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506408.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как двое не самых молодых людей, Кольцов и Сумароков, волею судьбы оказались вожатыми в пионерском лагере в компании в меру энергичного руководства и не в меру энергичных детей. Все бы ничего, да только попали они туда прямо с арестантской шконки.
-Сначала Кольцов, будучи весьма уважаемым профессиональным сотрудником МВД, имеющий за плечами две поездки (   Читать дальше...   )Производство: Россия, Дирекция Кино, Buzz ProductionЖанр: драма, комедия, приключенияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Дмитрий Дюжев, Алена Бабенко, Сабина Ахмедова, Владимир Меньшов, Алексей Кравченко, Станислав Лесной, Александр Лыков, Кирилл Плетнев, Роман Мадянов, Людмила Полякова, Михаил Богдасаров, Малхаз АбуладзеПродолжительность: 01:54:27
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

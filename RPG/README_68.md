@@ -1,3 +1,81 @@
+###  Публикация: 1777052   (28728) от 04.02.2025
+
+Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь на просторы заснеженного королевства в Tails of Iron 2, продолжении высоко оцененной ролевой игры. В роли Арло, наследника Стражей пустоши, вам придется путешествовать по северным землям, где обитают чудовища и бандитское отребье. Ваша задача - побороть древнее зло. Пока южные крысы пытаются вернуться к привычному образу жизни после великой войны между (   Читать дальше...   )Тип издания: RepackРазработчик: Odd Bug StudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDE285ACD670B6163C065CACC91E81F5B0467CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760567   (28508) от 06.02.2025
+
+Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Зовите друзей, выбирайте любимую черепашку и спасайте мастера Сплинтера из лап клана Фут в приключении-рогалике! Осваивайте навыки ниндзя, объединяйтесь в отчаянной совместной игре по сети и локально и покоряйте знаковые локации Нью-Йорка.Тип издания: RepackРазработчик: Super Evil MegacorpЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C4998F0B8CE0A4AFE37B52CA885FCC89A85C6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777438   (28498) от 06.02.2025
+
+Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя: В поисках Сплинтера (2024) [Ru/Multi] (1.7.1/dlc) Scene Rune [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Зовите друзей, выбирайте любимую черепашку и спасайте мастера Сплинтера из лап клана Фут в приключении-рогалике! Осваивайте навыки ниндзя, объединяйтесь в отчаянной совместной игре по сети и локально и покоряйте знаковые локации Нью-Йорка.Тип издания: SceneРазработчик: Super Evil MegacorpЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CEB9ACC7259FA290C4AFB2014436EFBCF78B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763222   (28437) от 07.02.2025
 
 Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
@@ -6,7 +84,7 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Decepticon
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.1.1-11377/dlc) Repack dixen18 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.34) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_28324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Keep Driving (2025) [En] (1.0.0.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sword of the Necromancer: Resurrection (2025) [Multi] (1.0.3) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Techno Banter (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Drova - Forsaken Kin (2024) [Ru/Multi] (1.2.3) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Tails of Iron (2021) [Ru/Multi] (1.52/dlc) Repack Let'sРlay [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Cardfight!! Vanguard Dear Days 2 (2025) [Multi] (1.0.2/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.5.89.0) Repack Wanterlude
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Saturn (2024) [Ru/En] (1.35.02.11.16461/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Noob - The Factionless (2023) [Multi] (20250124) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Few Nights More (2025) [Ru/Multi] (1.0.0214) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Robin Hood: Sherwood Builders (2024) [Ru/Multi] (04.12.16.01) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.5a/dlc) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack Wanterlude [Game of the Year Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771051   (26544) от 25.02.2025
-
-The Axis Unseen (2024) [Ru/Multi] (1.092) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26544.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Axis Unseen — это игра в жанре хэви-метал хоррор от одного из разработчиков Skyrim и Fallout. Найдите стрелы, напитанные силой стихий. Устройте охоту на чудовищ из древних легенд в открытом мире. Но помните — любой охотник может стать добычей. Устройте охоту на древних чудищ. Ищите их по запаху и следам крови. Учитывайте направление ветра и не дайте им учуять (   Читать дальше...   )Тип издания: RepackРазработчик: Just Purkey GamesЖанр: Экшены, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727387   (26431) от 26.02.2025
-
-SKALD: Against the Black Priory (2024) [En] (Skald Modding Tool/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26431.jpg" />
-</div>
-
-
-###  Подробнее
-
-SKALD: Against the Black Priory может понравиться любителям ретро. Это ролевая игра, стилизованная под хиты из прошлого. Графика в ней выполнена в стиле пиксель-арт и в низком разрешении. Музыка тоже подражает восьмибитным и шестнадцатибитным саундтрекам. Тайтл поддерживает фанатские модификации. SKALD: Against the Black Priory предлагает создать протагониста и собрать (   Читать дальше...   )Тип издания: LicenseРазработчик: High North Studios ASЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335ADF841CD93B4CF7C514C36477A6616A36E0B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781878   (26345) от 26.02.2025
-
-Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляйтесь под улицы Лондона, и вы обнаружите средневековое королевство крыс, мышей, кротов, белок и землероек, известное как Rodentia. Если у грызунов и есть главный закон, то он таков: никогда не нападай на Бога. Но Верм никогда не питал особого уважения к верховенству закона. Его хвост украл Желтый Бог смерти и теперь Верму придется сражаться со всевозможными (   Читать дальше...   )Тип издания: RepackРазработчик: Darya NoghaniЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 ```
 
 https://mybot314.ru/tekegram_catalog/

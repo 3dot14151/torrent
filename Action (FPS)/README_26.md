@@ -1,3 +1,107 @@
+###  Публикация: 1249069   (436835) от 22.09.2018
+
+STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сталинградская битва — сражение Второй мировой войны, важный эпизод Великой Отечественной войны между Красной армией, Вермахтом и армией стран «оси». Происходила на территории Сталинграда. Одно из самых кровопролитных сражений второй мировой войны. Сталинградскую битву называли войной снайперов.Разрушенные здания использовались в качестве укрытий, а от врага отделяло (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure (Survival), 1st Person, 3DЯзык озвучки: РусскийЯзык интерфейса: Русский, Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10F47DA85FC4725C4D55A3A26D55D59A28762C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165019   (436393) от 11.09.2017
+
+THORNYWAY (2017) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра THORNYWAY - хардкорный экшн от первого лица. При помощи инновационной механики бега и распрыжки необходимо разогнаться таким образом, чтобы обогнать апокалипсис и добраться до безопасного места, где вы получите награду - альбом одноимённого музыкального коллектива.Тип издания: LicenseРазработчик: Intelligent SystemsЖанр: Action (Survival), 3D, 1st PersonЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC3B4B6D9A1165CC2F36FF30F41E8791BB4E6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063127   (436357) от 15.10.2016
+
+Help (2016) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ваша дочь пропала при исследовании заброшенного бункера. Отправившись на её поиски, вам предстоит встретиться с обитающими в его стенах ужасами, решить головоломки, узнать что произошло в этом месте и найти свою дочь. Всё что у вас есть, это фонарь, заряд которого постоянно уменьшается и рация.Тип издания: RepackРазработчик: biple_kfpЖанр: Action (Horror), 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E8E96549D65740EC0929291E957265A70694E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368572   (435331) от 20.08.2022
+
+DOOM 64 (2020) [Multi] (1.0) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Игра DOOM 64, вышедшая в 1997 году на Nintendo 64, теперь доступна и на ПК. Дайте отпор врагам и уничтожьте Мать демонов, чтобы остановить вторжение сил ада. Преодолейте 30 уровней, отыскивая тайники и собирая крутое оружие, которое поможет вам покончить с демоническими захватчиками.Тип издания: RepackРазработчик: id Software, Nightdive StudiosЖанр: Action (Horror), 1st PersonЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69F7E0B20ED1F2102643E96AB1D225A5B7BB963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063250   (434039) от 16.10.2016
 
 BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
@@ -6,7 +110,7 @@ BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Call of Duty 2 (2005) [Ru] (1.3) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Darkness II (2012) [Ru/En] (1.1) Repack R.G. Механики [Limited Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Earthfall (2018) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Blood: One Unit Whole Blood (1998) [En] (1.21hf/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Serious Sam Anthology (2001-2013) [Ru/Multi] (1.05/1.07/2.080.00/206580/263699/1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Deliver Us The Moon: Fortuna (2018) [En] (1.0.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Wolfenstein [Ru] (Repack/1.1) 2009 | R.G.Spieler
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ BPM: Bullets Per Minute (2020) [En] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ HYPERGUN (2018) [Ru/Multi] (1.1.0.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Don't Knock Twice (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ ECHO (2017) [En/Fr/Ge] (1.0) Unofficial CoolGames
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Medal of Honor (2010) [Ru/En] (1.0.75.0) Rip =nemos= [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Battlefield 3 (2011) [Ru] (1.6.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Medal of Honor Anthology (2002-2012) [Ru/En] Rip/Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Die Young (2019) [En] (1.0.0.20) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +669,6 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1ABF115CB894F4267A5874A3CF21CA67C4B7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189731   (407576) от 06.10.2018
-
-Bulletstorm (2017) [Ru/Multi] (1.1.41044.0/dlc) Repack R.G. Catalyst [Full Clip Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — Грейсон Хант, некогда элитный киллер Dead Echo. После крушения корабля вы оказались на заброшенной планете-курорте Стигия и должны сделать выбор: спасаться или отомстить предателю.Тип издания: RepackРазработчик: People Can FlyЖанр: Action, Shooter, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8923E359105BEAC601C2A311615C9365AD0FE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162350   (407215) от 03.09.2022
-
-Immortal Redneck (2017) [Ru/Multi] (1.3.3) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Immortal Redneck - это шутер с элементами жанра роуглайк, действие которого происходит в Египте. Классические перестрелки от первого лица сочетаются здесь с механиками, свойственными играм жанра роуглайт: бешеный темп, отзывчивое управление и аркадная атмосфера, с одной стороны, и случайно создаваемые подземелья, 9 классов с разными особенностями, дерево навыков (   Читать дальше...   )Тип издания: LicenseРазработчик: Crema GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7AF24EB02DB244AA8742C25D8D3ED56AD3E4BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413687   (406982) от 05.10.2020
-
-Borderlands 3 (2019) [Ru/Multi] (5382210/dlc) License EMPRESS [Super Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оторвитесь на полную! Всеми любимый шутер с горами лута возвращается, приготовив ТОННЫ стволов и безбашенные приключения. Вас — одного из четырех новых искателей Хранилища — ждут ураганные бои в неизведанных мирах с новыми противниками Играйте в одиночку или вместе с друзьями, сражайтесь с совершенно безумными врагами, загрузитесь трофеями под завязку и спасите свой (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action (Shooter), RPG, 1st Person, CoopЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19361146FE5195BCAF70943EF0D77B855034F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301387   (406969) от 05.10.2020
-
-Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающий шутер во вселенной Звездных Войн. Захватывающие массовые баталии по сети и три режима одиночной игры: Сражение, Завоевание Галактики и Исторических компании, содержавших все знаменитые битвы I-IV эпизодов кинофильма. Динамические действия среди ландшафтов родного Татуина и Набу, а также на 8 других планетах. Обзор от первого и третьего лица, управление (   Читать дальше...   )Тип издания: LicenseРазработчик: Pandemic StudiosЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C8F8641FA3BEFD88243B0BF74E9A0E592D0826
 ```
 
 https://mybot314.ru/tekegram_catalog/

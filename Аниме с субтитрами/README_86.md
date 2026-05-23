@@ -1,3 +1,107 @@
+###  Публикация: 1583054   (316657) от 12.10.2022
+
+Kannagi | Kannagi: Crazy Shrine Maidens | Каннаги [2008, TV, 13 + SP] BDRip 720p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В детстве Дзин Микурия любил играть в старом синтоистском храме под вечнозеленой священной нагеей. Парень вырос, храм снесли, а дерево спилили. Художник-любитель Дзин, тонко чувствующий природу и не чуждый сверхъестественного, выпросил кусок священного дерева, чтобы вырезать из него статую девушки. Обняв свое творение, Дзин вознес горячую молитву богам, прося их (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, романтика, мистикаРежиссер: Ямамото ЮтакаПеревод: MatadorЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. + SP по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA0E79F7F3EE347FC2C263BA1CF17BF95569C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259941   (316626) от 05.11.2018
+
+Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каждая семья, в которой растут близнецы, хотя бы раз в своей жизни встречается с вопросом от посторонних людей: "А как вы их отличаете?” Кто-то не знает, что и сказать на это, а у кого-то уже заготовлен стандартный ответ. Но братику из этого аниме такой вопрос лучше не задавать! Иначе вам же будет хуже! Он не только с удовольствием расскажет вам, чем похожи, (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: комедия, повседневность, эттиРежиссер: Кобаяси КосукэПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 3 мин. + OVA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:965425C05F95E7F1CABBF94BB25F2A285109F06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259966   (316624) от 05.11.2018
+
+Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Небольшая короткометражная зарисовка к десятилетию блока NoitaminA, рассказывающая о логотипе канала, весёлом бегающем стуле, который помогает заводить друзей.Производство: студия Studio Colorido / スタジオコロリドЖанр: повседневностьРежиссер: Исида ХироясуПеревод: не требуетсяЯзык озвучки: ЯпонскийСубтитры: нетПродолжительность: 1 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C21F83B8FB1FF85C941D14DE07ABC280E0C9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259962   (316618) от 05.11.2018
+
+Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Милая история, повествующая о Хинате — обыкновенном ученике четвёртого года обучения, и о его попытке признаться в чувствах однокласснице Шигуре.Производство: студия Studio Colorido / スタジオコロリドЖанр: романтикаРежиссер: Исида ХироясуПеревод: TimecraftЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 18 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB55F823D70FE1FF8738E0D2A528515D6F77F822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259942   (316607) от 05.11.2018
 
 Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать в бальный зал [2017, TV, 24 эп.] BDrip 1080p raw
@@ -6,7 +110,7 @@ Ballroom e Youkoso | Welcome to the Ballroom | Добро пожаловать �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Project PAPO | Проект ПАПО [2006, OVA, 2 эп.] BDrip 1080 raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Rain Town | Город дождя [2011, ONA, 1 эп.] BDrip 818p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Hi no Tori: Houou Hen | Phoenix: Karma Chapter | Жар-птица: Глава �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Hi no Tori: Yamato Hen | Phoenix: Chapter of Yamato | Жар-птица: Гла�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Hi no Tori | Phoenix | Жар-птица [2004, TV, 13 из 13] HDTV 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в последне�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Fullmetal Panic! Invisible Victory | Full Metal Panic! Invisible Victory | Ст�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Hi no Tori: Uchuu Hen | Phoenix: Space Chapter | Жар-птица: Глава �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Hi no Tori 2772: Ai no CosmoZone | Phoenix 2772: Cosmos Zone of Love | Жар-п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Mini Pato / Mobile Police Patlabor Minimum / Миниатюрная Полици
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Kidou Keisatsu Patlabor Reboot / Mobile Police Patlabor: Reboot / Полиция
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Choujikuu Seiki Orguss | Super Dimension Century Orguss | Оргусс [1983, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Choujikuu Seiki Orguss 02 | Super Dimension Century Orguss Two: Orguss 02 | Ор
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +530,7 @@ Rinne no Lagrange: Kamogawa Days / Сердца твоего цветы [OVA][20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_315166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +556,7 @@ Tales of Vesperia: The First Strike / Сказания Весперии: Пер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +582,7 @@ Miss Monochrome The Animation / Мисс Монохром [2013, TV, 13] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Scryed / Скрайд [2001, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +637,7 @@ RahXephon TV / Ра-Зефон [ТВ] [2002, TV 26 эп. ] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,110 +676,6 @@ Phantom ~Requiem for the Phantom~ / Фантом: Реквием по Призр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78D090606A79A9FE1367F7C415D385A67248F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 771759   (314795) от 06.11.2020
-
-Noragami / Бездомный бог [2014, TV, 12 + 2 OAD] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ято – бродячий японский бог в образе худощавого синеглазого юноши в спортивном костюме. В синтоизме сила божества определяется числом верующих, а у нашего героя - ни храма, ни жрецов, все пожертвования умещаются в бутылке из-под сакэ. Парень в шейном платке подрабатывает мастером на все руки, малюя объявления на стенах, но дела идут совсем худо. Даже языкастая Маю, (   Читать дальше...   )Жанр: приключения, комедия, мистикаРежиссер: Тамура Котаро / Tamura Kotaro / タムラコータローПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975969A0788CA88020052AC4CC51E17BF5A2F94A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332328   (314362) от 20.10.2019
-
-Minori Scramble! | Переполох Минори! [2012, OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314362.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, в которой рассказывается про девочку по имени Тамаки, которая жутко боится пингвинов благодаря своему отцу. А для того чтобы избавить свою дочь от этих страхов отец прибегает к методу "клин клином вышибают". Весёлая и незатейливая комедия, от студии ufotable.Производство: студия UFO TableЖанр: комедияРежиссер: Нонака ТакуяПеревод: 1) Gilushka & Advokat; 2) Korochun; 3) Shiranai TenshiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 40 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E727C58373D5386A0709FC52AB2B268B0FFB0D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332323   (314238) от 20.10.2019
-
-Joshi Kausei | Беспечные старшеклассницы [2019, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоть в «безмолвном» аниме про старшеклассниц никто и не разговаривает, оно всё равно остаётся милым! Это история о трёх старшеклассницах и их весёлой школьной жизни, а именно о невезучей красавице Момоко, серьёзной девушке в очках по имени Сибуми и о доброй невысокой Маюми. Веселиться можно и поодиночке, и всем вместе. Именно так проводят свои дни глуповатые, но (   Читать дальше...   )Производство: студия Seven / セブンЖанр: комедия, повседневностьРежиссер: Сасаки ТокиёсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C36290F2BC6BB5617709D1FF74CC8F672B8B89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332321   (313986) от 20.10.2019
-
-Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы Гоку | Из якудза в идолы [2018, TV, 10 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о трёх членах якудзы, которые в очередной раз подвели своего босса, в результате чего были поставлены перед страшным выбором: либо совершить самоубийство, либо отправиться в Таиланд на операцию по смене пола и стать группой девушек-идолов. Выбрав второе и пройдя суровую подготовку длиной в год, они успешно дебютировали и даже обрели популярность (   Читать дальше...   )Производство: студия J.C. StaffЖанр: комедияРежиссер: Кон ТиакиПеревод: RisensTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D715929ECC543506A7035789976AB56E2EEC50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1535311   (686433) от 06.03.2022
+
+Chikyuugai Shounen Shoujo | The Orbital Children | Дети на орбите | Внеземные мальчики и девочки [2022, Web, 6 из 6] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2045 год. Искусственный интеллект, интернет и социальные сети получили широкое распространение в космосе. Из-за аварии на недавно открытой японской коммерческой космической станции группа детей осталась в ловушке. Спасения извне ждать не приходится, а их единственная надежда — это едва уцелевший узкополосный канал связи, социальная сеть, бесплатное приложение с низкоуровневым (   Читать дальше...   )Производство: Production +h. / プロダクション・プラスエイチЖанр: приключения, фантастикаРежиссер: Исо МицуоПеревод: Зоя КацоеваЯзык озвучки: японскийСубтитры: русскиеПродолжительность: 1 эп. на 38 мин. + 5 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CDAF202CE3A790075EB7430E2875FB670CC2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029212   (684181) от 25.06.2016
+
+Kuroshitsuji: Book of Circus | Black Butler: Book of Circus | Демон-дворецкий [ТВ-3] [2014, TV, 10] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В доброй старой Англии не только верят в духов и демонов, но и активно с ними сотрудничают. А почему бы нет, ведь «темные силы» людям куда ближе и понятнее. Другое дело, что каждый должен вести себя в рамках приличий и сословных привилегий – что можно простить британскому джентльмену, не позволено простолюдинам, тем более заезжим шутам и фиглярам. Поэтому, когда (   Читать дальше...   )Жанр: детектив, мистикаРежиссер: Абэ Нориюки / Abe Noriyuki / 阿部記之Продолжительность: 10 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AADE24E66EB3AF3DE7750DE41E83AFB567498C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535756   (682502) от 08.03.2022
 
 Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw
@@ -6,7 +58,7 @@ Gunslinger Stratos The Animation | Небесные стрелки [2015, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Kanojo ga Flag o Oraretara | Gaworare | If Her Flag Breaks | Если бы я о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kangoku Gakuen | Prison School | Школа-тюрьма [2015, TV, 12] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Chitose Get You!! | Читосе добьется тебя! [2012, TV, 26] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Denki-gai no Hon`ya-san | Denki-Gai no Honya-san | Книжный магазин
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Uchiage Hanabi, Shita kara Miru ka? Yoko kara Miru ka? | Откуда лучше
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Rokujouma no Shinryakusha!? | Invaders of the Rokujyoma!? | Захватчики
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Military! Шизомилитаризм! [2015, TV, 12] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ One Piece Film Z / Ван-Пис: Фильм двенадцатый [2012, MV] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho | Muhyo & Roji's Bureau of Supernatur
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Muhyo to Roji no Mahouritsu Soudan Jimusho 2 | Muhyo & Roji's Bureau of Supernat
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ RWBY / Red White Black Yellow / Красная, Белая, Чёрная, Жёл
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма голоса [2016, Movie] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Dragon Age: Dawn of the Seeker / Эпоха дракона: Рождение И�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Re:Creators | Возрождающие [2017, TV, 22 эп.] BDrip 1080p 10bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +481,7 @@ Mahou Shoujo Lyrical Nanoha: Reflection | Magical Girl Lyrical Nanoha: Reflectio
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +507,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +534,7 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +612,7 @@ Leadale no Daichi nite | In the Land of Leadale | На просторах Лид
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +638,7 @@ Planetarian: Chiisana Hoshi no Yume | Planetarian: The Reverie of a Little Plane
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +664,7 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,59 +675,6 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222C152641E4EA9DE674012CBB3182E9C6EC26C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857688   (657343) от 31.05.2015
-
-Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых тонах [2014, TV, 13 эп. + 6 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юдзи Кадзами в 10 лет потерял родителей и был воспитан людьми, для которых писаные законы – пустой звук, а чужие жизни – что трава на ветру. Творя разное, парень быстро познал законы темного мира, и ныне его разум отточен, рефлексы – совершенны, а принципы гибки, как стальной клинок. Но даже сталь имеет предел усталости, и «рыцарь ночи» обратился к знакомой хозяйке (   Читать дальше...   )Производство: 8bitЖанр: романтика, комедия, драма, триллерРежиссер: Танака МотокиПеревод: TimecraftЯзык субтитров: Русский (отключаемый)Продолжительность: 13 серий по 24 минуты + 6 спешиалов по 5 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7D650F5F73EBA44E5F69A82FB64537536F104E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539815   (656115) от 27.03.2022
-
-Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группировка противника собирает магатамы, которые получает в основном через силовое изъятие.
-Группа наших героев собралась в кружок чтобы обсудить мотивы Химико и планы противника, и после собрания все единогласно решили пойти на школьную экскурсию, горячие источники посмотреть и свои достоинства показать. Но, как оказалось, враг не дремлет, поэтому это школьную (   Читать дальше...   )Производство: Студия Arms / アームスЖанр: приключения, эттиРежиссер: Ватанабэ ТакасиПеревод: KajitsuЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B21DE6D17482B7FF1D84A0E2B67458DEB9F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

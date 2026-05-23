@@ -1,3 +1,55 @@
+###  Публикация: 1251713   (831120) от 04.05.2020
+
+NG. Линии Наска: Погребенные секреты. Древние тайны / Nasca Lines. Ancient Secrets (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Величайшая тайна перуанской пустыни Атакама - геоглифы на плато Наска, которым уже более 1000 лет, и которые видны только с воздуха. С помощью первых 3D-карт этих ставших культовыми очертаний, а также после разгадки тайны захоронения человека без головы, археологи и ученые предположили, что геоглифы использовались индейцами Наска в качестве своеобразных храмов под (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Филип ДэйПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43EE00378DDF474C63FDAE6DE2222F0B02E80464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544455   (830588) от 05.04.2014
+
+BBC: Живая Природа. Райские птицы / BBC: Natural World. Birds of Paradise (2010) BDRip [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Эти создания столь прекрасны, что они казались людям спустившимися с небес, не столь удивительно, что европейцы впервые увидев их, посчитали птиц обитателями райского сада Эдема. Этим Эдемом была Новая Гвинея обитаемый остров, который еще не исследовали европейцы и поныне эти великолепные создания можно найти только здесь. Речь идет о невиданных птицах их красота (   Читать дальше...   )Производство: Великобритания / Tigress ProductionsЖанр: ДокументальныйРежиссер: Харви ДжонсПеревод: ДублированныйСубтитры: АнглийскиеПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0642B0F715C88FA52453FD4CCC0ACA4EB3AC19D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534437   (830510) от 05.04.2014
 
 BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Disc Edition]
@@ -6,7 +58,7 @@ BBC: Планета Земля / BBC: Planet Earth (2006) [1080p] Blu-ray [4-Dis
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +84,7 @@ NG. Игры разума / Brain Games (2013) HDTVRip [H.264/720p] [Сезон 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +110,7 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Nat Geo Wild: В опасных водах Австралии. Обед для �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG: Следующее мегацунами / The Next Mega Tsunami (2014) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Nat Geo Wild: Маленькие убийцы / Little Killers (2015) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Animal Planet. Логово крокодилов-убийц / Lair of the Killer
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +241,7 @@ NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (19
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +319,7 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +346,7 @@ NG: Панорама 360° Объект всемирного наследия / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +398,7 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +450,7 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +557,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +583,7 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +639,7 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +667,7 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,60 +678,6 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22850954F6C9ACD6B1F37214512394B14C0091A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503573   (819248) от 19.10.2021
-
-BBC Horizon: Вкусная еда без вреда для планеты / Feast to Save the Planet (2021) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819248.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 июня отмечается Всемирный день окружающей среды. В 2021 году девизом праздника стали слова «Воссоздать. Переосмыслить. Восстановить». В этом фильме мы расскажем, как каждый из нас может переосмыслить свой рацион, чтобы снизить его негативное воздействие на природу.
-
-На продукты питания приходится треть всего объёма выбросов парниковых газов. Многие готовы делать (   Читать дальше...   )Производство: Великобритания / British Broadcasting Corporation (BBC) StudiosЖанр: ДокументальныйРежиссер: Линдон БрюсПеревод: Многоголосый профессиональный (BBC News Русская служба)Субтитры: ОтсутствуютПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F67FD0D413BB947AA65BA200C41F21D0AB878CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858258   (819162) от 16.04.2016
-
-NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия из 4]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны Креста - это цикл из четырех программ о христианских секретах, которые веками будоражили умы людей. Истории, которые повлияли на формирование западной культуры, скрупулезно изучаются в виду выявления новых исторических фактов. Передачи представляют собой анализ Евангелие, на который авторов подвигла книга . Всем известные рассказы из воскресной школы будут (   Читать дальше...   )Жанр: Документальный, религия, история, археология, исследованиеПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 4 x ~ 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8160DD8DA9487F961685BE62FDC6EFF919C65E
 ```
 
 https://mybot314.ru/tekegram_catalog/

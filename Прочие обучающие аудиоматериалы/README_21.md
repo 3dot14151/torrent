@@ -1,3 +1,84 @@
+###  Публикация: 1180214   (341971) от 03.11.2017
+
+Джаред Даймонд | Ружья, микробы и сталь (2017) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Автор – знаменитый американский ученый. Газета New York Times назвала его «Дэном Брауном научной литературы». Книга удостоена Пулитцеровской премии в номинации нехудожественная проза.
+Почему евразийские цивилизации занимают доминирующее положение в современном мире?
+Почему европейская, а позже и евро-атлантическая цивилизация добились самых грандиозных успехов в (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 14:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAC6E65B68CDF7B68FFBB59C312F5445AFBF4A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419181   (341849) от 27.10.2020
+
+Наталия Басовская | Древний мир. Все герои мировой истории (2020) [MP3]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Истории жизни всех самых интересных и ярких исторических личностей, рассказанные известным историком Наталией Басовской. Истории жизни всех самых интересных и ярких исторических личностей, рассказанные известным историком Наталией Басовской собраны в этой книге. Герои, злодеи, роковые женщины, владыки полумира и бунтари любили, ненавидели, боролись, проигрывали и (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 09:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C5FA0D95DBFF2F15AC5DC7C196E3A513BE8336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578931   (340952) от 25.09.2022
+
+Лариса Новикова | Правильность русской речи. Справочник по культуре речи. Часть 01 (2019) [MP3, Сергей Рыжков]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Справочнике представлены актуальные виды норм культуры речи: акцентологические, произносительные, лексические, морфологические, синтаксические. Материал подан в форме блоков: теоретическая часть сжата до уровня «справок», нормы представлены в форме схем, таблиц, тезисов, перечней слов.
+Каждый раздел сопровождается очерками «лингвистической переменки», в которых (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 08:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3302A00098125CB6FE6F0A5E8C39F92744B590F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257684   (340895) от 28.10.2018
 
 Бхагаван Шри Раджниш (Ошо) | Мудрость песков. Беседы о суфизме (2017) [MP3]
@@ -6,7 +87,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -522,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,85 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86EB06712138514EEDA182850B1221C67925A510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331940   (313863) от 20.10.2019
-
-Грегг Брейден | Эволюция и подсознание. Как наше прошлое определяет будущее. Человек – дитя вселенной (2019) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга оспаривает теорию Дарвина и предлагает другой ответ на вопрос происхождения человека: «Как мы стали теми, кто мы есть?» По мнению автора, ответ важен для повседневной жизни каждого человека: он определяет фильтр, через который мы смотрим на других людей, окружающий мир и, главное, самих себя.
-Книга включает богатый исследовательский и документальный материал, (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 08:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F5DDC4D3BEF6E0716947F4A24BB8FA69119C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183288   (310082) от 13.11.2017
-
-Елена Руцкая | Организация работы по домоводству и самообслуживанию (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сохранение самостоятельности в быту — естественное желание каждого утратившего зрение, поэтому в осуществлении элементарной реабилитации инвалидов по зрению одно из основных мест занимает обучение умениям и навыкам самообслуживания и домоводства на суженной сенсорной основе.Жанр: Учебное пособиеПродолжительность: 03:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032850C8390C252C4C15C5F965205A89D6FE66FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183242   (309675) от 13.11.2017
-
-Садхгуру (Джагги Васудев) | Собрание переведенных и озвученных отрывков лекций (2017) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садхгуру (Джагги Васудев) - индийский йогин и мистик. Он основал «Фонд Иша», благотворительную организацию, которая проводит программы йоги по всему миру, включая Индию, США, Англию, Ливан, Сингапур, Канаду, Малайзию, Уганду и Австралию. Фонд также вовлечён в различные социально-общественные инициативы, в результате которых ему был присвоен особый консультативный (   Читать дальше...   )Жанр: Документальный, ФилософияПродолжительность: 05:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC99DD60EA3AE1441454DE78D9943C67008BD53
 ```
 
 https://mybot314.ru/tekegram_catalog/

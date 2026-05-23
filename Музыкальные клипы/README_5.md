@@ -1,3 +1,119 @@
+###  Публикация: 975752   (970575) от 16.01.2016
+
+VA - Зимний марафон № 219: Самые сливки Нового года (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Зимние (15.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adriana - Just stay (Official Video) (00:03:03)
+02. Arash - Ba Man Soot Bezan (Official Video) (00:03:54)
+03. Barbee - Stranger (Official Video) (00:03:22)
+04. Catey Shaw - The Ransom (Official Video) (00:03:56)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Trance, Indie, PunkПродолжительность: 01:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A7ACD558D137A28D2B2CB5BFC4644DAF5EF3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357933   (969634) от 07.02.2020
+
+Babooshka (Александр Константинов) - 7 Music Videos (2019-2020) [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+001 Babooshka 2018 Материнский капитал
+002 Babooshka 2019 Детей надо чикать!
+003 Babooshka 2019 Надо больше церквей!
+004 Babooshka 2019 Отмороженные во Христе(   Читать дальше...   )Производство: GARDEGROB studioЖанр: православное дискоПродолжительность: 00:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10FE7B6CC230E368A7E5F89DDAD3D77097C0C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357808   (969633) от 07.02.2020
+
+Мы не оставим города свои! Песни донбасской войны - Video Release (42 Music Videos) (2017) WEB-DL [H.264/480p/720p/1080p]-LQ
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+CD1-Video Release (21 Music Videos) 01:20:37
+
+01 Александр Ф. Скляр - Миллионы (Когда война на пороге)
+02 Зверобой - Едут-едут БТРы(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopАктеры: VariousПродолжительность: 02:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBC14981F32EC491D4D1CCA5D30E5CDBD5D2E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358393   (969394) от 07.02.2020
+
+Сборник клипов - Rock & Pop Ballads от ALEXnROCK часть 1 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Именно с этого сборника клипов всё и началось 9 лет назад. Я собирал его для девушки, которую очень любил и вложил в него всю свою душу. Каждый кто любил по настоящему найдет в нем частицу себя. Со временем доработал обложку, улучшил качество клипов и немного поправил треклист, но энергетика и посыл остались те же. Это 1я часть.00. Rock & Pop Ballads 1 — Intro
+01. Bryan Adams — Please Forgive Me
+02. Mr. Big — Wild World
+03. Рондо — Я буду помнить(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6971B75E0D794500BEDAC21423048A47012E770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618406   (969258) от 14.02.2013
 
 Сборник видеоклипов / Clips DISCO (Hits 1970-1996) TVRip
@@ -6,7 +122,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +149,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +175,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +201,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +230,7 @@ Paramore -  Now (2013) [1080p] HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +334,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +360,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +418,7 @@ BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +473,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -386,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -415,7 +531,7 @@ VA - Зимний марафон № 221: Продвинутые Зимние Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -444,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -473,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +618,7 @@ Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +644,7 @@ ABBA – Number Ones (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +673,7 @@ R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +702,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,119 +716,6 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65C6D3505519DDE03B90B82B56F33B30AF2C2B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980011   (957198) от 28.01.2016
-
-Mylene Farmer – Music Videos II & III (2000) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Que Mon Coeur Lache (6:44)
-02.	XXL (4:34)
-03.	L'Instant X (4:22)
-04.	California (5:18)(   Читать дальше...   )Жанр: Pop, RockПеревод: ОтсутствуетПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8825368FFEE8DD10B56E6B084F9659F87EB4F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171590   (956547) от 02.02.2010
-
-Eruption - One Way Ticket (1979) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших песен группы - "One Way Ticket" (1978), более известной в СССР под названием "Синий иней" и исполнявшаяся многими ВИА. Автором песни был Нил Седака, который впервые издал эту песню в 1970 году. Однако помнят эту песню именно в исполнении Eruption.Жанр: PopПродолжительность: 2:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622402   (955877) от 26.02.2013
-
-"O2label"/Strannik (vol.2.) (2013) HDTV [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Of The Glimmered Fires
-02. Diamonds Sky (History Of Love)
-03. Expedition To The Sun
-04. Horizon On The Planet Thor(   Читать дальше...   )Жанр: Музыка, New Age, Electronic, Downtempo, Chillout, SpaceПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBE0383BDDD1EE0F57EB62372960D5DCDA0B64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 622984   (955675) от 26.02.2013
-
-"O2label"/Label O2 and...(vol.1) (2013) HDTV [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LastEDEN - Sunrise
-02. Power Of Melody - Planet Enigma
-03. Power Of Melody - Cosmic Man
-04. Power Of Melody - The Poisoned Planet(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, ChilloutПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C509827579CC3DC51504F3AE7B246F701E5D1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

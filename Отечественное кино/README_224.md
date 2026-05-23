@@ -1,3 +1,109 @@
+###  Публикация: 530501   (153279) от 21.12.2018
+
+Барышня-крестьянка (1995) DVD5 [Реставрация КП]
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В соседское имение приезжает молодой барин. Лиза хочет познакомиться с красавцем, но их отцы не общаются, давно затаив обиду друг на друга. Девушка, зная о том, что молодой барин любит по утрам объезжать лес, переодевается в крестьянское платье и рано утром, прихватив лукошко, идёт в лес…Жанр: МелодрамаРежиссер: Алексей СахаровАктеры: Елена Корикова, Дмитрий Щербина, Леонид Куравлев, Василий Лановой, Екатерина Редникова, Людмила Артемьева, Евгений Жариков, Вадим Захарченко, Елена Котхина, Алексей ШадхинПродолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D4E8B3A1930BCE75980C3D07227F2BC1B90853
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194726   (152985) от 26.12.2017
+
+Холодное танго (2017) BDRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Он чудом избежал смерти, чтобы вернуться в дом, где родился. В дом, в котором теперь живет любовь всей его жизни. Но надежда на счастье оборачивается страшным открытием. Его возлюбленная — дочь его врага.Производство: Россия / Кинокомпания «Слон»Жанр: мелодрама, военный, драма, историяРежиссер: Павел ЧухрайАктеры: Юлия Пересильд, Риналь Мухаметов, Карина Каграманян, Сергей Гармаш, Елисей Никандров, Ася Громова, Моника Санторо, Валерия Ткаченко, Андрюс Бялобжескис, Мария МалиновскаяПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D824BAA8DD7EC22B008791A62F260626C727E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194779   (152772) от 26.12.2017
+
+Время первых (2017) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>Отечественное кино
+>>Отечественные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+60-е. Разгар холодной войны. Две супердержавы, СССР и США бьются за первенство в космической гонке. Пока СССР впереди, на очереди — выход человека в открытый космос.
+За две недели до старта взрывается тестовый корабль. Времени на выявление причин нет. И пусть риски огромны, мы не можем уступить лидерство.
+Опытный военный летчик Павел Беляев и его напарник Алексей (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: приключения, триллерРежиссер: Дмитрий КиселёвАктеры: Евгений Миронов, Константин Хабенский, Владимир Ильин, Анатолий Котенёв, Александра Урсуляк, Елена Панова, Александр Новин, Марта Тимофеева, Геннадий Смирнов, Юрий НифонтовПеревод: Не требуется (Русский, Лицензия BD 3D Ger)Субтитры: ОтсутствуютПродолжительность: 02:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E178775BDC79EE61D4DC6256307ABBAE18A51C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347172   (152730) от 22.12.2019
+
+Машина любви (2016) WEBRip [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Интимная драма о разных сторонах любви: нежности, страсти, ее магии и ловушках. Поэтическое путешествие в сферу подсознательного переплетается с автобиографической историей об отношениях и расставании, где реальные герои — режиссер Руминов и его бывшая девушка — играют самих себя.Производство: Россия / America VideoЖанр: драмаРежиссер: Павел РуминовАктеры: Наталья Анисимова, Павел Руминов, Андрей Назимов, Мария Лаврова, Рафаэль ДурнонянСубтитры: английские (хардсаб)Продолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC764BF6BE525458364A7040F2F3AEDB6961935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677075   (152619) от 16.11.2023
 
 Я делаю шаг (2023) WEB-DLRip
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45AC43D8E3AB916D2169703BB3224AD9FC287E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677721   (149958) от 18.11.2023
-
-Дух Байкала (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В надежде отвлечь мальчика от утраты матери, отец везёт его к дедушке на зимнюю рыбалку. Но семья попадает в пургу и теряется на льду самого большого озера мира. Преодолеть горе и найти друг друга им поможет любовь и таинственные силы Байкала.Производство: Россия, NikaЖанр: приключения, драмаРежиссер: Михаил РасходниковАктеры: Илья Рязанов, Мосэ Куртанидзе, Олег Бабуев, Анастасия Цветкова, Диана АнкудиноваСубтитры: ОтсутствуютПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB465DA18C5658B171A17D8618AEA45F25B90D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439067   (149921) от 18.11.2023
-
-Подлец (2015) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня фильма Юлия красива, загадочна и… безнадёжно одинока. Она живёт вместе с мамой в доме, где царит настоящий культ покойного отца-военного, мощного, сурового человека. И редкого, судя по всему, идиота. Никто из встреченных Юлей мужчин не соответствует столь высокой планке. Но мама решительно настроена выдать дочь замуж. И вот в один прекрасный день (   Читать дальше...   )Производство: Россия / Мосфильм, Киностудия "Курьер"Жанр: Комедия, драмаРежиссер: Михаил Левитин-мл.Актеры: Ольга Левитина, Владимир Вдовиченков, Лев Дуров, Ольга Остроумова, Валентин Гафт, Маргарита Шубина, Сергей Фролов, Юлия Куварзина, Денис Курочка, Николай АверюшкинСубтитры: ОтсутствуютПродолжительность: 01:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710E47D8A3B7B8A877B5D089E7E21CF22B437DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677658   (149852) от 18.11.2023
-
-Гардемарины 1787. Мир (2020) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крым, 1787 год. Несмотря на Манифест российской императрицы Екатерины и Кючук-Кайнарджийский мирный договор, которые соединили Крым с Россией, Европа продолжает плести интриги, пытаясь разорвать этот союз. Использованы все приемы — от бесстыдных сплетен, слухов и лживых статей в газетах до грязных манипуляций с незаконнорожденным сыном государыни, посланным в Европу (   Читать дальше...   )Производство: Россия, Сагиттариус - ДЖанр: приключения, историяРежиссер: Светлана ДружининаАктеры: Дмитрий Харатьян, Александр Домогаров, Михаил Мамаев, Кристина Орбакайте, Михаил Боярский, Анастасия Макеева, Анна Семенович, Ольга Машная, Всеволод Шиловский, Александр Панкратов-ЧёрныйСубтитры: ОтсутствуютПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34421901244717EC87C2F395B3C579F360DA0EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589382   (149846) от 14.12.2012
-
-Джунгли (2012) [H.264] DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149846.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Сергея и Марины в семейной жизни наступил кризис. Во время одной из ссор, они решают поехать в экзотическое путешествие. Всю дорогу между супругами не утихают ссоры, которые в конце концов приводят к тому, что они оказываются на необитаемом острове, затерянном в океане. Вместо того чтобы вместе бороться за выживание, наши герои продолжают выяснять отношения, постепенно переходя к настоящим боевым действиям. В довершение несчастий оказывается, что остров населен племенем воинствующих туземцев.Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Александр ВойтинскийПродюсер: Сергей Сельянов, Александр Войтинский, Михаил ВрубельАктеры: Сергей Светлаков, Вера Брежнева, Александр МакогонПеревод: Не требуетсяПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681B0879F71E08F8DFCFD3FAEC4C73AAD9FB89A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

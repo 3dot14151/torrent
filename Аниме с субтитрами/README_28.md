@@ -1,3 +1,107 @@
+###  Публикация: 1371866   (888377) от 01.04.2020
+
+Batman Ninja | Бэтмен-ниндзя [2018, Movie] BDRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Горилла Гродд, заклятый противник Бэтмена, создаёт машину перемещения во времени и с её помощью закидывает Тёмного Рыцаря, включая некоторых его союзников и многих злейших врагов, во времена феодальной Японии. Там его враги принимают на себя роли феодальных вассалов с Джокером во главе угла. Привычные высокотехнологичные гаджеты Бэтмена становятся здесь бесполезны, (   Читать дальше...   )Жанр: приключения, фантастикаРежиссер: Мидзусаки ДзюмпэйПеревод: UGN SUBZ Translators (субтитры сделаны под английскую озвучку)Язык озвучки: #1: Японский; #2: Английский;Субтитры: #1: Русские; #2: Английские;Продолжительность: 85 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBF0892EAF1E8FF9DF3EA6F3CC6D3AF884B499C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308175   (888329) от 01.04.2020
+
+Girly Air Force | Девичьи воздушные силы [2019, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Когда на человечество напали загадочные летающие объекты Дзай, понадобилось оружие для противостояния им. Так началась разработка особых истребителей Дочерей, пилотами которых стали похожие на девушек механизмы Анимы. Старшеклассник Кэй Нарутани плыл в Японию, когда на корабль напал Дзай. Во время эвакуации Кэй видит светящийся красным истребитель, который сбивает (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: приключенияРежиссер: Оно КацумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:074CD6AE070E272F074D49567E50E4BEEF71C428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354840   (888115) от 01.04.2020
+
+Runway de Waratte | Smile Down the Runway | Улыбайся на подиуме [2020, TV, 12] WEBRip 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+У Чиюки Фудзито есть мечта — стать моделью и выступить на неделе моды в Париже. Но героиня столкнулась с большой проблемой, которая, казалось, может поставить крест на мечте: её рост остановился на 158 см. У её одноклассника, бедного парня по имени Икуто Цумура, тоже есть мечта — стать модельером. Это история о двух людях, которые искренне следуют за своими мечтами, (   Читать дальше...   )Производство: EzolaЖанр: повседневностьРежиссер: Нагаяма НобуёсиПеревод: Wakanim (дехардсаб legion-mia)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB950D243CADD232E6CAAA66C39DDEFF0188ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350928   (887914) от 01.04.2020
+
+Pet | Питомец [2020, TV, 13 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Существуют в мире люди, обладающие способностью проникать в разум людей и управлять их воспоминаниями. Такие способности очень полезны для решения загадок и раскрытия преступлений, но страшно то, что их можно также использовать и для убийств. Мощь подобных способностей может быть настолько велика, что в состоянии просто-напросто уничтожить человеческий разум. Однако (   Читать дальше...   )Производство: Geno StudioЖанр: мистика, психология, сверхъестественное, сэйнэнРежиссер: Омори ТакахироПеревод: Arashi-sama & Nika_Elrik (YakuSub Studio)Язык озвучки: ЯпонскийПродолжительность: 13 эпизодов по ~25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E6B5FFAD737F5D8F8E7702D6E4EE07DE087674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 182962   (887853) от 21.03.2010
 
 Seto no Hanayome / My Bride is a Mermaid / Морская Невеста [2007, TV, 25] BDrip 1080p raw
@@ -6,7 +110,7 @@ Seto no Hanayome / My Bride is a Mermaid / Морская Невеста [2007, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +138,7 @@ Flying Witch / Полет ведьмы [2016, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +165,7 @@ Overlord | Повелитель [2015, TV, 13 + 8 sp] BDRip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Last Exile / Изгнанник [2003, TV, 26 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Death Parade / Парад смерти [2015, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Code Geass Hangyaku no Lelouch / Код Гиас: Восставший Лелу�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Musekinin Kanchou Tylor: Tokubetsu Hen - Hitoribocchi no Senso | The Irresponsib
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +322,7 @@ Bishoujo Yuugekitai Battle Skipper | Battle Skipper School | Школа воен
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Ai Tenchi Muyou! / Тэнти - лишний! Любовь [2014, TV, 50 + 10 SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +374,7 @@ Hai to Gensou no Grimgar / Гримгал пепла и иллюзий [2016, TV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Code Geass Hangyaku no Lelouch R2 / Код Гиас: Восставший Лел
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +428,7 @@ Bungou Stray Dogs / Великий из бродячих псов [TV-1] [2016, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +454,7 @@ Black Magic M-66 | Черная магия М-66 [1987, OVA] DVDRip 576p 10bit r
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +480,7 @@ Oda Cinnamon Nobunaga | Ода Корица Нобунага [2020, TV, 12 эп.
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +506,7 @@ Re: Zero - Director`s Cut | Re: Zero kara Hajimeru Isekai Seikatsu - Shin Henshu
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +532,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Chihayafuru 3 | Игра Тихайи 3 | Яркая Тихайя [ТВ-3] [2019
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Ashita Sekai ga Owaru to Shite mo | The Relative Worlds | Связанные м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь с нуля �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Gakkou Gurashi! | School-Live! | Школьная жизнь! [2015, TV, 12 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -569,113 +673,6 @@ Gakkou Gurashi! | School-Live! | Школьная жизнь! [2015, TV, 12 эп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D5241EC998660F3FAF9643BCFA3FC62DCC4A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495350   (882293) от 11.09.2021
-
-Haha o Tazunete Sanzenri | 3000 Leagues In Search of Mother | 3000 лиг в поисках матери [1976, TV, 52 из 52] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в конце XIX века. Мальчик по имени Марко живёт со своей семьей в порту города Генуя (Италия). Его отец, Пьетро Росси, — врач, который всё свое время посвящает лечению бедных пациентов, поэтому семья испытывает финансовые трудности. Мать Марко, Анна Росси, отправляется в Аргентину, где нанимается на работу служанкой. Через некоторое время от неё (   Читать дальше...   )Производство: Nippon Animation / 日本アニメーションЖанр: приключения, драмаРежиссер: Такахата ИсаоПеревод: ЕленаЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 52 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC21D383C0C7E532EDDA6791231FA892971DCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495514   (880615) от 12.09.2021
-
-Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880615.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху Хэйсэй Сакура Минамото вместе с другими девушками-зомби провела концерт в выставочном зале Фурусато Карацу, Арпино, на пятьсот зрителей. Тогда их популярность взлетела до небес, первый диск продавался как горячие пирожки!
-Они выступали на множестве различных площадок, а месяц спустя их продюсер Котаро Тацуми решил устроить концерт на стадионе недвижимости (   Читать дальше...   )Производство: MAPPAЖанр: комедияРежиссер: Сакай МунэхисаПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5562090083B63D40FD8F6BFB2871E71B2D69E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373354   (880336) от 06.04.2020
-
-Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, монстр могучей природы [1984, Special, 1 эп.] BDRip 720p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Баги, «монстр могучей природы» – продукт генетического моделирования, гибрид человека и пумы, сверхчеловек или сверхкошка, существо доверчивое, трогательное и смертельно опасное.
-Пытаясь найти своих «родственников» (таких же мутантов, как она), Баги ввязывается сама (и втягивает своего единственного друга, мальчика Рёсукэ) в конфликт с секретной правительственной (   Читать дальше...   )Производство: студия Tezuka Productions / 手塚プロダクションЖанр: приключения, фантастика, романтикаРежиссер: Тэдзука ОсамуПеревод: Orphan-M74; 1) Andy Switch 2) filmov 3) KirЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 86 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FD59FD8CD82918498B5E176E21562DA1F1D6AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373355   (880335) от 06.04.2020
-
-Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, монстр могучей природы [1984, Special, 1 эп.] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Баги, «монстр могучей природы» – продукт генетического моделирования, гибрид человека и пумы, сверхчеловек или сверхкошка, существо доверчивое, трогательное и смертельно опасное.
-Пытаясь найти своих «родственников» (таких же мутантов, как она), Баги ввязывается сама (и втягивает своего единственного друга, мальчика Рёсукэ) в конфликт с секретной правительственной (   Читать дальше...   )Производство: студия Tezuka Productions / 手塚プロダクションЖанр: приключения, фантастика, романтикаРежиссер: Тэдзука ОсамуПеревод: Anime Sols; 1) Andy Switch 2) filmov 3) KirЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 86 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034E887C1A28AFC231416F79C57A752BD0C5413B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1216463   (747391) от 01.04.2018
+
+World War II Combat: Road to Berlin / Дорога на Рейхстаг (2006) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вторая мировая война близится к своему завершению. Армии СССР рвутся к горящему Берлину, одерживая одну победу за другой. В это время командованию американской стратегической службы становится известна шокирующая информация: по личному указу Сталина советские войска, невзирая на многочисленные потери, должны первыми войти в Берлин, дабы единолично завладеть материалами (   Читать дальше...   )Тип издания: LicenseРазработчик: Direct Action GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7DFC2E66F6F96701D284674A1C98B09312A911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396478   (746644) от 15.07.2020
+
+Adam - Lost Memories (2020) [En] (2.0.1) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основано на реальных событиях. Adam - Lost Memories - психологическая игра ужасов, основанная на реальной истории, которая произошла со мной, когда я был ребенком. Страх в реальной жизни - это не зомби, которые хотят съесть твой мозг, или призрак, который вернулся из жизни после смерти, чтобы открыть твой холодильник, пока ты спал. Настоящий страх - это когда ты (   Читать дальше...   )Тип издания: LicenseРазработчик: Adam DubiЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0A2673E0DCC317B0248492FFBFAC21B4F04B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129108   (745766) от 02.04.2018
+
+Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) Repack Other s
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы - Blake Langermann, оператор работающий со своей женой, Lynn. Вы двое, - журналисты-расследователи, готовые рисковать и копнуть поглубже, чтобы раскрыть истории, в которые никто не посмел бы влезть. Вы исследуете цепочку улик, которая началась с, казалось бы, невозможного убийства беременной женщины, известной только, как Jane Doe. Расследование привело вас в (   Читать дальше...   )Тип издания: RepackРазработчик: Red BarrelsЖанр: Adventure, Action (Survival horror), 3D, 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99FEBB34BFFB773B8CB79A80A95714859F683A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396802   (743665) от 17.07.2020
+
+Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) SteamRip =nemos= [Enhanced Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Space Hulk: Deathwing – игра в жанре шутер от первого лица (FPS), основанная на классической настольной игре Space Hulk от Games Workshop. Действие игры происходит во вселенной Warhammer 40000. Проект Space Hulk: Deathwing разработан на технологии Unreal Engine 4 и дает вам шанс вступить в яростную схватку с Генокрадами в тесных коридорах Космического скитальца в (   Читать дальше...   )Тип издания: SteamRipРазработчик: Streum On StudioЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9097BFB239B33D979386769BC259E886BEA5BFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260126   (743163) от 13.02.2019
 
 HEVN (2018) [En] (1.0.4.1) License CODEX
@@ -6,7 +110,7 @@ HEVN (2018) [En] (1.0.4.1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Welcome to the Game II (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Kartong - Death by Cardboard! (2018) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Jackal (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Space Hulk: Deathwing (2018) [Ru/Multi] (2.44/dlc) Repack xatab [Enhanced Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dead Island Riptide (2013) [Ru/Multi] (1.4.1.1.13/dlc) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ World War Z (2019) [Ru/Multi] (1.70/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Typing Of The Dead: Overkill (2013) [Ru/En] (1.0u1) Repack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Cubers: Arena (2020) [Ru/Multi] (9043596) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ On The Verge II (2020) [Ru/En] (1.5) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Hellpoint (2020) [Ru/Multi] (0.284) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2491/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_733263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.09/dlc) Repack Other s [Ultimate Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Battlefield 1942 + Battlefield 1942: Secret Weapons of WWII + Battlefield 2 Powe
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Dead Island: Riptide - Definitive Edition (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.1464/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dead Island Definitive Edition (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Investigator (2016) [Ru/En] (1.14/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17495) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8CF760C915B4937F3A5081E7C620A81C5AB29C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122692   (721931) от 28.04.2017
-
-Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fighter Bundle]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homefront®: The Revolution — После 4-х лет оккупации Америка на коленях. В Филадельфии, бывшей родине независимости, с жителей не спускают глаз, подавляя любое инакомыслие. Некогда гордые граждане живут в полицейском государстве и вынуждены выживать; мечты о свободе давно угасли. Однако в бесплодных землях Красной Зоны формируются силы Сопротивления. Партизаны готовы (   Читать дальше...   )Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8AB014A2D46542A191DD6787386E6FD7208C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023810   (721491) от 06.06.2016
-
-Dead Island: Riptide (2016) [Ru/Multi] (1.0) Repack YelloSOFT [Definitive Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Island Riptide Definitive Edition – переиздание, состоящее из серьезно улучшенной версии зомби-экшена Dead Island Riptide и всех выпущенных DLC. Dead Island Riptide является спин-оффом Dead Island, который разработан на улучшенном движке. В игре появилась новая система погоды, включающая наводнения и необходимость преодолевать кишащие зомби реки на маленьких (   Читать дальше...   )Тип издания: RepackРазработчик: TechlandЖанр: Action, 1st Person, 3D, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35539DA8C51BAAAA88AF65BFA554E3434556E216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185301   (720897) от 10.04.2018
-
-Megaton Rainfall (2017) [Ru/Multi] (1.08) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегатонный Ливень - игра в супергероя от первого лица. Вы один на один с глобальным инопланетным вторжением. Гоняйтесь на сверхзвуковой скорости за орудиями массового поражения вокруг Земли - огромной, как настоящая. Затем уничтожьте устройства врагов мегамощными взрывами. Старайтесь не убивать людей! Вы так сильны, что если промахнетесь - снесете полгорода!Тип издания: LicenseРазработчик: Pentadimensional GamesЖанр: Экшн, От первого лица, SandboxЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB7156B8DF7ACB8F3C26681A709D18446CB7A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129618   (719992) от 29.04.2017
-
-Serious Sam: The Second Encounter / Serious Sam. Второе пришествие (2002) [En] (1.07) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэм возвращается, чтобы снова сразиться с заклятым врагом Менталом. Отыскав космический корабль сирианцев в Древнем Египте, Сэм Стоун угнал его и начал преследовать Ментала. Но, к сожалению, звездолет потерпел крушение в горах Южной Америки. Теперь, окруженный еще более могущественной армией Ментала, Сэм пытается проложить себе дорогу к его крепости, чтобы раз и (   Читать дальше...   )Тип издания: LicenseРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5E6916CF119FAD13C2777B21A67880CB80A7CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

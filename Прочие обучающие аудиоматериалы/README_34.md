@@ -1,3 +1,82 @@
+###  Публикация: 1701192   (116520) от 20.02.2024
+
+Кристина О‘Крейн | Страстное искусство (2021) [MP3, Марина Кузнецова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В аудиокниге художники превращаются из абстрактных больших художников и творцов в людей, которые любят, боятся и совершают ошибки. Можно ли быть настоящим творцом без любви? Без сердечного трепета, ощущения, что готов вечностью дышать в одно дыхание с любимой? Автор аудиокниги «Страстное искусство» Кристина О’Крейн рассказывает трогательные и страстные истории любви (   Читать дальше...   )Жанр: ИскусствоведениеИздательство: Аудиокнига АСТПродолжительность: 05:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14980268F135D19603EB3948731912378730BEE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701667   (116211) от 22.02.2024
+
+Хайно Фальке | Свет во тьме (2023) [MP3, Максим Суслов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В апреле 2019 г. первое в истории изображение черной дыры покорило сердца четырех миллиардов телезрителей по всему миру. Знаменитый ученый-астрофизик Хайно Фальке вместе с научным журналистом Йоргом Рёмером рассказывает слушателям полную предысторию создания этой эпохальной фотографии!
+В апреле 2019 года около четырех миллиардов человек по всему миру смогли увидеть (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Издательство CorpusПродолжительность: 11:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3951B0F645A2A0CCC73FF1BDB7ABB51AD1126D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701922   (116008) от 23.02.2024
+
+Дмитрий Котов, Вячеслав Ширяев | Сценарное мастерство (2020) [MP3, Александр Алехин]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как написать такой сценарий, чтобы снятый по нему фильм зрители смотрели на одном дыхании? Авторы книги, сооснователи Высшей школы кино «Арка», продюсеры и сценаристы Вячеслав Ширяев и Дмитрий Котов дают исчерпывающий ответ на этот вопрос. В книге вы найдете все необходимое для начинающего сценариста: инструменты, правила и приемы, без которых не обойтись при создании (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: ООО "Эвербук"Продолжительность: 07:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12EA10A6E5F4F77223FAA6D1E2EA9D9206FA38B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702246   (115877) от 24.02.2024
 
 Вадим Тихомиров | Энциклопедия пчеловода (2023) [MP3, Антон Макаров]
@@ -6,7 +85,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:021F372F11727B5B435F19D6D01277E80279DE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711099   (112524) от 29.03.2024
-
-Александр Марков, Елена Наймарк | Перспективы отбора (2019) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркая, неожиданная и захватывающая аудиокнига. Увлекательный и доступный рассказ о сорока новейших открытиях, сделанных учёными в области эволюции и естественного отбора. Почему не у всех баранов большие рога? Что мы узнали о своих мутациях за 15 лет геномной эры? Почему самые умные из рыбок гуппи выбирают себе в партнеры самых красивых самцов? Как влияют на наше (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 11:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80377FD90B61A1E5A4B9E739A96E223D7469D75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711395   (112460) от 30.03.2024
-
-Александра Ромашова | Лунный город (Подкаст) Часть 2 (2013) [MP3, Александра Ромашова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112460.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лунный город" – культовая программа Александры Ромашовой об электронной, экспериментальной, авангардной, экзотической музыке, выходившая на радио Рокс с 1997 по 2011 год. Часть 2Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 75:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEB0F53E3153A72C5F471CCC2D29E155B931B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711620   (112345) от 31.03.2024
-
-Мишель Сапане | Прямой эфир из морга. 30 сложных дел (2023) [MP3, Кирилл Долгов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Охотничье ружье, кухонный нож, самурайский меч, удушение, отравление – каждый из этих способов убийства оставляет на теле жертвы уникальные следы, которые необходимо выявить судмедэксперту. В этой книге вы станете свидетелем сцен преступлений, проведете судебно-медицинские экспертизы, посетите следственные эксперименты и судебные заседания с участием присяжных. Ее (   Читать дальше...   )Жанр: Истории из жизни, КриминалистикаИздательство: БОМБОРАПродолжительность: 09:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16AF25A79495CBEF490B85ED8A22E132CEC9332E
 ```
 
 https://mybot314.ru/tekegram_catalog/

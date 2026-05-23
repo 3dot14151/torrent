@@ -1,110 +1,3 @@
-###  Публикация: 1028836   (686762) от 24.06.2016
-
-Никита Карацупа | Жизнь моя - граница (1983) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никита Федорович Карацупа — человек-легенда. Служил он на дальневосточной границе.
-
-Смелость, мужество, умение быстро найти правильное решение в сложной ситуации не раз позволяли ему выходить победителем в неравных схватках с разного рода лазутчиками — шпионами, диверсантами, контрабандистами.
-(   Читать дальше...   )Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2C5CDDB33CEADB732BCF153006669915736654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403953   (686593) от 22.08.2020
-
-Ирен Тримбл | Университет монстров (2020) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майк Вазовски с детства мечтал стать страшилой – войти в число великих монстров, которые каждый день ходят в мир людей пугать малышей и добывать их крики – энергию для Монстрополиса. Он поступил в Университет монстров, и до исполнения мечты остался всего один шаг. Майк знал всё о науке устрашения. Но вот незадача – сам он был совсем не страшный. Зато Салли – ещё (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А. Н. ПроходскийФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DE794F2919764F780A9046B7D4E63D58D6D0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028873   (686498) от 24.06.2016
-
-Марк Твен | Сыскные подвиги Тома Сойера. Том Сойер за границей (сборник) (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги Марка Твена, повествующие о приключениях Тома Сойера и его друзей, открывают для читателя мир настоящей отваги, истинной дружбы и любви к жизни, которой наделены натуры незаурядные. В «Сыскных подвигах Тома Сойера» Том со своим другом Геком раскрывают страшное преступление, совершенное на берегах реки Миссисипи. Однако чувства и поступки в вымышленном литературном (   Читать дальше...   )Жанр: Приключения, детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C6DC1937A3088ED7B4E4B4F3FDFAF57F67DE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403958   (686457) от 22.08.2020
-
-Кики Торп | Корпорация монстров (2020) [FB2, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корпорация монстров – сердце Монстрополиса. Именно она снабжает мир монстров энергией – детскими криками. Самые грозные монстры, которых зовут страшилами, отправляются в мир людей по ночам и добывают там крики. Лучший страшила корпорации – Джеймс П. Салливан, или просто Салли. Он могуч и отважен, а как иначе, если каждый день приходится встречаться с самым страшным (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: А. А. МингазоваФормат: FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DE49F5F11C30B3FEC2B5484CD0B4124D810C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 295317   (686015) от 06.03.2022
 
 Борис Зубков | Из чего все машины сделаны (1977) [DJVU]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -647,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -674,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -687,6 +580,118 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20F1C200DC163CA391520E9F00E4E64E90E44AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507557   (683177) от 08.06.2012
+
+Михаэль Энде | Сборник (5 книг) [2005-2012] [RTF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Михаэль Андреас Гельмут Энде (1929-1995) - немецкий писатель, классик детской литературы.
+Сочинения Энде переведены на 40 языков и вышли общим тиражом свыше 20 миллионов экземпляров.
+По «Бесконечной истории» снят одноимённый фильм. По мотивам сказки «Волшебный напиток» (1989) («Дьяволсконгениальный коктейль») снят мультипликационный сериал «Вуншпунш» (2000).2005-2012Жанр: СказкаФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF97A7DE5A790AD875341DD320401803F25D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222682   (683131) от 30.04.2018
+
+Михаил Глазков | Горюч-камень (1984) [DJVU, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первая часть повести «Горюч-камень» впервые была издана в Ярославле в 1977 году. Эта прозаическая книга поэта встретила теплый прием у читателей и критики, отмечена Почетным дипломом на Всероссийском конкурсе на лучшее художественное произведение для детей и юношества 1975–1977 гг. «МОЯ СОВЕТСКАЯ РОДИНА».
+
+В настоящую книгу вошли вместе с первой, ранее изданной, (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35769999A493EDACFEB785944A5017A10A21F42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222678   (683129) от 30.04.2018
+
+Василий Кондрашов | Рыжий — не рыжий (1979) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Повесть о «трудном» подростке, бросившем школу и прослывшем в поселке хулиганом. Но в душе его живет доброта и жажда деятельности. Перелом в жизни Петьки наступает после того, как он попадает на завод.
+«Рыжий - не рыжий» первое произведение автора. За его плечами большая жизнь: он был военным летчиком, мастером, начальником цеха на заводе, преподавателем... В 1977 (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6994700DF2D35A7C26AE2A7546DF7CB8CB936CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135285   (683052) от 18.05.2017
+
+Лидия Грибова (сост.) | Птичка-пуночка (1980) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, а когда именно, никто и не знает, стали рассказывать сказки. Каждым народом свои сказки сложены, каждый народ любит, помнит и бережёт свои сказки. Те, что собраны в этой книге, — придуманы чукчами и эскимосами.
+
+Живут чукчи и эскимосы в тундре, на Крайнем Севере нашей страны, на Чукотском полуострове, у холодных морей.
+(   Читать дальше...   )Жанр: Детская проза, СказкаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4961004D81D67134CC9F80C4A21E1A2E9A9D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 970181   (141247) от 30.12.2015
+
+В.А. Горохов (сост.) | Справочнк сельского ремонтника (1975) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В справочнике описаны технология, приспособления и оборудование для слесарных и сварочных работ, даны основные материалы о процессах разборки, мойки, дефектовки и сборки, термической и химико-термической обработки, склеивании узлов и агрегатов сельскохозяйственных машин, изложена прогрессивная технология восстановления деталей.Жанр: СправочникФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CC1C10C4CE26382FFD61CEBDBCB0C8D34C24ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435794   (140452) от 29.12.2020
+
+Джон Бейктал | Конструируем роботов на Arduino. Первые шаги (2020, 3-е изд.) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это практическое руководство для тех, кто делает первые шаги в робототехнике на платформе Arduino. С этой книгой вы разберетесь в основах электроники, научитесь программировать в среде Arduino IDE, работать с печатными платами Arduino, инструментами, соблюдать правила безопасности и многому другому. Вы также сможете выполнить разнообразные проекты и оценить невероятный (   Читать дальше...   )Жанр: Радиоэлектроника, Хобби, Техническая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B07E3F07DF007D0025576394D506C3273531F26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273126   (138959) от 30.12.2018
+
+Д.И. Оташехов | Дизель-генераторная установка. Диагностика. Ремонт. Техобслуживание (2018) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В книге постарался собрать те необходимые познания для работы в области обслуживания дизель-генераторных установок. Чтобы поднять свой уровень профессионализма всем инженерам, механикам и студентам, которые хотели бы в будущем работать в этой сфере, будет интересна данная книга. Хочу выразить благодарность производителям FGWILSON, CATERPILLAR, SDMO, PERKINS, CUMMINS, (   Читать дальше...   )Жанр: Энергетика, Справочники, РуководстваФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD123454100FACFBA8B7A4C3717C7121B74C7BA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349363   (138125) от 31.12.2019
+
+С.В. Покровский (ред.) | Система управления и диагностики электровоза ЭП10 (2009) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Даны основные понятия в области асинхронного тягового электропривода и принципы построения силовых цепей магистральных электровозов с асинхронными тяговыми двигателями. Рассмотрены силовые цепи и цепи собственных нужд, а также основы конструкций тяговых преобразователей и преобразователя собственных нужд электровоза ЭП10. Представлены структура и основы функционирования (   Читать дальше...   )Жанр: техническое руководствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA25C281F136DAD4F15AA8F9D0441FC9307BE5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679907   (134791) от 27.11.2023
 
 Ю.Н. Калачёв, Д.В. Самохвалов | SimInTech. Основы регулируемого электропривода. Антиучебник (2023) [PDF]
@@ -6,7 +110,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +639,7 @@ SAMSUNG | Собрание руководств по ремонту и обсл�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064D83BE2CF4C3F3BB633CAD19C5672992EA15A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896782   (125093) от 30.12.2023
-
-Б.А. Смиренин (ред.) | Справочник по радиотехнике (1950) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125093.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отличие от имеющихся в обращении справочников по радиотехнике «Справочник по радиотехнике» не дает только голые формулы и таблицы для расчета тех или иных радиоцепей или их деталей, но сопровождает эти формулы и таблицы обоснованием их содержания как с физической, так в некоторых случаях и с математической стороны С этой точки зрения справочник может во многих (   Читать дальше...   )Жанр: ЭлектроникаИздательство: ГосэнергоиздатФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A803EDE62B207A5B24B6A9D5B34D43EC95B72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690238   (124073) от 06.01.2024
-
-В.Н.Цуканов, М.Я.Яковлев | Волоконно-оптическая техника. Практическое руководство 4-е изд., испр. и доп. (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрена отечественная волоконно-оптическая компонентная база, предназначенная для жестких условий эксплуатации. Приведены основные технические характеристики волоконно-оптических компонентов и методы их измерения. Предложены методы контроля параметров безотказности с учетом принципиальных отличий волоконно-оптических компонентов от электронных. Даны практические (   Читать дальше...   )Жанр: ЭлектроникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E9079EBE488272293FF76B5AABF1C7733EE318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690659   (123833) от 08.01.2024
-
-А.И. Вантеев | Обслуживание электрических подстанций: теория и практика (2021) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предложены основные сведения о принципах работы оборудования электрических подстанций, эффективных и безопасных приемах и методах оперативного обслуживания электроустановок. Рассмотрено большое количество случаев технологических нарушений и травматизма при работе с энергообъектами. Материал подготовлен на основе многолетнего опыта работы автора в сфере энергетики. (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Инфра-инженерияФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665C2D6FF176B709272797F2F2C4106D46BBDAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693664   (121752) от 21.01.2024
-
-Г.Б. Белоцерковский | Задачи и расчеты по курсу Основы радиотехники и антенны (1966) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121752.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге приведены задачи, контрольные вопросы и расчеты по основам теории колебательных цепей с сосредоточенными параметрами, длинных линий, электромагнитных волн, по распространению радиоволн и по антенно-фидерным устройствам. Расположение материала и последовательность задач соответствуют учебным пособиям автора «Антенны», Оборонгиз, 1962 и «Колебательные контуры (   Читать дальше...   )Жанр: ЭлектроникаИздательство: МашиностроениеФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A015116317F30A00F127FC7CB449E692749B021
 ```
 
 https://mybot314.ru/tekegram_catalog/

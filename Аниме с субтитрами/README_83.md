@@ -1,3 +1,113 @@
+###  Публикация: 1562567   (349526) от 21.09.2022
+
+Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого духа (2022) [2022, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Юринэ Ханадзоно призвала Дзясин. Пока призыватель жив, Дзясин не вернуться в ад. Поэтому она пишет имя Юринэ в «Тетради несмерти» и клянётся наконец обрушить на неё свой дропкик. Тем временем появляется Пино, бывшая подчинённая Пеколы и Попорон. Пекола было обрадовалась, что наконец-то Бог прислал к ней кого-нибудь, да только в руках Пино оружие..."Производство: Студия Nomad / ノーマッドЖанр: комедияРежиссер: Сато ХикаруПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85A0EFA86B94785E4A907196CFEFE4B152AE116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795944   (347299) от 07.10.2019
+
+Kindaichi Shounen no Jikenbo / Kindaichi Case Files / Дело ведёт юный детектив Киндаичи [1997, TV, 148] DVDRip 480p Raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Киндачи известен всем, как лентяй и лоботряс, с трудом способный написать тест. Однако за обманчивой внешностью скрывается интеллект с уровнем IQ 180, способный раскрыть самое запутанное уголовное дело, даже, если главный обвиняемый в этом деле он сам. И это не удивительно - ведь его дед был великим детективом, известным всей полиции Японии.
+
+Сериал (   Читать дальше...   )Жанр: приключения, детективРежиссер: Нисио ДайсукэПродолжительность: по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD6E58DA80C5F5E111B76275EC3B97B2D1C5AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580293   (345761) от 24.11.2012
+
+Sengoku Collection / Parallel World Samurai / Коллекции смутного времени [2012, TV, 13 из 26 серий] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Во вселенной есть миры, где японская Сэнгоку Дзидай, «эпоха смут», населена исключительно милыми девушками! В этой истории по милости богов легендарная Нобунага Ода после предательства Мицухиды Акэти провалилась из пламени пожара в наш мир, прямо в Токио. Футуршок? Ничего подобного – исторический Ода обожал все новое и необычное, носил западную одежду, шокируя окружающих. Слегка осмотревшись, героиня нашла нужный храм и в горячей молитве попросила вернуть ее обратно – а не то все сожжет. У проказливых жриц было иное предложение – пусть Нобунага найдет старых соперниц, которых тоже перекинуло в наш мир, и отберет у них некие сокровища. Победитель игры сможет вернуться домой.
+
+Вот такие дела! Политкорректные боги отправили в Японию наших дней не только князей, но и мудрого советника, знаменитого фехтовальщика и великого изобретателя – всех, разумеется, в девичьем обличье. Как теперь их искать? Еще можно предположить, что умница Токугава пойдет в политику, а одноглазая Масамунэ окажется в банде, но кто бы мог подумать, (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Гото КэйдзиПродолжительность: 00:25 x 13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAA01BE19B87612DB718EA0972355605C3FA979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580285   (345759) от 24.11.2012
+
+Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 серий] BDrip Hi10p 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далеком 1966 году Каору Нисими, весьма серьезный молодой человек, переезжает из столичного округа на юг Японии, в префектуру Нагасаки, где ему поначалу не нравится абсолютно все: жара, расслабленный настрой окружающих, их непривычный говор, даже крутой склон на пути к новой старшей школе. «Правильного» отличника-очкарика в классе приняли не особо тепло, сочтя его законной добычей «крутых парней». Нисими все это видел не раз и готовился к худшему, однако встреча с местным неформалом Сэнтаро Кавабути закончилась не телесными повреждениями, а дискуссией о музыке и даже небольшой импровизацией!
+
+Вот так новичок подружился с отчаянным джазменом, барабанщиком Сэнтаро и старостой класса Рицуко, семья которой держит музыкальный магазин, где в подвале есть небольшая студия. Вскоре Каору заболел джазом, и новая страсть постепенно помогла ему преодолеть не только стереотипы «пианиста-классика», но и застарелые тоску и одиночество. Не зря веселая компания юных и не очень джазменов постепенно пополняется новыми интересными (   Читать дальше...   )Жанр: романтика, драма, музыкальныйРежиссер: Ватанабэ СинъитироПродолжительность: 12 эп. по 25мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBB0DD06A8A15E71CE9FA8EF7AF0AC583CD5FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562586   (345372) от 23.09.2022
 
 Shadows House 2nd Season | Дом теней [ТВ-2] [2022, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +116,7 @@ Shadows House 2nd Season | Дом теней [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +144,7 @@ Jormungand: Perfect Order / Ёрмунганд [ТВ-2] [2012, TV, 12 эп.] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +170,7 @@ Bungou Stray Dogs 3 / Великий из бродячих псов [ТВ-3] [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +196,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +222,7 @@ Pupipoo! | Пупипо! [2013, TV, 15 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +250,7 @@ Fumikiri Jikan | Crossing Time | Железнодорожный переезд [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +276,7 @@ Busou Shoujo Machiavellianism | Armed Girl's Machiavellism | Тирания во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +302,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт Девочек-Волшебни
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +328,7 @@ Shoot! Goal to the Future | Удар! Гол в будущее [2022, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +354,7 @@ Bucchigire! | Shine On! Bakumatsu Bad Boys! | Сияйте, головорезы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +380,7 @@ Teppen!!!!!!!!!!!!!!! | Teppen! Laughing 'til you Cry | Апогей! [2022, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +406,7 @@ Fate/Grand Order: Moonlight/Lostroom | Судьба/Великая Кампан�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +432,7 @@ Princess Principal | Принцесса-шпионка | Подручные пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +458,7 @@ Ushiro no Shoumen Dare | Who's Left Behind? | Кто стоит за спино�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +485,7 @@ Inou-Battle wa Nichijou-kei no Naka de | Inou Battle | Inou Battle Within Everyd
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +511,7 @@ Ixion Saga: Dimension Transfer | ИКСИОН САГА: Пространстве
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +537,7 @@ Lost Song | Потерянная песня [2018, ONA, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +563,7 @@ Sora Yori mo Tooi Basho | A Place Further Than the Universe | Место за п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +589,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +615,7 @@ Hanabi-chan wa Okure-gachi | Hanabi-chan Is Often Late | Ханаби посто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +641,7 @@ Guskou Budori no Denki (2012) / The Life of Guskou Budori / Житие Гуск�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +669,7 @@ Idol Boueitai Hummingbird / Idol Defense Force Hummingbird / Боевая поп
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,110 +680,6 @@ Idol Boueitai Hummingbird / Idol Defense Force Hummingbird / Боевая поп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDEA87CCFF454324F84818CFAA80799E1F430C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419523   (339848) от 28.10.2020
-
-Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается в современном Киото. Куми — студентка колледжа, которая перебирается сюда, чтобы принять дела в магазине сладостей, унаследованном от бабушки. К магазину прилагается дом, по идее, пустой, но на деле там проживают три дамочки (Харами, Маи и Кей) и собака. Причём все они — великие герои из иного мира, возродившиеся в нашей реальности. Дальше больше: (   Читать дальше...   )Производство: студия Studio Gokumi / Studio五組Жанр: приключенияРежиссер: Хасимото ХироюкиПеревод: HelshiЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFF0BBA5E9B6784B7B9DBE333D170F99D70180B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419351   (339716) от 28.10.2020
-
-Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычному старшекласснику Канамэ Судо приходит сообщение с приглашением в загадочную мобильную игру «Darwin's Game». Стоило ему запустить приложение, как он стал частью игры, в которой игроки сражаются между собой, причём каждому из них дана сверхъестественная способность — сигил. Сможет ли Канамэ победить сильных противников и выжить в игре, где цена ошибки — смерть?Производство: NexusЖанр: приключенияРежиссер: Токумото ЁсинобуПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 50 мин. + 10 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9F7645127AB03BA89CEC30DE416A6A349F5AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954517   (339360) от 08.11.2015
-
-Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алиса: Дело об убийстве [2015, МV] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куроя... то есть, Арисугава Тэцуко, или же просто Алиса — ученица средней школы, вместе с матерью вернулась в её родной город после развода родителей, заселилась в новый дом, поступила в новую школу с формой в виде посредственных матросок, да собственно и вся история. Вот только в округе происходят сомнительные вещи: к одной из парт в классе многие месяцы никто не (   Читать дальше...   )Жанр: повседневностьРежиссер: Ивай СюндзиПеревод: 1) Jima Lostinime; 2) TimecraftЯзык субтитров: русскийПродолжительность: 100 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407C8508838725B20D464A4DD195ECCC67E0DC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330520   (338971) от 11.10.2019
-
-Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апельсиновой улицы OVA [1989, OVA, 8 из 8] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Кёсукэ Касуга со своей семьей, которая состоит из папаши-фотографа, кота-обжоры и двух непоседливых сестричек-школьниц, в очередной раз переезжает на новое местожительство. Столь частые переезды семьи Кёсукэ отнюдь не случайны, ведь он и его близкие обладают странными мистическими способностями, позволяющими совершать разные полезные, но не всегда разумные поступки: (   Читать дальше...   )Производство: Studio Pierrot / スタジオぴえろЖанр: романтика, комедия, повседневностьРежиссер: Накамура Койтиро, Ко Ю, Ёсинага НаоюкиПеревод: IsitoryЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D537652E0AA243EDDDD25223DF764F4ADAE01543
 ```
 
 https://mybot314.ru/tekegram_catalog/

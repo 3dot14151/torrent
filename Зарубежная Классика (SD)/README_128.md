@@ -1,3 +1,108 @@
+###  Публикация: 1799473   (15502) от 06.06.2025
+
+Это мой муж. Когда захочу, тогда и убью / Своего мужа я убиваю, когда хочу / Il marito e mio e l'ammazzo quando mi pare (1968) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пожилой пианист Игнацио приобретает роскошную виллу, куда привозит свою молодую жену Аллегру. Однако дом оказывается занят юношей Леонардо, который привык к праздной жизни и не спешит от неё отказываться. Быстро вскружив девушке голову, он предлагает ей избавиться от мужа.Производство: Италия / Clesi CinematograficaЖанр: комедияРежиссер: Паскуале Феста КампанилеАктеры: Катрин Спаак, Хайвел Беннетт, Хью Гриффит, Ромоло Валли, Джанрико Тедески, Франческо Мулэ, Милена Вукотич, Пина Чеи, Джанни Маньи, Леопольдо ТриестеПеревод: Одноголосый любительский (den904)Язык озвучки: Русский, ИтальянскийСубтитры: русские (forced, full) - отдельноПродолжительность: 01:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D171657B372281E9C16D45A3EAA17D2F7351C172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800044   (15483) от 06.06.2025
+
+Парочка Баркли с Бродвея / The Barkleys of Broadway (1949) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лучшие из лучших танцоров степа и эксцентричного танца супружеская пара Баркли Джош и Диана настолько успешны, что им даже нет времени поговорить друг с другом, репортеры и журналисты окружают их повсюду. Со стороны их жизнь кажется прекрасной, но нет.
+Диана считает себя не реализовавшейся драматической актрисой и грезит исполнить роль Сары Бернар в спектакле молодого (   Читать дальше...   )Производство: США / Loew's Inc.Жанр: мюзикл, комедияРежиссер: Чарльз УолтерсАктеры: Фред Астер, Джинджер Роджерс, Оскар Левант, Билли Бурк, Гэйл Роббинс, Жак Франсуа, Джордж Зукко, Клинтон Сандберг, Инез Купер, Кэрол БрюстерПеревод: Многоголосый профессиональный, ТК "Домашний"Язык озвучки: Русский, английскийСубтитры: Русские (Forced), английские (Full, SDH)Продолжительность: 01:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5764EC6B59895F71AD7E420E59D01EA431F2C83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800963   (14958) от 11.06.2025
+
+Железная госпожа / The Iron Mistress (1952) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В начале 19 века Джим Боуи покидает свой дом в Байю Сара, Луизиана, чтобы продавать древесину в Новом Орлеане. Здесь он становится богатым землевладельцем, конструирует особый нож, сделанный из части метеорита, и участвует в дуэлях чести. Здесь же он влюбляется в двуличную красавицу Жюдалон де Борне, сыгравшую роковую роль в его судьбе...Производство: США / Warner Bros.Жанр: боевик, драма, приключения, вестерн, биография, историяРежиссер: Гордон ДугласАктеры: Алан Лэдд, Вирджиния Майо, Джозеф Каллейа, Филлис Кирк, Альф Челлин, Дуглас Дик, Энтони Карузо, Недрик Янг, Джордж Восковец. Ричард КарлайлПеревод: Одноголосый любительский, Ю. МедведевЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011644AC9F7C0919370EB3B54274CAAE8B3274D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 410666   (14567) от 15.06.2025
+
+Асы / Les cracks (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Недотепа-изобретатель пытается выгодно продать свой усовершенствованный велосипед. Но его никто не принимает всерьез. Более того, за долги ему грозит три месяца тюрьмы. Спасаясь от преследования судебного исполнителя, герой неожиданно выигрывает гонки…Жанр: Комедия, Приключения, Спорт.Режиссер: Алекс Джофф.Актеры: Бурвиль Робер Ирш Джанни Бонагура Моник Тарбес Мишель де Ри Эдмон Бошан Энн Жоливе Jacques Arbez Teddy Bilis Роже КаччаПеревод: Профессиональный, многоголосный.Язык: РусскийПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7E062BB2F72EC658D910259804C8B2F8DEB18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802138   (14500) от 15.06.2025
 
 Если... / If... (1968) BDRip [H.264]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -568,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA8B7E6AAD81E9C146C1F5CB040B7735F382CCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432980   (7157) от 18.08.2025
-
-Ночь живых мертвецов / Night of the Living Dead (1968) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барбра и её брат Джонни приезжают на кладбище, расположенное в уединённом загородном месте. Неожиданно на них совершают нападение существа, напоминающие мертвецов, восставших из могил. Барбра укрывается в расположенном неподалёку доме, где также находят убежище темнокожий парень по имени Бен, супруги Гарри и Хелен Куперы с дочерью Карен, а также возлюбленные Том (   Читать дальше...   )Жанр: Ужасы, ТриллерРежиссер: Джордж А. РомероАктеры: Дуэйн Джонс, Джудит О’Ди, Карл Хардмен, Мэрилин Истман, Кит Уэйн, Джудит Ридли, Кира Шон, Чарльз Крэйг, С. Уильям Хинцмен, Джордж КосанаПеревод: Профессиональный (двухголосый, закадровый)Субтитры: Русские, Английские (отдельно)Продолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C650557E97C3342191F98CF1A6E3D25A9BEFD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 251224   (6716) от 21.08.2025
-
-Галактика ТНХ-1138 / THX 1138 (1971) BDRip [Director's Cut]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр социальной фантастики довольно часто затрагивает подобные темы. Мрачно и безысходно рисуется мир будущего, в котором всем заправляет какая-нибудь бездушная машина, ставящая перед собой неясные, но явно негуманные цели, а люди совершенно потеряли дух свободы и способность к самостоятельному существованию. Большинству даже нравится, ведь проблем-то никаких. Но (   Читать дальше...   )Жанр: Фантастика, ДрамаРежиссер: Джордж Лукас /George Lucas/Актеры: Роберт Дювалл /Robert Duvall/, Доналд Плезенс /Donald Pleasence/, Мэгги МакОми /Maggie McOmie/, Дон Педро Колли /Don Pedro Colley/, Сид Хэйг /Sid Haig/, Иан Вулф /Ian Wolfe/Перевод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623FEB9DD800F37CAC2907E577FAE535D0DCE5E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813018   (6662) от 21.08.2025
-
-Счастливчик Александр / Alexandre le bienheureux (1968) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр, молодой и честный фермер, находящийся под гнетом авторитарной жены, работает круглые сутки на полях. Его единственное развлечение - считать птиц и играть на трубе в местном клубе, но и этого жена его лишает, заставляя работать и в выходные. Когда она погибает в автомобильной катастрофе, для Александра наступает праздник!
-Он забрасывает работу и нежится (   Читать дальше...   )Производство: Франция / Films de la Guéville, Gaumont, Les Films de la Colombe, Madeleine FilmsЖанр: драма, комедияРежиссер: Ив РоберАктеры: Филипп Нуаре, Франсуаз Брион, Марлен Жобер, Поль Ле Персон, Цилла Шелтон, Леонс Корн, Пьер Ришар, Жан Содрэ, Жан Карме, Пьер БарнлеПеревод: Одноголосый любительский, Денис МетелевЯзык озвучки: Русский, французскийСубтитры: Русские, английскиеПродолжительность: 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C98622AD4DC18480915C24B324258042C9FC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814558   (5898) от 26.08.2025
-
-Бархатные ручки / Mani di velluto (1979) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инженер Гвидо Квиллер разбогател на продаже бронированных стёкол для ювелирных магазинов, но тем самым разозлил страховые компании и грабителей. Во время погони за возлюбленной, которой он хотел вернуть забытую сумочку, у мопеда отказывают тормоза и он падает в фонтан. В это время едущая за ним на машине семья воров принимает Квиллера с сумкой в руках за дилетанта, (   Читать дальше...   )Производство: Италия / Capital FilmsЖанр: мелодрама, комедия, криминалРежиссер: Франко Кастеллано, Джузеппе МоччаАктеры: Адриано Челентано, Элеонора Джорджи, Джон Шарп, Ольга Карлатос, Джино Сантерколе, Мемо Диттонго, Ания Пьерони, Джанкарло Тондинелли, Пиппо Сантонастасо, Джанни ДзуллоПеревод: Многоголосый профессиональный, двуголосый профессиональный, одноголосый любительскийЯзык озвучки: Русский, итальянскийСубтитры: Русские, итальянскиеПродолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25E57E64FEE200ABD79DE358EC42B71F059224A
 ```
 
 https://mybot314.ru/tekegram_catalog/

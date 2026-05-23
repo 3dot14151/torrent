@@ -1,234 +1,29 @@
-###  Публикация: 1680775   (133213) от 01.12.2023
+###  Публикация: 592047   (135706) от 22.12.2012
 
-Верховный суд признал ЛГБТ-движение экстремистским
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верховный суд признал экстремистским и запретил «международное общественное движение ЛГБТ». Заседание проходило в закрытом режиме из-за грифа «секретно», в суде был представитель Минюста, со стороны ответчика никто не явилсяВ четверг, 30 ноября, Верховный суд рассмотрел административный иск Минюста, признал международное общественное движение ЛГБТ экстремистской (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680908   (133211) от 01.12.2023
-
-Final Cut Pro X 10.7 [Multi]
-
->>След.
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
-В основе Final Cut Pro X лежит гибкая временная шкала Magnetic Timeline, предлагающая новый подход к редактированию видео без дорожек с возможностью добавлять и организовывать клипы так, как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2023Разработчик: © 2011-2023 Apple Inc.Поддерживаемая ОС: macOS 13.5 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680905   (133209) от 01.12.2023
-
-Оппенгеймер / Oppenheimer (2023) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit] [IMAX]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133209.jpg" />
-</div>
-
-
-###  Подробнее
-
-История физика-теоретика Джулиуса Роберта Оппенгеймера, считающегося «отцом атомной бомбы». В 1940-х годах в рамках «Манхэттенского проекта» он руководил разработкой первого ядерного оружия в Лос-Аламосской национальной лаборатории. «Оппенгеймер» (2023) — биографическая драма Кристофера Нолана с Киллианом Мерфи в главной роли, основанная на книге «Американский Прометей: (   Читать дальше...   )Производство: США, Великобритания / Universal Pictures, Atlas Entertainment, Gadget FilmsЖанр: биография, драма, историяРежиссер: Кристофер НоланАктеры: Киллиан Мёрфи, Эмили Блант, Мэтт Дэймон, Роберт Дауни, Флоренс Пью, Джош Хартнетт, Кейси Аффлек, Рами Малек, Кеннет Брана, Бенни СэфдиПеревод: Дублированный, пр. многоголосый, люб. многоголосый, авторскийЯзык озвучки: Русский, Английский, УкраинскийСубтитры: русские (full, forced), украинские (full, forced), английские (forced, full, SDH)Продолжительность: 03:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C49F467121B3FCCADB95CE098E84F80E052180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678795   (133207) от 01.12.2023
-
-Цербер (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 4)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1826 год, Санкт-Петербург. После подавления выступлений на Сенатской площади, следственная комиссия начинает поиск участников восстания декабристов. Некоторые из них попадаются властям из-за доносчиков. Неожиданно в Петербурге происходит серия жестоких убийств: жертвами становятся те, кто донесли на декабристов. Возле тел убитых неизменно остаётся листок со строками (   Читать дальше...   )Производство: Россия / Студия ЧеховъЖанр: детективРежиссер: Владимир ЩегольковАктеры: Сергей Марин, Тимофей Трибунцев, Александр Горбатов, Евгений Цыганов, Дмитрий Ульянов, Кирилл Кяро, Вера Колесникова, Яков Шамшин, Евгений Лямин, Денис КозинецПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65577B0315B76CCB30F4B96A0E1201F0C6EF3D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678298   (133205) от 01.12.2023
-
-Соседка (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133205.jpg" />
-</div>
-
-
-###  Подробнее
-
-35-летний Фёдор Садовский — деликатный бизнесмен с безупречной репутацией. Он сумел превратить свою одержимость чистотой в источник заработка, открыв собственную клининговую компанию. Однако даже успешный бизнес не помогает Фёдору выйти из тени своего отца — советского космонавта, в честь которого на доме в центре Москвы установлена мемориальная доска. В его жизни (   Читать дальше...   )Производство: Россия / ТНТ, PREMIER, Good Story MediaЖанр: комедия, мелодрамаРежиссер: Байбулат БатуллинАктеры: Егор Корешков, Юлия Хлынина, Алексей Чадов, Дарья Пицик, Дмитрий Лысенков, Елена Валюшкина, Анастасия Светлова, Мария Шумакова, Игорь Хрипунов, Аполлинария ВетлугинаПродолжительность: ~00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E99BEA474B2E72172CDD0C6DB0BA3E980CF6AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594767   (133204) от 27.12.2012
-
-Валькирия - Святым огнём (2012) [FLAC|Lossless]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Путь домой
-02. Таинственный зверь
-03. Странник
-04. Храм заблудших душ(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680405   (133203) от 01.12.2023
-
-Последний наёмник / In the Land of Saints and Sinners (2023) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный наемный убийца Финбар решает, что он уже не так хорош и ему пора отойти от дел. Но однажды в город, где он залег на дно, наведывается банда и начинает беспредел. Финбару ничего не остается, как встать на сторону правосудия и снова взяться за оружие. И на этот раз он рискует не только собой, но и всеми, кто ему дорог.Производство: Ирландия, Bleiberg Entertainment, Davis-Films, Facing East, Great Point Media, London Town Films, Merlin Films, Prodigal Films, RagBag Pictures, Saga FilmЖанр: боевик, триллер, криминалРежиссер: Роберт ЛоренцАктеры: Керри КондонДжек Глисон, Колм Мини, Бернадетт Карти, Десмонд Иствуд, Лиам Нисон, Сара Грин, Киран Хайндс, Manus Brennan, Нив КьюсакПеревод: Многоголосый любительскийСубтитры: ОтсутствуютПродолжительность: 01:41:42Реклама: Присутствует баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676031   (133201) от 01.12.2023
-
-Убийца / The Killer (2023) WEB-DLRip [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококлассный наемный убийца, склонный к мизантропическому философствованию, поджидает жертву в Париже. Когда всё идёт не по плану, он сам рискует превратиться в мишень и отправляется разбираться с собственными заказчиками.Производство: США, Archaia Entertainment, Boom! Studios, Panic Pictures (II), Paramount Pictures, Plan B EntertainmentЖанр: боевик, триллер, криминалРежиссер: Дэвид ФинчерАктеры: Майкл Фассбендер, Тильда Суинтон, Чарльз Парнелл, Арлисс Ховард, Керри О’Мэлли, Софи Шарлотт, Emiliano Pernía, Gabriel Polanco, Сала Бэйкер, Эндре ХулсПеревод: Дублированный (Flarrow Films), многоголосый профессиональный (NewComers, TVShows), двухголосый профессиональный (ViruseProject)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH), украинскиеПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594820   (133200) от 27.12.2012
-
-Огненный Шторм / Пожар / Firestorm (1998) DVDRip
+Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/deathcore>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Ренделл Александр Шей - жестокий убийца, отбывающий срок за ограбление поезда. Неподалёку от тюрьмы, где он "мотает" срок, был подстроен лесной пожар, который позволяет Шею и группе уголовников сбежать. Джесси Грэйвз - командир элитного отряда пожарников, которых называют "smoke jumpers" - во время больших лесных пожаров команду Грейвза десантируют с самолета прямо в пламя, в места, недоступные для наземных подразделений. Когда поступает сигнал о стихийном бедствии, Джесси ещё не подозревает, что ему в одиночку предстоит смертельный поединок не только с разбушевавшейся стихией, но и с бандой опасных преступников…Жанр: Боевик, ТриллерРежиссер: Дин Семлер / Dean SemlerАктеры: Хоуи Лонг, Скотт Гленн, Уильям Форсайт, Сьюзи Эмис, Кристианна Херт, Гарвин Сэнфорд, Себастьян Спенс, Майкл Грейес, Барри Пеппер, Владимир КуличПеревод: Многоголосый закадровыйПродолжительность: 01:25:05
+[04:18] 01. Abduction
+[03:50] 02. Alien Autopsy
+[03:54] 03. Seek The Core
+[01:51] 04. Hangar 18
+[04:57] 05. An.Un.Na.Ki. (Part I)
+[03:48] 06. Karma
+[02:19] 07. Contact
+[03:57] 08. Abduction (Remix by Stan Alien)Жанр: Industrial death metal/deathcoreПродолжительность: 00:28:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D405C8CC59B9D8D7134118D82577B07DAB75D9C
+magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +31,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289009   (133199) от 01.12.2023
+###  Публикация: 592799   (135704) от 22.12.2012
 
-Мертвое озеро (2018)  WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)
+Журнал | Народный доктор №24 [декабрь 2012] [PDF]
 
->>3
->>След.
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Владелец урановых рудников Юрий Кобрин — царь и бог в родном Чангадане. Его бизнес идет в гору и кажется, что ничто не может ему помешать. Но однажды дочь олигарха находят мертвой — кто-то использовал ее для обряда ритуального жертвоприношения. Чтобы найти убийцу, Кобрин выписывает из Москвы лучшего детектива — Максима Покровского. То, с чем сталкивается столичный (   Читать дальше...   )Производство: Россия / TNT Premier Studios, Mediaslovo по заказу телеканала ТВ3Жанр: триллерРежиссер: Роман ПрыгуновАктеры: Евгений Цыганов, Павел Табаков, Александра Ребенок, Александр Робак, Андрей Смоляков, Виктор Хориняк, Павел Ворожцов, Лев Прыгунов, Тимофей Трибунцев, Евгения Шипова и др.Продолжительность: ~00:50:00 серия
+«Народный доктор» - это народные рецепты и советы читателей, травников, физиотерапевтов по профилактике и лечению многих заболеваний.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7F78B96300FA1381CE6E00916D37001CE292A04
+magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,30 +57,120 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594907   (133198) от 27.12.2012
+###  Публикация: 592500   (135700) от 22.12.2012
 
-The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
+Лёня Мичтатель и Женя Ка Поник - Жили (ЕР) (2012) [MP3|320 кб/с]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1. Роисся Вперде !
+2. Жили
+3. Иголки
+4. АлёшкаЖанр: RapПродолжительность: 00:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592898   (135696) от 22.12.2012
+
+VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Pnfa - Ride
+02. Krystian Shek - Black Chocolate
+03. Stargazer - Norito Bar
+04. Pianochocolate & Alfida - Ona Zhdala (Lost Zone Vocal Edit)
+05. Mazelonostra - Memories of Love
+06. Jean Honeymoon - Bang Bang (Experimental Mix)
+07. Lo Tide - All Our Yesterdays
+08. Xemplify - Your Own Gravity
+09. Mathieu Hobiere - High On You
+10. Marga Sol - Midnight Flight(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592833   (135692) от 22.12.2012
+
+Журнал | Tatler №1 [январь 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это издание, которое сочетает в себе искусство быстрого реагирования на сиюминутные колебания моды с глубоким журналистским анализом ситуации. Модному городу нужен модный журнал.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592660   (135690) от 22.12.2012
+
+Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Snowfall [05:35]
-02. Let It Snow, Let It Snow, Let It Snow [04:35]
-03. Santa Claus Is Coming To Town / Santa Man (Medley) [03:03]
-04. The Christmas Song (Chestnuts Roasting On An Open Fire) [04:40]
-05. Silent Night, Holy Night [05:56]
-06. Caroling, Caroling [01:24]
-07. Happy Holiday / The Holiday Season (Medley) [04:07]
-08. A Christmas Love Song [04:08]
-09. It Came Upon The Midnight Clear [05:55]
-10. Have Yourself A Merry Little Christmas [04:40](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:47:54
+01. Imagine  [03:46.52]
+02. Can't Take My Eyes Off you  [04:04]
+03. Daydream Believer  [03:09]
+04. I Was Born To Love You  [03:25]
+05. Stand By Me  [03:02]
+06. What A Wonderful World  [03:25]
+07. Your Song  [04:18]
+08. Doesn't Really Matter  [03:51]
+09. Don't Know Why  [03:46]
+10. There Must Be An Angel (Playing With My Heart)  [04:25](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:03:09
 
 ## Скачать торент
 ```bash
@@ -297,81 +182,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 510054   (133197) от 01.12.2023
+###  Публикация: 592380   (135688) от 22.12.2012
 
-Библиотека Либрусек [lib.rus.ec] + MyHomeLib [FB2]
-
->>3
->>50
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека Либрусек - одна из самых больших сетевых библиотек художественной литературы на русском языке.
-Обновление раздачи - по мере выхода новых архивов (в среднем 1 раз в месяц).Жанр: Самые разнообразныеЯзык: В основном русскийФормат: FB2, OCR с ошибкамиКачество: Изначально электронное (e-book)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74C0588482AB82D7D727F12BD0961D6AB194D6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594732   (133196) от 27.12.2012
-
-Рождество возвращается в Канаан / Christmas Comes Home to Canaan (2011) HDTVRip [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133196.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом повествовании Боббер, сын Даниэля, для восстановления после автокатастрофы. нуждается в сложной ортопедической операции и многомесячном курсе интенсивной физиотерапии. Родни Фриман, молодой афроамериканец, которого Даниэль взял в свой дом и воспитал как родного сына, предлагает Даниэлю провести операцию Бобберу в Сан-Франциско...Жанр: ДрамаРежиссер: Нилл ФернлиАктеры: Джина Холден, Лайам Джеймс, Билли Рэй Сайрус, Кэролайн Мэтьюз, Джейкоб Блэр, Мэтт Уорд, Марша Режис, Малкольм Стюарт, Джейшон Фишер, Саймон ЧинПеревод: ОтсутствуетПродолжительность: 01:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F6895B647C2E32A2952833A38400286064AA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681201   (133195) от 02.12.2023
-
-Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Bleed Afresh
-02. Sylphlike
-03. Avoid Secret Vanity
-04. Mindspawn(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:20:18
+1. Ego, Revisited (4:41)
+2. Aura Breach (6:18)
+3. Sculpturing Void (4:07)
+4. The Glorious Backstab (3:47)
+5. Hell Sweet Home (5:34)
+6. Ghostalgy (3:44)
+7. To Enter and Survive (4:38)
+8. Drown (4:06)Жанр: Progressive Death MetalПродолжительность: 00:36:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
+magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,28 +215,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681183   (133194) от 02.12.2023
+###  Публикация: 593044   (135684) от 22.12.2012
 
-John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
+VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Laera - Good White Christmas (Original Mix)
+02. Jose Seron feat. Bori - 4Strings
+03. Turbotronic - Stronger (Extended Mix)
+04. Danny Costta - Como Besa (Original Mix)
+05. Toni G - Dance Again (Ferny Garzia Remix)
+06. Joe Impero & Laera - Jingle Bells (Laera Club Mix)
+07. Hoxygen feat. Linda & Shiva - Somebody to Love (Hoxygen Revision Extended)
+08. Christina Matsa - If You Wanna (Teknova Remix)
+09. Locadisco feat. Dirty Punks - I Want You (Danny Groove Remix)
+10. Turbotronic - Disco Monster (Extended Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC2AA399A3A1C7D7FB9DCD6B68F52E3B3BA0662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592348   (135683) от 22.12.2012
+
+Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Sarum [6:43]
-02. Gateway [7:17]
-03. Soulscape [3:03]
-04. Magical Space [4:43](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:06:11
+01. Big Bill Broonzy - Mississippi River Blues
+02. Mississippi John Hurt - Ain't No Telling
+03. Bukka White - Special Steam Lines
+04. Big Joe Williams - I'm Getting Wild About Her
+05. Robert Johnson - Hellhound On My Trail
+06. Tommy Johnson - Cool Drink Of Water Blues
+07. Robert Lockwood - Take A Little Walk With Me
+08. Muddy Waters - I Be's Troubled
+09. John Lee Hooker - Shady Grove Blues
+10. Sleepy John Estes - Hobo Jungle Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82EC856655BC387580D6AF929B28A4995ECD50D2
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,25 +285,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594904   (133193) от 27.12.2012
+###  Публикация: 592629   (135679) от 22.12.2012
 
-Журнал | 100 битв, которые изменили мир №100 [2012] [PDF]
+Журнал | Любимая дача. Спецвыпуск №6 [2012] [PDF]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Серия «100 битв, которые изменили мир» предлагает вам описание самых значительных сражений в мировой истории. В каждом выпуске журнала вы найдете рассказ об одной из самых известных битв, включая ярчайшее описание самого сражения, а также мнения экспертов о противоборствующих сторонах. В каждом номере - воспроизведение сражения; очерки о полководцах; детальное описание хода битвы.Формат: PDF
+«Любимая дача» представляет спецвыпуск «Орхидеи в доме». В номере дана информация об основных родах и видах орхидей; самые интересные факты об орхидеях; основные правила посадки и тонкости деления в домашних условиях; история коллекционирования орхидей и просто полезная информация.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:018ABD8065363FA9A902E84E1CA926A5BAAB978E
+magnet:?xt=urn:btih:DE4E051C7E23A661F16DD8C6F78564FD8D4DF9DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,28 +311,277 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592831   (133192) от 27.12.2012
+###  Публикация: 592865   (135678) от 22.12.2012
 
-Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320 кб/с]<Dark Ambient>
+E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1995 - Come Get Your Love
+1998 - Hard Act To Follow
+2000 - Masterpiece
+2003 - The Other Side Of MeЖанр: Blues |Продолжительность: 03:18:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592460   (135677) от 22.12.2012
+
+VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Moritz Ochsenbauer - Fuck Face (Manuel De La Mare Remix)
+02. Thorsten Graeber - Rumble in the Box
+03. Indepth - Lunar Park (Loquai Remix)
+04. Jean Le Grand - Quotech
+05. Martin Eyerer - A Cherry Blossom (Tigerskin Remix)
+06. Nicoll Beck - Mooves
+07. Johnson - How You Swear
+08. Jonny Calypso - Vampire Nights
+09. Pierce - Butterfly Collector
+10. RPO - Idea (Flow, Zeo Remix)(   Читать дальше...   )Жанр: Progressive House, Club HouseПродолжительность: 03:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BB26A6E9C1EC26976FAEB5B914053DDA7C138E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592801   (135676) от 22.12.2012
+
+Журнал | Рыбачьте с нами №12 [декабрь 2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+“Рыбачьте с нами” - это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова “удовольствие”. Подтверждением этого тезиса может служить тот факт, что рекламодатели часто прибегают к демонстрации своих товаров и услуг на фоне рыбалки!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6393E624E7AE68A59FA232FD974FE7F5BC058A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592806   (135675) от 22.12.2012
+
+Журнал | Похудей. Спецвыпуск №1 [январь-февраль 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Похудей" - журнал для женщин , стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592772   (135672) от 22.12.2012
+
+"Крылов" | Книжная серия "Boutique" [2004-2005] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Проект Boutique: модное чтение при любой погоде!
+Стильные, остроумные и современные книги на любой вкус, кроме плохого.
+В проект входят следующие серии:Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592829   (135667) от 22.12.2012
+
+VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - First Floor Lobby
+02. Jeff Aug - Diving Into the Autumn Deep
+03. Marga Sol - No One Who Loves Me
+04. Anthya - Patience and Love
+05. Guenter Haas - The Pilot's Dance
+06. Weathertunes - Bikini
+07. Jeff Aug - Listen Up, Jazzhole!
+08. Taco-Town - Con Su Permiso
+09. Jeff Aug - 7 Ate the Cat (And Called It a Boogie)
+10. Aimee Sol - Girl in the Gallery(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1F534DDE1CE93FA5CB4960161D68B9ACBD1421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592585   (135666) от 22.12.2012
+
+Rosemary Clooney - Forever Girl Singer (2002) [FLAC|Lossless]<Jazz Vocal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. The Way We Were [05:03]
+02. Danny Boy [03:07]
+03. Sweet Kentucky Ham [03:54]
+04. Do You Know What Is Means To Miss New Orleans [03:52]
+05. Mambo Italiano [02:32]
+06. They Can't Take That Away From Me [03:28]
+07. The Glory Of Love [03:36]
+08. As Time Gose By [04:01]
+09. Brazil [06:54]
+10. Bewitched, Bothered And Bewidered [04:32](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:36:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592800   (135665) от 22.12.2012
+
+Кинопленка с кровавой баней / Celluloid Bloodbath: More Prevues from Hell (2012) DVDRip  [EN]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный сиквел к классическому культовому сборнику трейлеров фильмов ужасов "Mad Ron's Prevues from Hell" 1987 года выпуска. Перед нами новая удивительная коллекция трейлеров из более чем 60 фильмов, выходивших в золотые года жанра грайндхаус- малобюджетного коммерческого кино в период с 1960-го по 1980-е годы.
+В сборнике также имеются комментарии режиссеров, актеров, критиков и поклонников данного жанра.Жанр: УжасыРежиссер: Джим Монако, Джеймс Ф. Мюррей младшийАктеры: Джинджер Линн, Мишель Бауэр и Эми ЛиннПеревод: ОтсутствуетПродолжительность: 01:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2AA1F20CC3803E33927C408DFFF2D66C0188BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592828   (135662) от 22.12.2012
+
+Armin van Buuren - A State of Trance 592 (Top 20 of 2012) (2012) [MP3|256 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-1. Morbid Silence - Малоохтинское Кладбище I
-2. Дом Вдовы - Малоохтинское Кладбище II
-3. Morbid Silence - Малоохтинское Кладбище III
-4. Дом Вдовы - Малоохтинское Кладбище IVMorbid Silence - единоличный dark-ambient проект Harakiri. Его музыку можно охарактеризовать как магически-мрачную с почти медитативными, трансовыми переходами между живыми или искаженными звуками природы и созданными искусственно с применением различных техник. По словам автора, каждая композиция непременно пронизана определенной, иногда почти невыражаемой словами, идеей. Тем самым любой трек непременно экстраполируется к теме альбома, обобщающей их общую составляющую. Что зачастую делает альбомы целостными и неделимыми произведениями автора. Все это переливчатое многообразие звуков, порождающее целостные образы, находит проявление через созерцание автором мира через призму собственного мировосприятия и древних идей: хаоса, Ницшеанского безумия и страхаЖанр: Dark AmbientПродолжительность: 06:11:54
+01. Gareth Emery featuring Christina Novelli - Concrete Angel (TUNE OF THE YEAR 2012)
+ 02. Armin van Buuren featuring Ana Criado - I’ll Listen
+ 03. Omnia & IRA - The Fusion
+ 04. Gaia - J’ai Envie De Toi
+ 05. Andrew Rayel featuring Jano - How Do I Know (Club Mix)
+ 06. Armin van Buuren featuring Ana Criado - Suddenly Summer
+ 07. Andrew Rayel - Aeon Of Revenge
+ 08. Aly & Fila meet Roger Shah featuring Adrina Thorpe - Perfect Love
+ 09. W&W - Invasion (Club Mix)
+ 10. Andrew Rayel - 550 Senta (Aether Mix)Жанр: TranceПродолжительность: 02:00:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
+magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,34 +589,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 594918   (133191) от 27.12.2012
+###  Публикация: 592717   (135655) от 22.12.2012
 
-Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal>
+Александр Михайлов | Байки с Лубянки [2004] [RTF, FB2]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. O Holy Night [01:48]
-02. It Came Upon A Midnight Clear [03:20]
-03. Hark! The Herald Angel Sings [01:49]
-04. Away In A Manger [02:13]
-05. Joy To The World [01:40]
-06. The First Noel [01:50]
-07. Silent Night [02:51]
-08. O Come All Ye Faithful [02:45]
-09. Sleep, My Little Jesus [02:17]
-10. Angels We Have Heard On High [01:46](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 00:28:02
+Когда-то автор подобной книги мог бы получить лет …надцать, а теперь он получил гонорар и восторг читателей.
+
+Даже во время важных операций чекисты могут стать участниками анекдотических ситуаций. «Байки с Лубянки» – это подлинные истории, похожие порой на анекдоты, случились с автором этой книги или с его коллегами-чекистами. Ведь в жизни трагическое нередко соседствует с комичным.Формат: RTF, FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C6D44838659F6E0A83BB8BB19D343F8C6CBB9A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -498,94 +617,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681044   (133189) от 02.12.2023
+###  Публикация: 592818   (135653) от 22.12.2012
 
-Dissection - Live Legacy (1997) Live album, 2003, Nuclear Blast [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Intro - At the Fathomless Depths
-2.	Retribution - Storm of the Light's Bane
-3.	Unhallowed
-4.	Where Dead Angels Lie(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9E6200E9D71F40B9F86AA578B1789EEDDE797C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595182   (133188) от 27.12.2012
-
-VA - Alex Ultrawox - YearMix 2012 (2012) [MP3|320 кб/с]<Trance>
+Свора / The Breed (2006) DVD9
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ralphie B - The Holy Grail (Original Mix)
-02. Tenishia - Where Do We Begin (Andrew Rayel Remix)
-03. Dash Berlin feat. Emma Hewitt - Like Spinning Plates (Alexander Popov Remix)
-04. Emma Hewitt -  Colours (Cosmic Gate Remix)
-05. Faruk Sabanci - Elveda (Original Mix)
-06. Andrew Rayel - How Do I Know
-07. Alexander Popov - Attractive Force (Original Mix)
-08. Armin van Buuren and Orjan Nilsen - Belter (Edit)
-09. Alexandre Bergheau - Colors Of Persia (Original Mix)
-10. Fady & Mina - Kepler 22 (Andrew Rayel Aether Remix Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7709374D97ADBDD2756F54674F5810F03415B4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594841   (133186) от 27.12.2012
-
-DropDMG 3.2 [Eng]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простое в работе приложение, выполняющее следующие основные функции:
-- создание образа диска DMG, конвертирование его в другие форматы, слияние файлов и многое другое путем перетаскивания файлов или каталогов мышью (drag and drop) в окно программы
-- сохранение конфигурации для выполнения аналогичных действий в будущем или создание одноразовой настраиваемой конфигурации
-- прожиг файлов и каталогов на CD, DVD, или Blu-ray.
-- прожиг инсталляционных DVD OS X
-- приложение оптимизировано для многоядерных процессоров и может работать в фоновом режиме, не мешая выполнению других задач
-- сохраняет детальный лог всех успешных операций и ошибок
-- монтирует образы дисков как каталоги в указанное место
-- позволяет добавлять в образ локализованную версию лицензионного соглашения, ваши иконки и фоновый рисунок
-- поддерживает множество форматов, в том числе .dmg, .sparsebundle, .zip, .tar.gz(   Читать дальше...   )Название программы: DropDMGРелиз состоялся: 7 ноября 2012 г.Тип издания: Mac OS X SoftwareЯзык интерфейса: Английский
+Увлекательная поездка на заброшенный остров обернулась настоящим кошмаром для веселой компании подростков. Пребывая в уверенности, что вокруг никого нет, друзья решают воспользоваться всеми преимуществами уединения и оторваться по полной программе! Неожиданно они подвергаются нападению диких собак, обосновавшихся на этом острове. Очень скоро, загнанные в угол подростки понимают, что имеют дело не с простыми собаками. Обитающие на острове твари, с измененным генетическим кодом, обладают необыкновенным, почти сверхъестественным умом и неутолимым голодом, а укусы их несут необратимые изменения в организме человека…Жанр: Ужасы, ТриллерРежиссер: Николас МастандреаАктеры: Мишель Родригес, Оливер Хадсон, Тэрин Мэннинг, Эрик Лайвли, Хилл Харпер, Ник Борэйни, Лиза-Мари ШнайдерПеревод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:27:11
 
 ## Скачать торент
 ```bash
@@ -597,25 +643,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681188   (133185) от 02.12.2023
+###  Публикация: 592374   (135652) от 22.12.2012
 
-Пятеро на одного (02.12.2023) WEBRip [H.264/720p-LQ]
+Конец молчания / La fin du silence (2011) DVDRip
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+Атмосфера тревоги и отстраненности складывается с первых кадров фильма, показывающих чащу ночного леса. Сложные отношения царят в семействе Кляйн, живущей в отдаленной горной местности. Младший сын Жан считается в семье "паршивой овцой". Он, в свою очередь, жесток и озлоблен. Что довело этого юношу до состояния почти животной агрессии? Что случится, когда в его руках окажется винтовка? После исчезновения Жана в горах семья со страхом ждет его возвращения. Уже третий день идут проливные дожди. Способен ли Жан с оружием в руках бросить вызов семье?Жанр: Триллер, ДрамаРежиссер: Ролан ЭдзарАктеры: Франк Фализ, Тьерри Фремон, Майя Моргенштерн, Карло Брандт, Марианн Басле, Алексис МихаликПеревод: Любительский (одноголосый)Продолжительность: 01:16:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB0193BC6476F3871B7AEB0B1517A86DE42E8582
+magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,25 +669,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681241   (133183) от 02.12.2023
+###  Публикация: 592798   (135649) от 22.12.2012
 
-Благовест | Преподобные Антоний и Феодосий Печерские (2011) [PDF, FB2, EPUB, MOBI, TXT]
+[картинки] Catwoman
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-В книге, посвященной отцам русского монашества, преподобным Антонию и Феодосию Печерским, представлены их жития, а также некоторые поучения преподобного Феодосия. Молитвенный раздел включает в себя акафист и молитвы преподобным. Сборник также содержит подробный рассказ о Киево-Печерской Лавре, основанной преподобными, ее храмах и пещерах. В приложениях представлен (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+Я женщина-Кошка, я злая немножко.
+Нежно игрива... опасно красива...
+Красивая шёрстка,пушистенький хвостик!
+Я лапками трогаю верности мостик.
+Тебя не обижу, не дам нам пропасть!
+Я Женщина - Кошка! Я Женщина - Страсть!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ACA65360F9145BCB09C3B790D857A4E432E6047
+magnet:?xt=urn:btih:7602786CB8DAAB9BFEDD475595947358B06FF2E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,58 +700,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681184   (133181) от 02.12.2023
+###  Публикация: 592679   (135648) от 22.12.2012
 
-VA - The Birth Of Bop: The Savoy 10-Inch LP Collection (1944 - 1949) 2CD, 2023, Craft Recordings [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo Parker - Solitude (2:54)
-02. Stan Getz - Don't Worry 'Bout Me (2:37)
-03. Fats Navarro - Maternity (Lard Pot) (3:02)
-04. Allen Eager - Donald Jay (2:33)(   Читать дальше...   )Жанр: BopПродолжительность: 01:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1723C2E3C424B4A1B5C159E9F9FFA25B7E72E727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595000   (133180) от 27.12.2012
-
-Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
+Роктябрята - The Best (2012) [MP3|256 кб/с]<Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Chemical Age (6:35)
-02. Watching the Radio (8:43)
-03. Broken Toys (5:59)
-04. Prelude to Farewell (1:37)
-05. Relic of the Modern World (19:12)Жанр: Crossover ProgПродолжительность: 00:42:06
+01. Первое января
+ 02. Мой день
+ 03. Огни желания
+ 04. Восход любви
+ 05. Мой блюз
+ 06. Ничего не изменить
+ 07. Миг
+ 08. Железнодорожный блюз
+ 09. Портвейн
+ 10. Песня о друге(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:29
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,21 +735,49 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 595084   (133178) от 27.12.2012
+###  Публикация: 592268   (135646) от 22.12.2012
 
-RonyaSoft Poster Designer 2.01.42.02 [Multi/Русский]
+На Муромской дорожке... (1993) DVDRip
 
->>нет
->>нет
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-RonyaSoft Poster Designer - легкая в использовании программа для дизайна и печати привлекательных индивидуальных постеров и баннеров. Коллекция готовых шаблонов плакатов и интуитивный пользовательский интерфейс позволяют создавать собственные постеры и баннеры практически за несколько кликов. Любая деталь в шаблоне постера может быть изменена соответственно вашим требованиям, например: рисунок, текст, цвет, размер, стиль и т.п. Мастер печати поможет распечатать плакаты на домашнем или офисном принтере. Также вы сможете экспортировать плакаты в изображения для печати в службах печати или для использования в блогах, на форумах или социальных сайтах. Возможность печати многостраничных постеров и баннеров также предусмотрена.Название программы: Poster DesignerЯзык интерфейса: Multi/Русский
+История любви китайского купца Чжоу и русской девушки Ольги, встретившихся и обвенчавшихся в Москве в годы НЭПа. А потом ему пришлось уехать по торговым делам в Китай — и выяснилось, что разлука их затянется на долгие годы. Ничто не сломило силу и красоту чувств - ни одиночество жены, остающейся верной, ни мытарства и вынужденные скитания по разным странам её мужа, (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Федор ПетрухинАктеры: Аристарх Ливанов, Сейдулла Молдаханов, Елена Кондулайнен, Любомирас Лауцявичюс, Юрга Кураускайте, Андрей Николаев, Андрей Толубеев, Борис Новиков, Лариса Малеванная, Николай Михеев, Надежда Евдокимова, Ли Ми Джи, Галий ЖунусоваПродолжительность: Аристарх Ливанов, Сейдулла Молдаханов, Елена Кондулайнен, Любомирас Лауцявичюс, Юрга Кураускайте, Андрей Николаев, Андрей Толубеев, Борис Новиков, Лариса Малеванная, Николай Михеев, Надежда Евдокимова, Ли Ми Джи, Галий Жунусова
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B1DEB9AB13871DBE9A80DB1EEE3799B427619E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592728   (135645) от 22.12.2012
+
+EZ CD Audio Converter 1.0.4.2 Ultimate [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.
+
+(   Читать дальше...   )Название программы: Easy CD-DA ExtractorЯзык интерфейса: MULTi / Русский
 
 ## Скачать торент
 ```bash

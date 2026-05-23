@@ -1,3 +1,55 @@
+###  Публикация: 1232997   (595005) от 27.06.2018
+
+NGW: Гризли Аляски бросают вызов. Короли острова Кодиак / Alaska's Grizzly Gauntlet (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Специалист по выживанию Лес Строуд направляется на озеро Карлук на острове Кодиак на Аляске, чтобы встретиться с царем всех бурых медведей.Производство: США, Ping Pong Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Кэйси БрамелсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328149B9109C522B28F70C327E8FDFB4BDA7A7C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549116   (594602) от 05.05.2022
+
+Дикие места Таиланда / Thailand's Wild Side (2019) WEB-DL [H.264/1080p] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Среди многообразия тайской природы животные вынуждены преодолевать множество трудностей в поисках еды во мглистых лесах, изобильных болотах, мангровых зарослях и шумных городах. Живые существа ведут ежедневную борьбу, охотясь на свою добычу и пытаясь не быть съеденными. Их жизнь зависит от хитрости, ума и находчивости. А проигравшие платят ужасную цену. В состязании (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Сью ДойодПеревод: дублированный (Велес)Субтитры: английскиеПродолжительность: 2x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88BF0C57646083A74A0182798BDF89ACC84328E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915326   (594545) от 04.07.2015
 
 Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [Серии 1-2] [Обновляемая]
@@ -6,7 +58,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. Разгаданные тайны Библии / Biblical Mysteries E
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Discovery. Аляска: последний рубеж / Alaska: The Last Fronti
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTV [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Discovery. Пчелиный король / Bee Czar (2022) WEBRip [H.264/1080p-L
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +268,7 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +294,7 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +320,7 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +346,7 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ NG: Египет с величайшим исследователем в мир�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ Discovery: Разрушители легенд. Посадка в самолёт
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Animal Planet. Королева львов / The Lion Queen (2015) HDTVRip [Се
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Animal Planet. Тайная жизнь домашних питомцев / Secre
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Discovery. Хуже не бывает / World's Worst (2014) HDTVRip [Серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ Discovery. Реальные дальнобойщики / Outback Truckers (2014-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ Discovery. Реальные дальнобойщики / Outback Truckers (2014-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF791A3684804F7DA48C9882ADE0A47DA05DBB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915663   (591812) от 06.07.2015
-
-Discovery: Разрушители легенд. Спецвыпуск Симпсоны / MythBusters. The Simpsons Special (2015) WEB-DLRip (Сезон 15, эпизод 01) Jetvis Studio
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591812.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Одноголосый закадровый - Jetvis StudioПродолжительность: ~ 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126E9A6958762635FAFCE3A274DC891969C86B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915467   (591776) от 06.07.2015
-
-Animal Planet. Природа Ближнего Востока / Wildest Middle East (2014) HDTVRip (Сезон 1, серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Природа Ближнего Востока потрясает своей красотой. Она кажется пустынной, но присмотритесь, и вам откроется всё богатство местной фауны и флоры.Телекомпания: США, Animal PlanetЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFDC49E75EE56D32F7A8AE8BB61AC043331508D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

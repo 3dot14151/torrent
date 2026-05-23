@@ -1,3 +1,108 @@
+###  Публикация: 1182594   (282369) от 27.11.2017
+
+Вирджинец / The Virginian (1946) DVDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм о счастливой любви славного парня, ковбоя по прозвищу "Вирджинец" (Джоэл МакКри) и милой девушки, школьной учительницы, Молли Вуд (Барбара Бриттон). Но это не мелодрама. Это вестерн. А потому, здесь будет достаточно плохих ребят, погонь и перестрелок.Производство: США / Paramount PicturesЖанр: Мелодрама, ВестернРежиссер: Стюарт ГилморАктеры: Джоэл МакКри, Брайан Донлеви, Сонни Тафтс, Барбара Бриттон, Фэй Бейнтер, Том Талли, Генри О’Нилл, Билл Эдвардс, Уильям Фроули, Пол ГилфойлПеревод: Двуголосый закадровый, любительский (Ник Ганфайтер и Катя Неодим)Субтитры: Русские, английскиеПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE7E29E8EECA34A42C3A7E3E1B9713C4461A780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078915   (282333) от 10.12.2016
+
+Меч и крест / La spada e la croce (1958) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События фильма разворачиваются во времена античной Римской Империи. Центурион Гай Марцелл послан в провинцию Галилею с заданием проверить, как ею управляет наместник императора Понтий Пилат.
+В пути Марцелл встречает известную куртизанку Марию Магдалину и страстно влюбляется в неё. Выполняя свою миссию, он жестоко подавляет восстание в Иудее, арестовывает Иисуса из (   Читать дальше...   )Производство: Италия, Liber FilmЖанр: Драма, ИсторическийРежиссер: Карло Людовико БрагальяАктеры: Ивонна де Карло, Хорхе Мистраль, Массимо Серато, Андреа Аурели, Теренс Хилл, Нандо Тамберлани, Филипп Эрсен, Розанна Рори, Надя Бравио, Росанна Подеста, Роберт МорганПеревод: Двуголосый закадровыйПродолжительность: 01:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AADBBFD9FF3A780D6E40998FF80DBD7989049D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182700   (282043) от 27.11.2017
+
+Мефисто / Mephisto (1981) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это осовремененная версия легенды о Фаусте. Пользующийся признанием критиков сценический актер Хендрик Хофген устал от легких развлекательных театральных условностей и ищет чего-то более революционного в духе Брехта. Несмотря на эти свежие идеи, слава не раскрывает своих объятий. Отчаявшийся Хендрик продает свою душу, но не Дьяволу, а нацистам, так как жажда славы (   Читать дальше...   )Производство: Германия (ФРГ), Венгрия, Австрия / Hessischer Rundfunk (HR), Mafilm, Manfred Durniok FilmproduktionЖанр: ДрамаРежиссер: Иштван СабоАктеры: Клаус Мария Брандауэр, Кристина Янда, Бансаги Ильдико, Эндорэй Питер, Бойд Карин, Харборт Кристина, Генчи Сари, Кишонти ИльдикоПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E382212F3A1B7D4A6B6EC149FEF5172DEA4574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336353   (280508) от 06.11.2019
+
+Черный тюльпан / La tulipe noire (1964) BDRip [H.264] [GER Transfer]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Накануне Французской революции в тихой провинции жуткий страх наводит на знатных мерзавцев таинственный разбойник в маске, чьим фирменным знаком стал черный тюльпан. Неуловимый мститель находчив, бесстрашен, благороден и умен, он прекрасный наездник и гений фехтования. Дворянин Жульен — беспечный неженка, глупый и трусливый — совсем на него не похож. Но никто не (   Читать дальше...   )Производство: Франция, Италия, Испания / Ágata Films S.A., Flora Film S.r.l., Méditerranée Cinéma, Mizar FilmsЖанр: боевик, комедия, приключенияРежиссер: Кристиан-ЖакАктеры: Ален Делон, Вирна Лизи, Адольфо Марсильяч, Доун Аддамс, Аким Тамирофф, Лаура Валенсуэла, Жорж Риго, Франсис Бланш, Хосе Хаспе, Перла КристальПеревод: Дублированный ''Союзмультфильм'' с вставками многоголосого ''R5''Субтитры: ОтсутствуютПродолжительность: 01:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB24968CD3C74320E3DB624B029968209EC6D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182750   (280308) от 28.11.2017
 
 Беспокойный свидетель / Do Not Disturb (1965) DVDRip [H.264] [VO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -576,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:363C8C5959831697B70513CB401622BB080F58D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081547   (272324) от 17.12.2016
-
-Триумфатор / Coriolano: eroe senza patria (1964) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний Рим времён республики. Патриции и плебеи. Борьба за власть, бесконечная смута и гражданские конфликты. В такой момент был атакован конвой, который вез хлеб в Рим и теперь над вечным городом нависла угроза голода и бунта. Гай Марций Кориолан - настоящий герой, сражающийся за Родину, ибо в такие времена возрастает опасность и внешней угрозы. Слава Гая Марция (   Читать дальше...   )Производство: Италия, Франция, Comptoir Franais du Film Production (CFFP), Doria Film, Explorer Film '58Жанр: Боевик, Драма, Приключения, ИсторическийРежиссер: Джорджио ФеррониАктеры: Гордон Скотт, Альберто Лупо, Лилла Бриньоне, Филипп Эрсен, Розальба Нери, Альдо Буфи Ланди, Анджела Минервини, Пьер Крессуа, Гаэтано Квартараро, Нерио БернардиПеревод: Многоголосый закадровыйПродолжительность: 01:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4B432920B735AEBDA0E0581FD4409A05D8CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211843   (271712) от 30.11.2018
-
-Народный роман / Romanzo popolare (1974) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милан, 1970-е годы. Немолодой рабочий активист Джулио знакомится с семнадцатилетней красавицей Винченциной, без памяти влюбляется и женится на ней. Рождается ребёнок. Тем временем Джулио подружился с раненным в стычках с демонстрантами молодым и пригожим полицейским Джованни. Возникает классический любовный треугольник. Когда Джулио застаёт жену с любовником, он (   Читать дальше...   )Жанр: Комедия, ДрамаРежиссер: Марио Моничелли.Актеры: Уго Тоньяцци, Орнелла Мути, Микеле Плачидо, Пиппо Старнацца, Франко Мацциери, Винченцо Крочитти, Гаэтано Куомо, Дженнаро Куомо и др.Перевод: ДублированныйПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455C9FA294B9440F86F3AB7E6431A53AC889997E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 34176   (271707) от 30.11.2018
-
-Продюсеры / The Producers (1967) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разорившийся бродвейский продюсер зарабатывает на жизнь тем, что развлекает пожилых дам. К нему для проверки отчётности приходит бухгалтер, обнаруживает ошибку в расчётах, но продюсер уговаривает его скрыть этот факт. В результате обсуждения у них рождается план как можно заработать миллион: для этого нужно поставить самый плохой мюзикл, чтобы он гарантированно провалился. (   Читать дальше...   )Производство: США, Crossbow Productions, Embassy Pictures Corporation, Springtime Productions, U-M ProductionsЖанр: КомедияРежиссер: Мэл БруксАктеры: Зеро Мостел, Джин Уайлдер, Дик Шон, Кеннет Марс, Ли Мередит, Кристофер Хьюитт, Андреас Вуцинас, Эстель Уинвуд, Рене Тейлор, Дэвид ПэчПеревод: ПрофессиональныйПродолжительность: 01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:176574C36512221ACDCD96BF314329959850B3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185233   (271126) от 05.12.2017
-
-Свинцовые времена / Die bleierne Zeit (1981) HDTVRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это хроники жизни двух немецких сестер, чей характер действительно определяет их судьбу. Марианна, ставшая радикалкой в результате событий середины 1970-х годов, присоединяется к ячейке террористов и просит сестру Джулиану забрать ее четырехлетнего сына. Из-за обязательств перед своим любовником Вольфгангом и карьеры писательницы, Джулиана, поколебавшись, отказывает, (   Читать дальше...   )Производство: Германия (ФРГ) / Биоскоп Фильм, Sender Freies Berlin (SFB)Жанр: ДрамаРежиссер: Маргарете фон ТроттаАктеры: Ютта Лямпе, Барбара Зукова, Рюдигер Фоглер, Дорис Шаде, Веренис Рудольф, Люк Бонди, Франц Рудник, Джулия Бидерманн, Ина РобинскиПеревод: Двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17739F0BB88C2BAEB9E0506C67F1F1F2BFBADB7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

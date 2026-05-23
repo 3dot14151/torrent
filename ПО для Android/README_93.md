@@ -1,3 +1,81 @@
+###  Публикация: 1826478   (169105) от 19.10.2025
+
+PowerDirector – Video Editor v15.8.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.10.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C9167BBC73DC0A1C34F5F18658C571B08B8DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515553   (168987) от 07.12.2021
+
+Учебник По Устройству Автомобиля v1.0.7 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Приступая к работе над данным приложением, мы ставили перед собой цель в максимально доступной форме изложить достаточно непростой теоретический курс по устройству автомобиля. Знание основ строения транспортных средств снабдит начинающего водителя уверенностью в том, что он сможет контролировать ситуацию в случае какой-либо поломки, прогнозировать объем необходимых (   Читать дальше...   )Тип издания: Пиратка (Pro)Релиз состоялся: 30 августа 2021 г.Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCBC0223E98AFD3ED0FB01FBA8D4E72D812D2CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509404   (168981) от 07.12.2021
+
+DW Contacts & Phone & SMS 3.2.0.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+DW Contacts & Phone Pro (бывший Contact Group Manager) – уникальное приложение, которое содержит огромное количество полезнейших функций: номеронабирателя, управления контактами, группами, отправкой сообщений SMS, MMS, сообщений электронной почты, а также возможностью проигрывания мелодий.Тип издания: Mod (Patched)Релиз состоялся: 16.09.2021Разработчик: DWPПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B17197A993022565E82903107D6DBB29F22DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668790   (168852) от 28.10.2023
 
 Простые рецепты v1.47 Mod by vadj [Ru]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +111,7 @@ Snap VPN: Super Fast VPN Proxy 4.7.0.1 Mod by Pie Mods [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +138,7 @@ Node Video - Pro Video Editor 6.8.4 Mod by Alien (ToonXTech) [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +164,7 @@ PDF Extra: сканер и редактор 10.6.2171 Lite-Mod by Number one' [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Dynamic Island - dynamicSpot 1.76 (200104) Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +216,7 @@ PDF Extra: сканер и редактор 10.7.2189 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +242,7 @@ CamScanner 6.50.0.2309270000 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +268,7 @@ CCleaner Pro: ПО для очистки 23.21.0 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +294,7 @@ Cozy Magnifier & Microscope Plus v6.3.0 Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +320,7 @@ HappyMod 3.0.5c Mod by Igorek72rus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Sectograph Pro v5.21_build_175_Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +375,7 @@ Birdays – Дни рождения 1.5.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +431,7 @@ Vivaldi for Android 6.2.3110.143 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +457,7 @@ Aimp v4.02.1368 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +485,7 @@ Evernote 8.13.3 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -462,7 +540,7 @@ Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +566,7 @@ Sticker Maker v0.0.3-20 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -517,7 +595,7 @@ CloudBeats: Cloud Music Player 1.8.3 PRO [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -545,7 +623,7 @@ CookPad 2.228.1.0 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,7 +679,7 @@ Kaspersky Internet Security Premium v11.59.4.5119 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,87 +690,6 @@ Kaspersky Internet Security для Android – мобильный антивир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA22305338E2F5F42FF844514F2BC0F00B9D9FB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076437   (164639) от 16.12.2020
-
-Трансерфинг Реальности. Вадим Зеланд v3.7 [Ru] Full
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164639.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Реальность существует независимо от вас. До тех пор пока вы с этим согласны» – Вадим Зеланд.
-Трансерфинг – это технология управления реальностью. Желания не исполняются, мечты не сбываются, зато худшие ожидания, как назло, оправдываются. Неужели нельзя наоборот? Оказывается, можно. И вы узнаете, как.
-Возможности приложения:
-• 15 книг, полное собрание произведений (   Читать дальше...   )Тип издания: Пиратка/UnlockedРелиз состоялся: 11 ноября 2019 г.Разработчик: Owly LabsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9037986BA997F28F0C24DA862BE8D2E048DC8813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516925   (164297) от 13.12.2021
-
-KeePassDX Pro v3.0.4 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164297.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeePassDX Pro - Приложение позволяет сохранять и использовать пароли. KeePass DX менеджер паролей, с открытым исходным кодом, зарекомендовавший себя безопасностью и надёжностью. В отличии от KeePass2Android, KeePassDX Pro не требует доступа в интернет и не содержит никакой рекламы.Тип издания: Pro (Paid)Релиз состоялся: 10.12.2021Разработчик: KunzisoftПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D286EA986006F0514C14018BA164F436445024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516928   (164282) от 13.12.2021
-
-Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164282.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью приложения Enpass Password Manager для Android вам больше не придется запоминать пароль и другую важную информацию. Приложение позволяет сохранить секретную информацию и пароли в одном надежном и самое главное безопасном месте. Все, что нужно – это запомнить пароль от самого приложения, а после вы сможете запускать программу и быстро получать доступ к сохраненным (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.09.2021Разработчик: Enpass Technologies IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский (Частично), Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872CC153681BFEDAEF04D895A96FCF4A4C8EF68F
 ```
 
 https://mybot314.ru/tekegram_catalog/

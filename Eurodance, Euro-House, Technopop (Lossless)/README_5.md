@@ -1,3 +1,84 @@
+###  Публикация: 1718828   (110804) от 27.04.2024
+
+Hypaton x David Guetta Feat. La Bouche - Be My Lover (2023 Mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Future House, Future Rave>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Hypaton × David Guetta Feat. La Bouche - Be My Lover (3:58)Жанр: Euro House, Future House, Future RaveПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C94E6C6CCDBE08FFF4D74FDF10340D0898CEC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718827   (110778) от 27.04.2024
+
+DJ Rosell and Angel Garcia DJ - Be My Lover (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Dance, Euro House, Pop Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Rosell and Angel Garcia DJ - Be My Lover (5:03)Жанр: Euro-Dance, Euro House, Pop TranceПродолжительность: 00:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E945EC984D50DBAC1413A0D082A2834A5806238B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728228   (108350) от 07.06.2024
+
+Amber - The Hits Remixed (2000) [FLAC|Lossless|tracks + .cue] <House, Euro House, Synth-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Taste The Tears (Thunderpuss Original Mix (3:47)
+02. Love One Another (Pathos Original Mix) (3:46)
+03. Sexual (Li Da Di) (Deep Dish Cheez Whiz Remix) (4:12)
+04. Above The Clouds (Eric Kupper Remix) (4:02)(   Читать дальше...   )Жанр: House, Euro House, Synth-popПродолжительность: 01:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21237763C9754BC17689FC3118423DEBE5660E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744996   (105198) от 24.08.2024
 
 Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix) (2019) [FLAC|Lossless|tracks] <Eurodance, Techno-pop>
@@ -6,7 +87,7 @@ Chillymouse - Rhythm Is A Dancer (Timster & Ninth Remix) (2019) [FLAC|Lossless|t
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +114,7 @@ Bounce Enforcerz vs. DJ Oskar - Mr. Vain (2020) [FLAC|Lossless|tracks] <Scouse H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +141,7 @@ Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +167,7 @@ M.C.Sar & the real McCoy - The Real Best! (2016) [FLAC|Lossless|WEB-DL|tracks] <
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +196,7 @@ VA - DJ Dance Rarities of the 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +225,7 @@ Booka Shade - For Real (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +254,7 @@ Clueless - The Album (1998) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -202,7 +283,7 @@ Don Amore - One More Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ital
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -231,7 +312,7 @@ La Vania - Singles Collection 5CDs (2000-2004) 1st Italian Press [APE|Lossless|i
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -260,7 +341,7 @@ Gigi D'Agostino - Sound of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <EuroDance,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -289,7 +370,7 @@ VA - Italo Dance Top Charts (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, I
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +399,7 @@ VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +428,7 @@ VA - We Love Italo Dance (vol. 2) (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Da
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +457,7 @@ Fancy - Greatest Hits & Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodisco,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +486,7 @@ Dr. Alban - 2 EP (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Reggae, Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +515,7 @@ E-Rotic - Level Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -463,7 +544,7 @@ E-Rotic - The Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +570,7 @@ One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -516,7 +597,7 @@ VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -545,7 +626,7 @@ VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,7 +655,7 @@ Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|trac
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,7 +684,7 @@ Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -632,7 +713,7 @@ Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -646,93 +727,6 @@ Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7516C94A306B82F4DA9F4C4475532016655522A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794419   (19859) от 29.04.2025
-
-Corona - The Rhythm Of The Night (1995) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Baby (3:47)
-02. Try Me Out (3:27)
-03. Get Up and Boogie (3:14)
-04. I Don't Wanna Be A Star (3:15)(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57C66F8324A128B89E134F31B445ECB0C7A9BA7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797381   (18074) от 16.05.2025
-
-Eurythmics - The Greatest Hits (1991) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <New Wave, Synth-pop, Pop Rock, Ballad, Vocal>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (Are Made of This) (4:55)
-02. When Tomorrow Comes (4:30)
-03. Here Comes the Rain Again (5:07)
-04. Who's That Girl? (3:49)(   Читать дальше...   )Жанр: New Wave, Synth-pop, Pop Rock, Ballad, VocalПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9913C8AC8E6F7AC6614978E396F8E508F66F6A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810667   (9221) от 05.08.2025
-
-VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9221.jpg" />
-</div>
-
-
-###  Подробнее
-
-1/10. Mark Farina - Gunfire (Explosive Mix) (2:50)
-2/10. F. C. F. - Black Mother (Fire Version) (6:50)
-3/10. The Gangstars - Dancing In the Street (Power Version) (6:18)
-4/10. Mark Farina - Virtual Love Remix (Factory Team Remix) (4:53)(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17BC2D11FCFE82E6FEF9B7EB3D99BF9AF127E0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

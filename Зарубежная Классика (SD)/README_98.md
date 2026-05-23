@@ -1,3 +1,110 @@
+###  Публикация: 1021479   (252205) от 17.05.2023
+
+Игра в четыре руки / Le guignolo (1980) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Специализация симпатичного афериста Александра Дюпре — богатые вдовушки, из которых он изящно выколачивает деньги, каждый раз выдавая себя за разных персонажей. Все шло гладко до того дня, когда он оказался втянутым… в дело о международном промышленном шпионаже, затрагивающем стратегические интересы Франции.Производство: Франция, ИталияЖанр: Боевик, комедияРежиссер: Жорж ЛотнерАктеры: Жан-Поль Бельмондо, Мирелла Д'Анджело, Мишель Галабрю, Карла Романелли, Паоло Боначелли, Жорж Жере, Мишель Бон, Шарль Жерар, Морис Озель, Тони Кендалл, Ренцо Мариньяно, Альдо Рендине, Пьер Вернье, Анри Гибе, Мишель Беррер, Даниель Бретон ...Перевод: Дублированный, профессиональный многоголосыйЯзык субтитров: Русский, английскийПродолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24EF7D7999E06D55E045E01B73D02FE48FFE7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 82690   (252101) от 22.05.2023
+
+Возвращение высокого блондина / Le retour du grand blond / The Return of the Tall Blond Man with One Black Shoe (1974) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Спецслужбы в лице капитана Камбрэ приказывают полковнику Тулузу привезти им «суперагента» высокого блондина.
+Но тот придумывает историю, что он погиб при выполнении спецоперации в тропиках.
+Чтобы захоронить его с почестями, министр требует привезти агента на родину.
+Не сумев отвертеться, Тулуз посылает своих людей в Рио-де-Жанейро, что бы найти Перрена, но тому все (   Читать дальше...   )Жанр: КомедияРежиссер: Ив РоберАктеры: Пьер Ришар, Мирей Дарк, Жан Рошфор, Поль Де Персон, Жан Карме, Жан Буиз, Колетт КастельПеревод: ДублированныйЯзык субтитров: Русские, в моментах вырезанных советской цензурой.Продолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E090242D352313E8038EB5FE23436FA57B96EF84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494806   (251522) от 12.05.2012
+
+Пираты зеленого острова / Los corsarios (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Любите пиратские фильмы (в смысле - про пиратов), романтику дальних морей, шпаги звон и звон бокалов, юмор в духе комик-группы "Шарло"? Помните Дина Рида, статного голубоглазого американского парня с гитарой, в свое время невероятно популярного в странах Восточной Европы, лучшего друга главного киноиндейца Гойко Митича ("Братья по крови", 1975)? (   Читать дальше...   )Жанр: Боевик, Комедия, ПриключенияРежиссер: Фердинандо Балди / Ferdinando BaldiАктеры: Дин Рид, Альберто де Мендоса, Аннабелла Инконтрера, Пака Габалдон, Томас Бланко, Тито Гарсия, Сальваторе Боргезе, Флоринда Чико, Педро Луис Лосано, Хосе Луис Чинчилла, Антонио Де Де МартиноПеревод: Многоголосый закадровыйПродолжительность: 01:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2A7F9F4DF9D2A7F6BE57AA7E2492519F9D73DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494817   (251502) от 12.05.2012
+
+Прощай, Сабата / Indio Black, sai che ti dico: Sei un gran figlio di... / Adios Sabata (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой Сабата помогает мексиканским повстанцам ограбить свирепого австрийского полковника,ну а компаньон Сабаты, Бэлантайн, пытается ограбить повстанцев.Жанр: ВестернРежиссер: Джанфранко Паролини / Gianfranco ParoliniАктеры: Юл Бриннер,Перевод: Многоголосый закадровыйПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693009575D6DAE06DEC5DDB34C452D8052758405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 493784   (251471) от 12.05.2012
 
 Пикник / Picnic (1955) DVDRip
@@ -6,7 +113,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -216,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -271,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -297,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -323,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -349,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -375,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -401,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -427,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -453,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -479,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -505,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -531,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -557,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -568,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:544EE39D69FE634A253539347ED837645841DD24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609353   (244864) от 03.02.2023
-
-Я был двойником Монти / I Was Monty's Double (1958) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон, 1944 г. Офицеры разведки майор Харви и полковник Логан пытаются разработать план, как убедить нацистов отвести войска из района в Нормандии, где настоящий генерал Монтгомери готовит наступление. Однажды вечером Харви на выходе из кинотеатра увидел, как некий актёр по имени Клифтон-Джеймс удивительно точно изображал Монти и благодаря удивительному внешнему (   Читать дальше...   )Производство: Великобритания / Film Traders Ltd., Setfair ProductionsЖанр: драма, военный, историяРежиссер: Джон ГиллерминАктеры: Джон Миллз, Сесил Паркер, Патрик Аллен, Патрик Холт, Лесли Филлипс, Майкл Хордерн, Мариус Горинг, Барбара Хикс, Дункан Ламонт, Энтони СагарПеревод: Одноголосый любительский (Виктор Рутилов)Язык озвучки: русский, английскийСубтитры: английские (SDH), русскиеПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D804820DCB7060386A4617E92E7EFD8C20D2949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625162   (244793) от 06.05.2023
-
-Адрес неизвестен / Address Unknown (1944) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм нуар 1944 года режиссера Уильяма Кэмерона Мензиса, снят по роману Крессманна Тейлора “Адрес неизвестен”. Молодой художник-эмигрант из Штатов возвращается на родину в Германию, привлеченный нацистской пропагандой, даже не подозревая о том, что скрывается за громкими лозунгами и воодушевляющими речами.Производство: США / Columbia PicturesЖанр: драмаРежиссер: Уильям Кэмерон МензиесАктеры: Пол Лукас, Карл Эсмонд, Петер ван Эйк, Мади Кристианс, Моррис Карновский, Кейти Стивенс, Эмори Парнелл, Мэри Янг, Фрэнк Фэйлен, Чарльз ХэлтонПеревод: Одноголосый любительский (sephiroth)Язык озвучки: русский, английскийСубтитры: английские (Full, SDH)Продолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89401777B7FE17F32CE6BBA6A663750D98503A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617345   (244373) от 28.03.2023
-
-Авось прорвёмся! / A-Haunting We Will Go (1942) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244373.jpg" />
-</div>
-
-
-###  Подробнее
-
-За какую-то мелкую провинность Стэна и Олли на ночь задержали в полицейском участке в Гамильтоне, а утром велели прочь убираться из города. Найдя в газете объявление, они по нему нанимаются вести в Дейтон гроб с якобы мертвым Чарли (на самом деле это гангстеры замыслили мошенничество). В поезде Стэн и Олли знакомятся со знаменитым иллюзионистом Данте...Производство: США, 20th Century Fox Film Corporation, Laurel and Hardy Feature ProductionsЖанр: комедия, приключенияРежиссер: Альфред Л. ВеркерАктеры: Стэн Лорел, Оливер Харди, Данте, Шила Райан, Джон Шелтон, Дон Костильо, Илайша Кук мл., Эдвард Гарган, Эддисон РичардсПеревод: Одноголосый любительский (Киноклуб Феникс)Язык озвучки: Русский, АнглийскийСубтитры: русские, английские (отдельными файлами)Продолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B28B94F7C32CA476B32900D77CDC98C7A57ADE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617334   (244294) от 27.03.2023
-
-Монахиня / La Religieuse (1966) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по произведению Дени Дидро. Сюзанн оказывается не просто несчастной девушкой, которую родители для решения своих материальных трудностей насильно закрывают в монастырь, где она проходит тяготы лишений и унижений от церковного совета, поскольку продолжает бороться за то, чтобы жить своей жизнью, она же оказывается истинной христианкой, отказывающейся слепо (   Читать дальше...   )Производство: Франция, Rome Paris Films, SNCЖанр: драмаРежиссер: Жак РиветтАктеры: Анна Карина, Лизелотте Пульвер, Мишлин Прель, Франсин Берже, Франсиско Рабаль, Кристиана Ленье, Йори Бертен, Катрин Дайамант, Жилетт Барбье, Анник МорисПеревод: профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: русские (Seandy), английскиеПродолжительность: 02:21:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DD283668027A436021CE3E1E76BE04AFCA483B
 ```
 
 https://mybot314.ru/tekegram_catalog/

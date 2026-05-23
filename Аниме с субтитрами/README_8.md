@@ -1,3 +1,109 @@
+###  Публикация: 1449354   (1030017) от 21.02.2021
+
+ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 округам OVA [2020, OVA, 1 эп.] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Королевство Дова, разделенное на 13 самостоятельных регионов, недавно отпраздновало 99-летие своего монарха. На территории Довы действуют всевозможные учреждения и службы, которые в свою очередь находятся под контролем мощной организации, известной как «АККА».
+
+Джин Отус — заместитель начальника одной из таких служб, инспекционного агентства, в наличии которого — (   Читать дальше...   )Производство: Япония / MadhouseЖанр: приключенияРежиссер: Нацумэ СингоПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0F6FD589B46D1AEB4AC36DFD5B0F63AA41A67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449332   (1029990) от 21.02.2021
+
+Tsuki wa Higashi ni Hi wa Nishi ni: Operation Sanctuary | Hani Hani ~Operation Sanctuary~ | Луна с востока, солнце с запада [2004, TV, 13 + 4 SP] DVDRip 476p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Наоки с нетерпением ждал счастливого безмятежного учебного года в колледже Хасумидай Гакуэн в компании своей подружки детства Хонами и кузины Мацури. Однажды парень задремал на школьной крыше, и ему приснилось, будто на него падает девушка с крыльями ангела. Когда же он проснулся, то рядом оказалась незнакомка, по ошибке принявшая его за некоего Юсукэ. Как выяснилось, (   Читать дальше...   )Производство: Студия RadixЖанр: романтика, комедияРежиссер: Дзинно СёдзиПеревод: A.k.M.; КириллЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 15 мин. + 4 SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6382C31B7227C87A26EF420EFD9BBB61F48425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449268   (1029924) от 21.02.2021
+
+Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Гоблины слывут лёгкой добычей не просто так — размерами, силой и умом они практически не отличаются от детей. Именно поэтому охота на них считается отличным способом набить руку в авантюрном деле. Этим и руководствуется Жрица, присоединяясь к отряду новичков, чтобы отправиться в пещеру гоблинов. Впрочем, вскоре новоиспечённые авантюристы осознают, как жестоко они (   Читать дальше...   )Производство: Студия White FoxЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCE8D3990DF90A43F0F92217BB7A63F210544EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449734   (1029732) от 22.02.2021
+
+Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [2018, TV, 12+2SP+OVA] BDRip 1080 HEVC 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Спортивная, но бестолковая школьница Ханако с крайне странным чувством стиля играет в игры с Оливией, переведённой из Америки. Жизнерадостность героинь раздражает Касуми. Её сестра вечно издевалась над девушкой за неумение играть в игры, и теперь она ненавидит их. Со временем становится ясно, что у Ханако большие проблемы с английским, однако Оливия ничем не может (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: комедия, повседневностьРежиссер: Киси СэйдзиПеревод: официальный (Crunchyroll); lukorepka (спешелы и ова)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, ДРУГИЕПродолжительность: 12 эп. по 25 мин. + 2SP + OVA
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248AE0A2C4F14E8499BE602FBE5610EB1BE6CB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236478   (1029648) от 22.02.2021
 
 Asobi Asobase | Давайте сыграем [2018, TV, 12 + 2SP + OVA] WEBRip 720p raw
@@ -6,7 +112,7 @@ Asobi Asobase | Давайте сыграем [2018, TV, 12 + 2SP + OVA] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Shoujo Kageki Revue Starlight | Revue Starlight | Девичья опера: С�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Free! Dive to the Future | Вольный стиль! [ТВ-3] [2018, TV, 12 + S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +192,7 @@ Kingdom 2 | Царство 2 [2013, TV, 39 из 39] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +218,7 @@ Kingdom | Царство [2012, TV, 38 из 38] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Heya Camp | Room Camp | Комнатный поход [2020, TV, 12 + SP] BDRip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Jitsu wa Watashi wa | Actually, I Am... | По правде говоря, я... 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +296,7 @@ Garasu no Kantai / Glass Fleet / Стеклянный флот [2006, TV, 26] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +324,7 @@ Amaama to Inazuma | Sweetness and Lightning | Сласти и молния [2016
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Shichinin no Nana | Seven of Seven | Семь из семи [2002, TV, 25 + SP] 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +376,7 @@ Tono to Issho OVA-1 | Вместе с господином OVA-1 [2010, OVA] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +402,7 @@ Rou Kyuu Bu! Tomoka no Ichigo Sunday | Баскетбольный клуб! OVA 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +428,7 @@ Karakuri Kiden Hiwou Senki | Hiwou War Chronicles | Заводные бойцы:
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +454,7 @@ Yotsunoha | Четыре листочка [2008, OVA, 2 из 2] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +482,7 @@ Hajime no Ippo: Champion Road | Первый шаг: Путь чемпиона [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +510,7 @@ Wangan Midnight | Ванганская полночь [2007, TV, 26] DVDRip 480 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +536,7 @@ Hajime no Ippo: The Fighting - New Challenger | Первый шаг [ТВ-2] [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +562,7 @@ The Spirit of Wonder | Spirit of Wonder | Дух чудес OVA-1+2 [1992 и 200
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +590,7 @@ Monster Musume no Oisha-san | Monster Girl Doctor | Доктор для деву
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +616,7 @@ Bobby ni Kubittake / Bobby's Girl / Девушка Бобби [1985, MV] DVDrip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +643,7 @@ Sky Girls / Небесные девочки OVA [2006] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +669,7 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,114 +680,6 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3AAC5BA00B290A23CB62743693B8B439735395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 122854   (1027291) от 08.03.2021
-
-Digital Juice / Цифровой Сок (2002, 6 эп.) DVDRip 400p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборный винегрет-солянка. По другому данную работу и не назовёшь. Отдалённо напоминает ставшие уже классикой жанра Memories (Воспоминания) -- потому как всё так же состоит из нескольких никоим образом не взаимосвязанных друг с другом сюжетов, совершенно разных по своей графике и рисунку.
-"Digital Juice" - это не просто экспериментальная анимация, это то, (   Читать дальше...   )Жанр: фантастикаРежиссер: Моримото КодзиПродолжительность: 6 эп. ~по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567475D76FDE70284666DAF406EDCF3EE316CBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 115943   (1027284) от 08.03.2021
-
-Hajime no Ippo - Mashiba vs Kimura / Первый шаг - Масиба против Кимуры [2003, OVA] DVDrip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027284.jpg" />
-</div>
-
-
-###  Подробнее
-
-(с) petr159 world-art.ru
-
-Из названия сразу понятно что серия посвящена бою Машиба и Кимуры. Серия не хуже предыдущих, тем кто смотрел сериал стоит посмотреть.
-Если раньше мы видели бои Кимуры лишь эпизодами и не могли полностью увидеть его мастерства, то здесь он раскроется по полной. Да и Машиба проявит себя неплохо.Жанр: спорт, боевые искусства, сёнэнРежиссер: Нисимура СатосиПродолжительность: 60 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1F0F7F89DE845DA9522942BF1FC0754FE1EA823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453176   (1027242) от 09.03.2021
-
-Ayu Mayu Gekijou | Театр Аю и Маю [2006, OVA, 4 + 3 SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спин-офф "Беспокойных сердец". Он расскажет нам о ежедневных приключениях Аю и Маю - работников ресторана "Небесный Храм"Производство: Студия Picture Magic / ピクチャーマジックЖанр: комедияРежиссер: Сага СатосиПеревод: neutralЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 4 эп. по 4 мин. + 3 SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E9CC3E7EDD6A760A81CC0B7CA857A57D16985F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453181   (1027231) от 09.03.2021
-
-Akane Maniax | Фанаты Аканэ [2004, OVA, 3 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года Дзёдзи студент, переведённый в академию Хакурё. В первый же учебный день он признался в любви с первого взгляда Судзумии Аканэ и тут же предложил встречаться. Эти два, противоположные во всём, персонажа пытаются сблизится друг с другом благодаря недюжинным усилиям Дзёдзи.Производство: Студия Silver / シルバーЖанр: комедия, драма, романтикаРежиссер: Ватанабэ ТэцуяПеревод: iншы & Dialog & AtlasЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. по 26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB774A0511D5F68C44F8EA6A637F4B128E753CC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

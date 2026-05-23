@@ -1,3 +1,61 @@
+###  Публикация: 1114430   (831961) от 15.03.2017
+
+Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. South Pacific (00:36)
+02. The Beach (01:28)
+03. Project Monarch (02:02)
+04. Packard's Blues (01:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC72C160C14135BF6F7180B79B1FECDCA621AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380592   (831567) от 04.05.2020
+
+Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 3 Main Theme
+02. Thrill of Nature
+03. Dark Force in Motion
+04. Call of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381165   (829743) от 05.05.2020
 
 Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
@@ -6,7 +64,7 @@ Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -65,7 +123,7 @@ Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -94,7 +152,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -123,7 +181,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -149,7 +207,7 @@ Need For Speed Underground,  Underground 2, Most Wanted, Carbon, Pro Street, Und
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -178,7 +236,7 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -207,7 +265,7 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +294,7 @@ Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +323,7 @@ Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +381,7 @@ Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенко�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +410,7 @@ John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +439,7 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +468,7 @@ Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes,
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +497,7 @@ VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +526,7 @@ Bill Brown, Mikael Sandgren - Command & Conquer: Generals+Command & Conquer: Gen
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +555,7 @@ Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Seaso
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +584,7 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +613,7 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +642,7 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +671,7 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +700,7 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +729,7 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,64 +743,6 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79558798C0DCE81A957B9DB8B8E6BE7C00FC698E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119687   (805364) от 29.03.2017
-
-Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nada - Senza un perchè (02:46)
-02. Andrew Bird - Logan's Loop (01:11)
-03. Jefferson Airplane - Blues from an Airplane (02:13)
-04. Lele Marchitelli - The Knowledge (01:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:35:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644964A2545F3E1E2B8008CC5274DF58AFB5D634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119630   (805242) от 29.03.2017
-
-Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival of the Fittest (02:24)
-02. Baby Brother (03:58)
-03. Welcome to Baby Corp (03:12)
-04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
 ```
 
 https://mybot314.ru/tekegram_catalog/

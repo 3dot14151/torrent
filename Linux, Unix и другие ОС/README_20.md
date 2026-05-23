@@ -1,3 +1,251 @@
+###  Публикация: 1412204   (417741) от 29.09.2020
+
+Debian GNU/Linux 10.6.0 + nonfree Buster [amd64] 4xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNET: опубликовано шестое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 53 обновления с устранением проблем со стабильностью и 32 обновления с устранением уязвимостей. Из изменений в Debian 10.6 выделяется обновление до свежих стабильных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A976CF940FC8B225B44798A9D0C404AE41656B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167363   (414382) от 21.09.2017
+
+KNOPPIX German DELUG edition of Linux Magazine. 8.0.0 [x32, x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клаус Кноппер (Klaus Knopper) представил на выставке CeBIT Edition 2017 новую версию 8.0 исторически одного из первых дистрибутивов, поддерживающих работу в Live-режиме. Дистрибутив построен на основе оригинального набора загрузочных скриптов и включает в себя пакеты, импортированные из Debian stable (jessie), testing (stretch)
+Пользовательская оболочка дистрибутива (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4396805D8BFF967C79CD5DBCD018EE16A83263BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710880   (413776) от 15.10.2013
+
+Debian KFreeBSD 7.2.0 [i386, amd64] (4xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Одновременно с корректирующим Debian GNU/Linux 7.2.0 вышел Debian GNU/kFreeBSD 7.2.0.
+
+Перенос Debian на GNU/kFreeBSD состоит из пользовательского окружения GNU, использующего библиотеку C GNU, которое запущено поверх ядра FreeBSD, а также привычного набора пакетов Debian.
+
+Основные обновления аналогичны обновлениям в основной версии Debian GNU/Linux 7.2.0. В репозитории представлено 37493 бинарных пакетов, что примерно на 30% больше, чем было представлено в Debian 6.0. По сравнению с Debian 6.0 добавлено 12800 новых пакетов, удалено 4125 устаревших пакетов, обновлено 20160 пакетов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3620942DBBEB22FCD5A4CB38AC0F9A8779240E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413184   (409331) от 03.10.2020
+
+OPNSense 20.7-OpenSSL 20.7 [amd64] 1xCD, 3xIMG
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Проект OPNsense - форк дистрибутива для создания межсетевых экранов pfSense.
+
+OPNsense is an open source, easy-to-use and easy-to-build FreeBSD based firewall and routing platform. OPNsense includes most of the features available in expensive commercial firewalls, and more in many cases. It brings the rich feature set of commercial offerings with the benefits of (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAAE2F72B6BA81F0AC1A22FF0839E38DCA00C908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712233   (409165) от 17.10.2013
+
+Kubuntu 13.10 Saucy Salamander [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вышел в свет релиз следующей версии Kubuntu Saucy. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 13.10 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65984FBE939404FF3E9F0BCC22D7C9D435E1D494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712340   (404149) от 18.10.2013
+
+Lubuntu 13.10 Saucy Salamander (легкий дистрибутив) [i386, amd64]
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вчера состоялся релиз семейства дистрибутивов 13.10  Saucy Salamander, среди которых присутствует и Lubuntu.
+
+Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. К тому же, Lubuntu позволяет вернуть к жизни старые персональные компьютеры, на которых другие современные операционные системы не смогут нормально работать. Lubuntu также отлично подходит для установки на нетбуки и другие портативные устройства.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26174A54ABCC93DB95BE48D6A79B67D7B2B9651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712347   (403224) от 19.10.2013
+
+Edubuntu 13.10 (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Edubuntu — дистрибутив операционной системы Linux, основанный на дистрибутиве Ubuntu. Ориентирован на использование в образовательных учреждениях. В Edubuntu включён Linux Terminal Server Project и большое количество программ образовательного направления, таких как GCompris; KDE Education Project; SchoolTool Calendar (en — school management information system) и ряд других.
+
+Установив Edubuntu Вы получите все возможности текущей версии Ubuntu 13.10 плюс некоторый набор образовательных программ. Поскольку Edubuntu работает с теми же репозиториями, что и Ubuntu, в последней все эти программы также будут доступны, однако придется их устанавливать самостоятельно, на что уйдет дополнительное время.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8EB3B710B8339DF688188B0F4A044ADF064457A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169518   (402161) от 28.09.2017
+
+KNOPPIX 8.1 [x32, x64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+будет позже пока на оф. сайте отсутствует
+KNOPPIX_V8.1-2017-09-05-EN
+KNOPPIX 8.1 DVD+USB edition
+Sep 27 18:07:16 2017
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46ABA9FB3178F1CA7DF90B1B69F232609CCE94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713625   (401531) от 21.10.2013
+
+MKVToolNix v6.5.0 ('Isn't she lovely') for Ubuntu 12.04 ('Precise Pangolin')
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в себе огромное количество информации. Формат MKV - открытый проект Матрешка (Matroska), призванный создать единый стандарт мультимедийных контейнеров на ПК. Его особенность, открытость кода, что позволяет совершенствовать данный формат любому программисту мира, а также команде программистов. Формат MKV стал необычайно распространен в последнее время, благодаря своим возможностям и, в частности, преобладанием функций по сравнению с AVI.Язык интерфейса: MulTi/Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0791206E1A49D6764D13A6F3849B2A7CEF59D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566299   (398674) от 27.10.2012
 
 FreeNAS 8.3.0 [x86, x64] (2xCD)
@@ -6,7 +254,7 @@ FreeNAS 8.3.0 [x86, x64] (2xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -36,7 +284,7 @@ Santoku (Безопасность, хакинг мобильных устрой�
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +312,7 @@ Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +340,7 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +368,7 @@ Debian GNU/Linux 9.2.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +396,7 @@ Debian Live GNU/Linux 9.2.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -176,7 +424,7 @@ Tor Browser 2.3.25-14 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +450,7 @@ KDE neon 5.11 (20171011) [x86-64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +476,7 @@ Antergos 18.10 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +502,7 @@ Debian GNU/Linux 9.2.1 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -282,7 +530,7 @@ elementary OS 5.1.6 Hera [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -308,7 +556,7 @@ Debian GNU/Linux 9.2.1 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -336,7 +584,7 @@ elementary OS 5.1.7 Hera [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -362,7 +610,7 @@ Lubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -390,7 +638,7 @@ Xubuntu 15.10 Wily Werewolf (Легкий дистрибутив) [i386, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -416,7 +664,7 @@ Arco Linux 18.10.4 [x86_x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +690,7 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,249 +703,6 @@ Manjaro Linux 0.8.7.1 Легкий дистрибутив: Arch + E17 [i686, x86
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C4EB30DD782C98D21780978791822FB33A6EF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416042   (371333) от 14.10.2020
-
-antiX Linux 19.2 Hannie Schaft [full] [i386, x86-64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371333.jpg" />
-</div>
-
-
-###  Подробнее
-
-antiX - легковесный LiveCD-дистрибутив Linux, созданный на основе Debian Stable и ориентированный на устаревшее оборудование с процессорами Intel-AMD x86. Он сравнительно лёгок и подходит для старых компьютеров, а также предоставляет передовые ядра и приложения, обновления и дополнения через систему пакетов apt-get и репозитории, совместимые с Debian.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09051CD747A7207D190EC624A046EEB40AF4FF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327768   (367527) от 28.09.2019
-
-MANJARO KDE JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система с графической средой рабочего стола, основанная на Arch Linux.Manjaro - дистрибутив Linux, основанный на Arch Linux. Одна из главных особенностей - дружественность по отношению к неопытным пользователям при сохранении всей мощи Arch.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9EBB4C70DC6260AA9FA05CE79A64E9E6ABFB9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416256   (366933) от 16.10.2020
-
-Ubuntu ServerPack 20.04 (сентябрь 2020) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ubuntu ServerPack - полный комплект серверного ПО, который позволит создать полноценный сервер Enterprise-уровня как в открытой, так и в закрытой(без возможности доступа к Интернет) корпоративной среде предприятий / фирм / государственных учреждений.
-Он легко внедряется в существующую ИТ-инфраструктуру и корпоративные сети. Возможно взаимодействие с рабочими станциями (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B24B85DE750ADEB1ADC0E4BF6A75494E0EF5BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327772   (365234) от 29.09.2019
-
-MANJARO GNOME JUHRAYA 18.1.0 [i386, x86-64] 1xDVD (2019-09-12)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система с графической средой рабочего стола, основанная на Arch Linux.Manjaro - дистрибутив Linux, основанный на Arch Linux. Одна из главных особенностей - дружественность по отношению к неопытным пользователям при сохранении всей мощи Arch.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AA5ABE58EC6C7750484FAE283FDCBA70C5C1C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327762   (365099) от 29.09.2019
-
-MANJARO XFCE JUHRAYA 18.1.0 (2019-09-12) 18.1.0 [i386, x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manjaro Linux - быстрая, дружественная операционная система с графической средой рабочего стола, основанная на Arch Linux.Manjaro - дистрибутив Linux, основанный на Arch Linux. Одна из главных особенностей - дружественность по отношению к неопытным пользователям при сохранении всей мощи Arch.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFCD0AAB0517A95AE551756386F78D30DB609AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416967   (362064) от 18.10.2020
-
-Parted Magic 2020.10.12 [x64]
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DDC83B367FD93AB37B8BB62CDCB9DA5D634845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722891   (360112) от 16.11.2013
-
-Mageia 4 Beta I [i586, x86-64] 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвертый по популярности дистрибутив на сегодня по версии DistroWatch.
-
-Вчера вышел Beta I релиз следующего поколения Mageia.
-
-Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE.
-
-В релизе сделано много обновлений, в частности, добавлены ядро Linux версии 3.12.x; KDE 4.11.2, FireFox 24.1.0,  и LibreOffice 4.1.3.2ю
-
-Также продолжена работа над Live DVD, который вошел в релиз Mageia 3 и будет поддерживаться в следующих релизах.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A5D2D692AB42F71C034DB7AADF91569F952BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952277   (357710) от 31.10.2015
-
-Sabayon 15.11 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и server) [amd64] 5xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен релиз дистрибутива Sabayon Linux 15.11, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым и менее (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8078A83FAAC2A835588AE8D0029E5E5437AD9F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071656   (356228) от 11.11.2016
-
-SUSE Linux Enterprise 12 SP2 (Server and Desktop) [x86-64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356228.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUSE Linux Enterprise – это законченный программный дистрибутив для рабочих станций, включающий в себя необходимый набор программных средств для повседневного бизнес использования и обеспечивающий тесную интеграцию с Active Directory. SUSE Linux Enterprise обладает повышенной надёжностью и производительностью. предоставляет лучшую на рынке функциональность, полную (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6951E7F49B58E75C21C26CD8083E633A48F5F859
 ```
 
 https://mybot314.ru/tekegram_catalog/

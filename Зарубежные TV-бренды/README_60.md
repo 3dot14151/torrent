@@ -1,3 +1,55 @@
+###  Публикация: 1296920   (608274) от 19.04.2019
+
+NG: Египет с высоты птичьего полета / Egypt from Above (2019) HDTVRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Египет - древняя страна, знаменитая своими пирамидами, храмами и гробницами. В свое время, на месте современного Египта располагалась одна из самых мощных и передовых империй в мире. Сериал расскажет вам во время восхитительного воздушного путешествия по этой стране историю развития современного динамичного Египта из его столь драматичного прошлого.Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: Документальный, путешествия, историяРежиссер: Мэтт КеррингтонПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 2 x ~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4D000444CDD9D68F92112D47EBB26F158013C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038220   (608245) от 27.07.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H.264/1080i-LQ] (Сезон 16, эпизод 07) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FA093EF8190D4B134A3CDE611740606F4E7EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525687   (607586) от 21.07.2012
 
 Радужная природа / Rainbow Nature (2008) HDTV [1080i]
@@ -6,7 +58,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTV [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Рассвет человечества / Dawn of Humanity (2015) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ NG: Растения - монстры ( Секс, наркотики и раст
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Discovery: 11 Сентября - Звонки из небоскрёбов / 9/11
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ NGW: Самые опасные змеи в мире / World's deadliest snakes (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013-2014) HD
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Animal Planet. Дома на деревьях / Treehouse Masters (2013) SATRip 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ BBC. Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Discovery. Гигантские хабы / Giant Hubs (2018) HDTVRip (серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ BBC: История хирургии. Кровоточащие сердца [2 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ History Channel: Вселенная. Верхом на комете / The Univer
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ DV: Невероятное вокруг нас. Супер-глаза [9 из 28
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ NGW: Невероятная Африка. Закума / Extraordinary Africa. Z
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +635,7 @@ NGW: Невероятная Африка. Разноцветный контин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +662,7 @@ Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +673,6 @@ Discovery Channel приглашает вас забраться повыше - 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7225C02DD19B4151B78D7FB86893A52D8085E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913509   (604787) от 29.06.2015
-
-Animal Planet. Загадочные животные острова Джао / The Secret Creatures of Jao (2009) HDTVRip [H.264/720p-LQ] [Серии 1-7 из 7]
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604787.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Ботсване, в самом сердце дельты реки Окаванго, в окружении паводковых вод, лежит райский остров Джао. Смешение суши и трясины, которое питает своих обитателей, при этом удерживая их в заточении. Это волшебное место, где обитают редкие, загадочные и таинственные существа, благодаря которым мы можем заглянуть в их скрытый мир. Каждый день приносит им новые сложности: (   Читать дальше...   )Производство: ЮАР, Aquavision TV ProductionsТелекомпания: Animal PlanetЖанр: ДокументальныйРежиссер: Питер ЛамбертиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:21:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FFB467B04EFA3FB98947794AF4CB428AA8F2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297307   (604642) от 21.04.2019
-
-History Channel. Подлинная история / What Really Happened (2008) HDTVRip (1-6 серия из 6)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604642.jpg" />
-</div>
-
-
-###  Подробнее
-
-События прошлого, показанные в сериале, воссозданы с помощью компьютерной графики на основе имеющихся документов и воспоминаний участников и очевидцев: трагическая гибель «Гинденбурга», нападение на Перл-Харбор, бомбежка Хиросимы, битва при Литтл-Бигхорн, битва за Аламо и землетрясение в Сан-Франциско. Создатели фильма работали в тесном сотрудничестве с историками, (   Читать дальше...   )Производство: США, A&E Television Networks, History ChannelЖанр: Документальный, реконструкция, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 6 х ~ 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08A30DBE37866A072657FEA450276DEA5541F2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1505129   (236724) от 26.10.2021
+
+VA - The Essential Downtempo: Chillout Your Mind (2021) [AAC|~314 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Florzinho - Onenness Meditation (Original Mix) (8:07)
+02. Marga Sol - Night Sky (Original Mix) (4:17)
+03. La Estación Del Mar - A La Sombra De Un Roble (4:25)
+04. Michael e - Matterhorn (Original Mix) (4:05)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72615E7A9DABF6BDBE905A84D9A416CFD07F9083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505326   (236669) от 26.10.2021
 
 Fausto Papetti - Bonjour France (1998) [AAC|~336 Kbps] <Jazz, Easy Listening>
@@ -6,7 +35,7 @@ Fausto Papetti - Bonjour France (1998) [AAC|~336 Kbps] <Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +64,7 @@ Fausto Danieli - Sax Pour Danser (1985) [AAC|~313 Kbps] <Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Mystic Chill, vol. 2 (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fun Factory - ABC of Music (2006) [AAC|~332 Kbps] <Dance, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 2 (2021) [AAC|~334 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Fun Factory - Back to the Factory (2016) [AAC|~333 Kbps] <Dance, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 3 (2021) [AAC|~321 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 1 (2020) [AAC|~326 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Sun Shiners by Smooth Deluxe, Vol. 4 (2021) [AAC|~330 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Mystic Chill, vol. 1 (2014) [AAC|~331 Kbps] <Psychill, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +325,7 @@ Hazell Dean - The Dean & Ware Collection, Vol. 2 (2021) [AAC|~313 Kbps] <Pop, Di
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Chillout Orange, Vol. 3: Relaxing Chillout Vibes (2020) [AAC|~307 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Late Night Lounge Music (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Ibiza Sundown Chillout (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - White Lounge, Vol. 1 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 3 (2021) [AAC|~293 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +499,7 @@ Obsqure - Cloud 9 (2020) [AAC|~303 Kbps] <Psychill, Downtempo, Cinematic Electro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Take It to Church, Vol. 1 (2018) [AAC|~324 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Chillout Lounge 2021 (2021) [AAC|~318 Kbps] <Progressive House, Electro Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Take It to Church, Vol. 2 (2019) [AAC|~322 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Post Modern Lounge (2015) [AAC|~342 Kbps] <Lounge, Nu Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - House Doze, Vol. 1 (2021) [AAC|~319 Kbps] <Deep House, Chill House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Post Modern Lounge 2 (2021) [AAC|~321 Kbps] <Lounge, Nu Jazz, Easy Listenin
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Take It to Church, Vol. 4 (2021) [AAC|~347 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Take It to Church, Vol. 4 (2021) [AAC|~347 Kbps] <Disco House, Nu-Disco, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F86B89E866A94809E36A1107EA4F84A3802DC295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530612   (235426) от 12.02.2022
-
-VA - Lounge Tribute, Vol. 7 (2014) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left, Sethe - Under the Water (5:12)
-02. Anam, Umal - Like a Virgin (3:55)
-03. Fuse 7 - Demons (4:43)
-04. Lighten Doors - Say Something (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2AA6849DA50157E749911D6EA54BB3581999E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

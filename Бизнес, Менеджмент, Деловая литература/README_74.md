@@ -1,3 +1,85 @@
+###  Публикация: 1195533   (139611) от 30.12.2017
+
+Мишель Джой, Джоди Фостер | М*даки под контролем. Как справиться с трудными людьми на работе (2017) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+У каждого на работе есть сложные люди, подрывающие рабочую атмосферу, ведущие себя неприятным образом, мешающие коллегам. Сложно понять, почему они так себя ведут. Но что известно наверняка - такие люди бывают очень разными: от нарциссов, жаждущих всеобщего внимания, до роботов, слепо следующих инструкциям абсолютно во всех случаях.
+
+Книга четко разделена на части (   Читать дальше...   )Жанр: Социальная психология, психология в бизнесеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FB85ACF42B8088CB2A41B690934EC821264F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970689   (139014) от 31.12.2015
+
+Макс Вебер | История хозяйства. Город (2001) [DJVU]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Очередная книга большой серии «Публикации ЦФС» (малая серия «LOGICA SOCIALIS») представляет собой вторую книгу двухтомника, в который входят три весьма важных для понимания творчества М. Вебера труда по исторической социологии: «Аграрная история Древнего мира», «История хозяйства» и «Город».
+Во вторую книгу включены «История хозяйства» и «Город».
+Книга предназначена (   Читать дальше...   )Жанр: История экономикиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1296B49F1139B79EB45F82AD154041B8BDC9AB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272975   (138930) от 30.12.2018
+
+Владислав Моисеев | Бизнес из ничего, или Как построить интернет-компанию и не сойти с ума (2019) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Семь легендарных героев российского ИТ-бизнеса рассказывают о своем предпринимательском опыте. Достижения, прорывы, факапы, катастрофы – гуру интернет-индустрии говорят об этом просто и откровенно. Лучшая книга для предпринимателя, особенно в высокотехнологичном бизнесе. Помогает избавиться от многих иллюзий и в то же время зарядиться вдохновением и гордостью за (   Читать дальше...   )Жанр: О бизнесе популярноФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF89D84141A78616C4247DF5CDB12FE6F746452F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520749   (138701) от 30.12.2021
 
 Тим Кларк, Брюс Хейзен | Бизнес-модели для команд. Как работает ваша компания и какую роль (на самом деле) играет каждый сотрудник (2021) [PDF]
@@ -6,7 +88,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -199,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -225,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -280,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -306,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -332,7 +414,7 @@ Harvard Business Review (HBR) | Эффективные коммуникации 
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -359,7 +441,7 @@ Harvard Business Review (HBR) | Управление командой (2017) [PD
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -387,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -439,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -466,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -494,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -520,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -549,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -575,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -613,88 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D85908A086B1F879D724DE9D25E0521E37F3E88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489283   (101878) от 28.04.2012
-
-Гэвин Кеннеди | Переговоры: Полный курс [2011] [DJVU]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о ведении переговоров в любых ситуациях. Это увлекательный, доступный и надежный путеводитель по лучшим работам в области обучения переговорному искусству. Используя свой 25-летний опыт переговорщика и бизнес-тренера, Кеннеди критически анализирует самые популярные переговорные практики, помогая читателю взять на вооружение наиболее эффективные из них. Книга рассказывает о том, как подготовиться к предстоящей встрече, как выгодно преподнести свою точку зрения, как вести торги и как сделать процесс переговоров взаимовыгодным для всех участвующих в нем сторон.
-В книге представлены не только методики и техники Кэннеди, но и все лучшее, что наработано в мире по этой теме.
-Она научит, как превратить переговоры в эффективный и этичный способ принятия решений и сделать так, чтобы результат сделки был максимально выгодным для вас.
-Для переговорщиков, тренеров, студентов, а также всех желающих овладеть искусством результативных переговоров.2011Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79DE0B47B96A1BE17EC519AD9EF936868F5993F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488287   (90897) от 26.04.2012
-
-Георгий Мтвралашвили | Прибыльный ресторан. Советы владельцам и управляющим [2010] [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как эффективно управлять рестораном и сделать его максимально прибыльным? Издание раскрывает секреты организации дела - как подбирать, обучать и развивать свой персонал; каким образом организовать работу кухни и какую ценовую политику применять, чтобы меню было продаваемым; как привлечь гостей и сделать так, чтобы они к вам возвращались.
- Отдельно рассмотрены вопросы создания управленческого учета, оперативного управления, сокращения расходов, инвентаризации. Автор книги - известный санкт-петербургский управляющий и консультант в области ресторанного бизнеса. Издание предназначено владельцам и управляющим, администраторам и менеджерам ресторанов, а также всем, кто работает в этой сфере.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D90AF535CA0DCCAAB02A5A6D7E93D55B6020D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485401   (89732) от 20.04.2012
-
-Яна Франк | Тайные знания коммерческих иллюстраторов [2010] [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89732.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге Яна Франк рассказывает, как стать коммерческим иллюстратором, и раскрывает много тонкостей своей работы: объясняет, с чего начать и куда стремиться, как составить портфолио, где найти клиентов и как с ними работать, а также подробно разбирает маленькие картинки и большие проекты, делится техническими хитростями и дает пошаговые рецепты создания качественных изображений. Яна рассказывает о неочевидных препятствиях в профессии иллюстратора и способах их преодоления.2010Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF73F57239D2B7665468F2B641D2CD0BA545DC80
 ```
 
 https://mybot314.ru/tekegram_catalog/

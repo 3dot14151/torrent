@@ -1,3 +1,57 @@
+###  Публикация: 1442754   (1036268) от 26.01.2021
+
+Ubuntu*Pack GNOME Classic 18.04 (декабрь 2020) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CB4A3627D23BDD0F1E2CB06B5FA6249CA0966E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442756   (1036264) от 26.01.2021
+
+Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2020) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A5F45161E959BE876C15048AC7A63E73FC8726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442748   (1036257) от 26.01.2021
 
 Ubuntu*Pack 18.04 (декабрь 2020) [amd64] 1xDVD
@@ -6,7 +60,7 @@ Ubuntu*Pack 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +87,7 @@ Ubuntu*Pack Cinnamon 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +114,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +141,7 @@ Ubuntu*Pack Unity 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +168,7 @@ Ubuntu*Pack MATE 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +195,7 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +222,7 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +249,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +276,7 @@ Ubuntu*Pack GNOME Like Win 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -249,7 +303,7 @@ Ubuntu 22.04.2 LTS, KDE Plasma, [amd64] 1xDVD (март 2023) [Авторска�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -278,7 +332,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -304,7 +358,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -330,7 +384,7 @@ Debian Edu - Skolelinux 10.8.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +410,7 @@ Ubuntu 20.04.2.0 Focal Fossa LTS [amd64] 2xDVD
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -384,7 +438,7 @@ WifiSlax 3.3 [Аудит безопасности, хакинг] [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -410,7 +464,7 @@ Mageia 8 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +490,7 @@ Mageia 8 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +516,7 @@ Mathlinux 2011 alpha (Дистрибутив для математиков, фи
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +545,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -517,7 +571,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -543,7 +597,7 @@ Parrot OS Security 4.11 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -572,7 +626,7 @@ SystemRescueCD 8.0.2 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -598,7 +652,7 @@ Ctlos Linux Xfce 2.0.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -626,7 +680,7 @@ HP-UX 11.11 [PA-RISC, Itanium] 9xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -639,61 +693,6 @@ HP-UX — проприетарная версия операционной си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC5D946192A1268ED690E44DC4B1C968A4BAF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465689   (1018864) от 27.04.2021
-
-AIX 7.2 TL4 SP2 [POWER] 2xDVD
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018864.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIX — разновидность операционной системы UNIX производства компании IBM.
-
-Выпускалась версия для персональных компьютеров IBM PS/2 под названием AIX PS/2 (последняя версия — AIX PS/2 1.3 1992 год).
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C8F183EE90BEEB12EF2D0B1D3B1137C83114DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466413   (1018149) от 01.05.2021
-
-FreeNAS 11.3-U5 [x64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив для быстрого развёртывания сетевого хранилища (NAS, Network-Attached Storage). Дистрибутив основан на кодовой базе FreeBSD, отличается интегрированной поддержкой ZFS и возможностью управления через веб-интерфейс, построенный с использованием я хочу знать чего, но они его перерисовали знатно. Для организации доступа к хранилищу поддерживается FTP, NFS, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB2D35427D220502D50A077937C3180099FBBFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

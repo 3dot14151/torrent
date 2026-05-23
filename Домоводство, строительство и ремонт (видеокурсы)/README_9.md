@@ -1,3 +1,114 @@
+###  Публикация: 1675282   (160371) от 08.11.2023
+
+Международная Школа Дизайна, Елена Левашова | Оптические иллюзии в интерьере (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Дизайнер создает пространство, как скульптор, он работает с его шириной, высотой и глубиной.
+
+Одно из важнейших умений при этом – это умелое применение оптических иллюзий, с помощью которых можно скорректировать неудачные пропорции жилой комнаты, оптически увеличить помещение, визуально приподнять потолок, задать динамику или, наоборот, уравновесить сложную композицию, (   Читать дальше...   )Производство: Международная Школа ДизайнаЖанр: Дизайн интерьераЯзык озвучки: РусскийПродолжительность: 02:48:57Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D7C5F4479A4FCAB098E461B7DA6F20F39101BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586895   (156207) от 13.12.2012
+
+Анна Киселёва | Готовим самогон [2011] SATRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сомелье Эркин Тузмухамедов расскажет секреты приготовления в домашних условиях антикризисного напитка C2H5OH.Жанр: Видео-урокПродолжительность: 00:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872E34EBD169CA0DB537220D4364DFED51C2FE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560787   (154524) от 28.12.2022
+
+Учебный центр AMS³, Надежда Бейнер | Графическая подача в SketchUp (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Научитесь создавать красивую картинку простыми инструментами в максимально сжатые сроки.
+Простые и бесплатные сервисы для оригинальной подачи
+Четкий алгоритм по выставлению кадра и работа с ракурсом
+3D модель квартиры сверху / белая модель / изометрия / фрагмент комнаты / взрыв-схема(   Читать дальше...   )Производство: Учебный центр AMS³Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:32:39Реклама: Присутствуют сторонние вставки и наложения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11531771B3AF23C9AEC93B9BC9475C393E530586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347157   (154170) от 22.12.2019
+
+НТВ | Дачный ответ (22.12.2019) SATRip
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мечта каждого ребёнка. Дачный ответ превратит мансарду в территорию игр.
+
+Сегодня мы отправляемся на дачу, к одной семье у них подрастает дочка и сын. Семья решила, хотя бы здесь на своём дачном участке давать им достаточно места для игр. Ведь зима, та пора, когда дети скорее не могут погулять на улице и порезвиться. И в их случае вы их дачном домике гуляет огромное (   Читать дальше...   )Производство: НТВЖанр: Обучающее видеоПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55716F79C5FDD18B40E0E1C0EFFE88532F5E078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519739   (146570) от 25.12.2021
 
 SDKO, Ирина Ружанская | Конструирование и пошив нижнего белья (2021) WEB-DL [AD]
@@ -6,7 +117,7 @@ SDKO, Ирина Ружанская | Конструирование и поши
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -226,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -252,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -280,7 +391,7 @@ Strogoorganic | Органическое Садоводство - Междуна
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -309,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -337,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -363,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -392,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -418,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -470,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +607,7 @@ Udemy, Maksim Skachko | Базовый курс по строительной м
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -523,7 +634,7 @@ Kaminskaya_sew | Мастер-класс по пошиву постельног�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +663,7 @@ Austin School of Furniture & Design, Austin Waldo | Книжный шкаф из
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,117 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAF25847EF4671FF3F558A51E4FF14AC643133CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781365   (70309) от 22.02.2025
-
-Владимир Золотарев | Сборник вебинаров по ландшафтному дизайну (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инновационные технологии в защите растений. Часть 1
-Методы почвенного анализа
-Общая фитопатология. Часть 1
-Общая фитопатология. Часть 2(   Читать дальше...   )Жанр: ВебинарЯзык озвучки: РусскийПродолжительность: 10:53:05Реклама: Ватермарки на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0686C3361B0483DF396B35DCABF616FA5B9E7C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785130   (69457) от 14.03.2025
-
-Desertmsk | Конфеты Птичье молоко (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что будет в уроке: приготовим классические конфеты, использовать будем планетарный миксер, но можно приготовить и ручным, если он мощный, покажу, как резать конфеты, какие посыпки использую, как сделать другие вкусы, и конечно же поделюсь своими секретами.Жанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 00:22:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627D01750DF8D3C2C5572272EF05F3F48AF451B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785136   (69454) от 14.03.2025
-
-Desertmsk | Зефир в шоколаде (2022) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Урок будет состоять из 2-х частей. В первой части приготовим   зефир по заварной технологии с нуля, от приготовления пюре, до отсаживания, насадку буду использовать 9ft, чтобы получить форму ракушек.
-Во 2-й части мы этот зефир покроем темперированным шоколадом, расскажу, как делаю это я и как темперирую. Будем использовать термометр, потому что я понимаю, пирометр (   Читать дальше...   )Жанр: ВидеоурокЯзык озвучки: РусскийПродолжительность: 00:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D9F6CFAE69F2F36E7FBE98CCD1EDEF724D2E6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786489   (69086) от 20.03.2025
-
-Марина Берестова | Пакет «Цветочный»  (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет "Цветочный"
-
-1) БАЗОВЫЕ ПРАВИЛА СОСТАВЛЕНИЯ СОВРЕМЕННЫХ ЦВЕТНИКОВ
-Формат: видео мастер-класс(   Читать дальше...   )Жанр: Видеогид, мастер-классЯзык озвучки: РусскийПродолжительность: 04:49:21Реклама: Ватермарки и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C87CFA6EAC480D4961C17231722D2DA0440702C
 ```
 
 https://mybot314.ru/tekegram_catalog/

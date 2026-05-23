@@ -1,3 +1,206 @@
+###  Публикация: 1078736   (298142) от 02.12.2016
+
+Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 -  Antarctica Theme [00:04:22]
+02 -  United [00:05:35]
+03 -  Ice Ballet [00:04:25]
+04 -  Whales in Paradise [00:06:38](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAA9ABF77AC30AF596BF9F10412A39E691D3E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078827   (298137) от 02.12.2016
+
+65daysofstatic - No Man's Sky: Music for an Infinite Universe (2016) [MP3|320 кб/с]<Soundtrack, Post-rock, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. NMS_exteriorAtmos1 / False Suns (09:29)
+02. Tomorrow / Lull / Celestial Feedback (10:54)
+03. Departure / Shortwave / Noisetest (11:50)
+04. temporalDissent / ascension_test1 / koaecax (10:07)(   Читать дальше...   )Жанр: Soundtrack, Score, Post-rock, ElectronicПродолжительность: 01:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4798C3C5A44BA72ACBFCCE076CEF439E0E6598A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078829   (298134) от 02.12.2016
+
+65daysofstatic - No Man's Sky: Music for an Infinite Universe (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Post-rock, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. NMS_exteriorAtmos1 / False Suns (09:29)
+02. Tomorrow / Lull / Celestial Feedback (10:54)
+03. Departure / Shortwave / Noisetest (11:50)
+04. temporalDissent / ascension_test1 / koaecax (10:07)(   Читать дальше...   )Жанр: Soundtrack, Score, Post-rock, ElectronicПродолжительность: 01:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147174DFF3CD751C4FE0C71D961C7C5609A808DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077532   (298045) от 02.12.2016
+
+The Irish Rovers (The Rovers) - 18 релизов (1995 – 2016) [MP3|192 kbps]<Irish Folk, Celtic, Folk Pop, Contemporary Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Irish Rover (Live)
+02. The Boys of the Emerald Isle (Live)
+03. All on St. Patrick's Day (Live)
+04. Come Away with Me (Live)(   Читать дальше...   )Жанр: Irish Folk, Celtic, Folk Pop, Contemporary FolkПродолжительность: 19:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8988E6FE1C924724948CF816B9F0BDB0A59B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423905   (297751) от 14.11.2020
+
+Faith Hill - Take Me As I Am (1993) Warner 9 45389-2 [FLAC|Lossless|image + .cue]<Contemporary Country, Country-Pop, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me as I Am (3:18)
+ 02. Wild One (2:45)
+ 03. Just About Now (2:57)
+ 04. Piece of My Heart (4:01)(   Читать дальше...   )Жанр: Contemporary Country, Country-Pop, PopПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17BA697B040A0EB222653BDDC66FE6D046CB57E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423906   (297736) от 14.11.2020
+
+VA - Kontor Top Of The Clubs: The Biggest Hits Of The Year MMXX (2020) [MP3|320 Kbps] <House, Club-House, Deep-House>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. VIZE & Joker Bra feat. Leony - Paradise [2:56]
+02. Dua Lipa - Physical (Alok Remix) [3:09]
+03. SAINt JHN - Roses (Imanbek Remix) [2:56]
+04. Joel Corry feat. MNEK - Head & Heart [2:46](   Читать дальше...   )Жанр: House, Club-House, Deep-House, Electronic, DanceПродолжительность: 06:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015B556F5A7BDB72886642E1CDFE5689D62489FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078786   (297663) от 02.12.2016
+
+Jean-Michel Jarre - Oxygene 3 (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene (Part 14) (5:28)
+ 02. Oxygene (Part 15) (6:40)
+ 03. Oxygene (Part 16) (6:50)
+ 04. Oxygene (Part 17) (4:21)(   Читать дальше...   )Жанр: New Age, Ambient, ElectronicПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECCC94C78F8094EAD6724617F95FF899B417B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184838   (297157) от 19.11.2017
 
 Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps] <Country, Folk>
@@ -6,7 +209,7 @@ Kris Kristofferson - The Austin Sessions (Expanded Edition) (2017) [MP3|320 Kbps
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ NBA 2K9 Soundtrack (2008) [MP3|240-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ NBA 2K13 Soundtrack (2012) [MP3|256-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ NBA 2K10 Soundtrack (2009) [MP3|256-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ NBA 2K11 Soundtrack (2010) [MP3|128-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Tron Syversen - Piano Poems (2009) [FLAC|Lossless|tracks + .cue] <New Age, Relax
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Dark Life Note - Feelings (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pi
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Max Richter - Morgan / Морган (Original Motion Picture Soundtrack) (2016) 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Winter Deep House Charts 2021 (2020) [MP3|320 Kbps] <Deep-House, Electronic
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +557,7 @@ NBA 2K12 Soundtrack  (2011) [MP3|317-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +586,7 @@ NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +644,7 @@ NBA 2K16 Soundtrack  (2015) [MP3|128-320 кб/с]<OST/Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +673,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) 2CD Deluxe Edition [FLA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Calming Waterfall for Effective Study (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Fabrice Tonnellier - Chakras Relaxation (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,209 +745,6 @@ Fabrice Tonnellier - Chakras Relaxation (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3999FAC17424D5418725DBB36396B8867E083E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079331   (294007) от 04.12.2016
-
-Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Original Soundtrack) (2016) Extended Edition [MP3|320 кб/с]<Soundtrack, Ambient>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Mayhem - Martial Law (03:10)
-02. Sonic Mayhem - Prague (04:11)
-03. Sonic Mayhem - The Orchid (04:16)
-04. Sonic Mayhem - Apex Towers (02:39)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6818EB1D9EFEFCC23B09CC4613B1B8AC08CB9D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079518   (293897) от 04.12.2016
-
-VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
-03. Twenty One Pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF0E024FEDC734C5F1D15E115BC59AE7067822A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079334   (293889) от 04.12.2016
-
-Michael McCann, Sascha Dikiciyan, Ed Harrison - Deus Ex: Mankind Divided (Original Soundtrack) (2016) Extended Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Mayhem - Martial Law (03:10)
-02. Sonic Mayhem - Prague (04:11)
-03. Sonic Mayhem - The Orchid (04:16)
-04. Sonic Mayhem - Apex Towers (02:39)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE6C027B7431AAF2445DA047384279E91DF65D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079517   (293759) от 04.12.2016
-
-VA - Suicide Squad / Отряд самоубийц (The Album) (2016) Collector's Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:04)
-03. Twenty One Pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:23)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BC3A1568DFAD78765FCF58CE34C328A728EE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421265   (293728) от 11.12.2011
-
-Ритмы мира - Космический транс (2002) [FLAC|Lossless|tracks] <Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Создание (9:24)
-02. Эдем (8:28)
-03. Танец Огня (5:14)
-04. Синяя Планета, Часть Первая (8:36)(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C2ECF2FBAF88D49A52D6E5C0B0A4A3418A1DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962515   (293513) от 05.12.2015
-
-VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crab Nebula - Indira Bula
-02. Ishtar's Song - Barenan
-03. Aldebaran Eye of the Taurus - Gita Davi
-04. The Pleiads - Sarala Rati(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962523   (293504) от 05.12.2015
-
-VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jekha - Light of Fire
-02. Albena - Alnasi
-03. Sangmo - Chort
-04. Dalai Surama - Mystic Gold(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB3B73E35B110DDC53D48159F35C90A82654D48
 ```
 
 https://mybot314.ru/tekegram_catalog/

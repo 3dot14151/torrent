@@ -1,3 +1,85 @@
+###  Публикация: 1605471   (255491) от 05.04.2023
+
+Плод эволюции [ТВ-2] | Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2: Before I Knew It, My Life Had It Made [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Приключения невероятно красивого, обаятельного и сильного Сэйечи Хираги и его возлюбленной принцессы-гориллы в другом мире продолжаются, и как в любом порядочном исекае его ждут новые свершения, новые горизонты силы, новые враги и, конечно же, новые кандидатки в гарем. Скоро ему предстоит столкнуться со своими одноклассниками, которые тоже не сидели на месте. Но (   Читать дальше...   )Производство: Япония / Студия HotlineЖанр: Приключения, фэнтезиРежиссер: Окумура ЁсиакиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Cleo-chan, Crowley, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EED7AF237AF5A6C318E95791B4CC12E1625A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606531   (255462) от 06.04.2023
+
+Коплю 80 тысяч золотых | Rougo ni Sonaete Isekai de 8-manmai no Kinka o Tamemasu | Saving 80,000 Gold in Another World for My Retirement [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Восемнадцатилетняя девушка Мицуха Ямано, потерявшая свою семью из-за несчастного случая, однажды случайно падает со скалы и перемещается в другой мир, похожий на средневековую Европу. После тяжелого сражения с волком она узнает о том, что может в любой момент вернуться на Землю. Мицуха решает воспользоваться этой возможностью. Теперь её цель — накопить 80 000 золотых (   Читать дальше...   )Производство: Япония / Студия Felix FilmЖанр: Комедия, фэнтезиРежиссер: Тамада ХиросиЯзык озвучки: Русский многоголосый, закадровый (AniDub), (AniMaunt), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536853   (250244) от 13.03.2022
+
+Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8] WEBRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Бонусы к эксклюзивным ограниченным изданиям 12, 13, 14, 15, 16, 24, 25, и 26 томов манги.
+
+1 серия «Дневник Ильзе: Воспоминания члена разведотряда».
+Ханджи во время очередной операции за стенами находит странный дневник, озаглавленный как «Дневник Ильзе». В книге подробно описан последний поход Ильзе за стены от её же имени. Найденные записи ставят ещё больше вопросов (   Читать дальше...   )Производство: Wit Studio / ウィットスタジオЖанр: приключенияРежиссер: Тэцуро АракиЯзык озвучки: Японский и русскийСубтитры: Русские, АнглийскиеПродолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B698085E43381FD3EEB053AB5D9A3A8A9A8EB2BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537132   (250129) от 15.03.2022
 
 Что вы здесь делаете, сэнсэй? | Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? [2019, TV, 13 из 13] BDRip 1080p Raw+Rus
@@ -6,7 +88,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -85,7 +167,7 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -112,7 +194,7 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -139,7 +221,7 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -192,7 +274,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -218,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -245,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -326,7 +408,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -352,7 +434,7 @@ Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -378,7 +460,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -404,7 +486,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -430,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -456,7 +538,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -482,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -508,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -534,7 +616,7 @@ Yakitori | Yakitori: Soldiers of Misfortune | Якитори [2023, Web, 6] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -560,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -586,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -597,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17368E2C66E5EF372AFCA1028100BEEB0C331AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545274   (240623) от 19.04.2022
-
-Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дополнительный эпизод аниме-сериала «Месть Масамунэ!», выпущенный в комплекте с ограниченным тиражом 10 тома оригинальной манги. OVA состоит из трёх небольших историй: «Только ради мамы», «Снова остров Цунадэ» и «Золушка после полуночи».Производство: Студия Silver LinkЖанр: комедияРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria)Продолжительность: 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77A3EB9BBFD6CEFE27649A66398D57C3F6A54CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544963   (240599) от 19.04.2022
-
-Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [ТВ-1] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будучи ребёнком, Масамунэ Макабэ сильно пострадал от богатой и красивой девушки по имени Аки Адагаки. Она издевалась над ним и называла «поросёнком» из-за его внешности, отягощённой лишним весом. В один момент Масамунэ признался девушке в любви, но получил в ответ лишь насмешки и отказ. Главный герой решил ей страшно отомстить: начал упорно работать над своей внешностью, (   Читать дальше...   )Производство: Студия Silver LinkЖанр: комедия, романтикаРежиссер: Минато МирайЯзык озвучки: Японский, русский (AniLibria, Onibaku Group, DeadLine Studio, AniDUB)Субтитры: Русские (LeDi-MaHo Team)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE452F8202AFB958DFEC7AD3462C13725AB54B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636410   (240554) от 31.05.2023
-
-Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет об одном обыкновенном старшекласснике, который благодаря стечению обстоятельств становится пилотом силового костюма «Ёрой». Теперь парню приходится сражаться с Они, чтобы защитить девушку из святилища, которой суждено спасти мир.Производство: Япония, студия SublimationЖанр: экшен, драма, фантастикаРежиссер: Сугай СинъяЯзык озвучки: Русский (Anistar (без рекламы) [1-6,8-12], Animevost [7])Субтитры: ОтсутствуютПродолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CB48548DA5AD43F2940ECC9B146F7E2B2A3D4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

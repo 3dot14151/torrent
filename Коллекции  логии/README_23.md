@@ -1,3 +1,55 @@
+###  Публикация: 1558166   (38362) от 04.11.2024
+
+Дэдпул / Deadpool (2016 - 2024) BDRip [H.264/1080p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Уэйд Уилсон — наёмник. Будучи побочным продуктом программы вооружённых сил под названием «Оружие X», Уилсон приобрёл невероятную силу, проворство и способность к исцелению. Но страшной ценой: его клеточная структура постоянно меняется, а здравомыслие сомнительно. Всё, чего Уилсон хочет, — это держаться на плаву в социальной выгребной яме. Но течение в ней слишком (   Читать дальше...   )Производство: США, Великобритания, Новая Зеландия, Канада / Marvel Studios, 20th Century Studios, Maximum EffortЖанр: фантастика, боевик, комедия, приключенияРежиссер: Тим Миллер, Дэвид Литч, Шон ЛевиАктеры: Райан Рейнольдс, Морена Баккарин, Эд Скрейн, ТиДжей Миллер, Джина Карано, Брианна Хилдебранд, Стефан Капичич, Лесли Уггэмс, Джед Риис, Каран Сони,  Джош Бролин, Джулиан Деннисон, Хью Джекман, Эмма Коррин, Роб Делани, Дженнифер Гарнер, Мэттью Макфэдиен, Уэсли Снайпс, Ченнинг Татум, Дафни Кин, Аарон Стэнфорд, Крис Эванс, Джон Фавро, Генри КавиллПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:48:06 / 02:13:59 / 02:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9C711E78C3912E9DE0AE638F56FC09A1E472A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 433219   (38354) от 04.11.2024
+
+Фантазм / Phantasm: Квадрология / Фантазм II / Фантазм III: Повелитель мертвых / Фантазм IV: Забвение  (1978-1998) [H.264] DVDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Немногим дано встретиться с потусторонними силами. Выжить после такой встречи — еще труднее. Два брата, Майк и Джоди, становятся свидетелями необъяснимых, загадочных явлений на городском кладбище. Они видят призраков, которые бродят по ночам среди могил. На глазах братьев рождаются маленькие, но могущественные демоны; в запечатанных склепах слышится таинственный (   Читать дальше...   )В этой части выясняется, что Высокий человек раньше был хирургом и сконструировал непонятный аппарат для путешествия в параллельный мир, где ему имплантировали в голову сферу с некой мыслящей субстанцией, приказывавающей ездить по городам и делать из людей зомби…Жанр: Ужасы, ФэнтезиРежиссер: Дон Коскарелли / Don CoscarelliАктеры: Реджи Бэннистер / Reggie Bannister, Майкл Болдуин / Michael Baldwin, Билл Торнбери / Bill Thornbury, Энгус Скримм / Angus Scrim/, Эйди Мэрнаут / Heidi Marnhout, Боб Айви / Bob IvyПеревод: Профессиональный (многоголосый, закадровый)Субтитры: Русские, АнглийскиеПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1957DC532094567A14B6D6AE4602DCCBC5508145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689461   (38331) от 04.11.2024
 
 Музей восковых фигур / House of Wax (1933-2005) BDRip [H.265/1080p] [10-bit] [Антология]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -620,60 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AE8782CE5B661DD89466312C26F925F0860B125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390958   (27692) от 14.02.2025
-
-Планета обезьян / Planet of the Apes (1968, 1970, 1971, 1972, 1973) BDRemux [H.264/1080p] [Коллекция]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27692.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 3978 году космический корабль землян терпит крушение на далекой планете. Выжившие в катастрофе астронавты удивляются, как она похожа на их дом. Вскоре они узнают, что планета населена разумными обезьянами и деградировавшими до животного состояния людьми.Производство: США / APJAC Productions, Twentieth Century FoxЖанр: фантастика, боевик, приключенияРежиссер: Франклин Дж. Шаффнер, Тед Пост, Дон Тейлор, Дж. Ли ТомпсонАктеры: Чарлтон Хестон, Родди Макдауэлл, Ким Хантер, Морис Эванс, Джеймс Уитмор, Джеймс Дэйли, Линда Харрисон, Роберт Ганнер, Лу Вагнер, Вудроу Парфри, Джеймс Франсискус, Сэл Минео, Альберт Сэлми, Джейсон Эверс, Рикардо Монтальбан, Натали Транди, Хари Родс, Северн ДарденПеревод: дублированный, профессиональный многоголосый, двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:02 / 01:34:42 / 01:37:32 / 01:27:22 / 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBDC54EC6EFDB87115871F93DFA30FDF28615BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557368   (26435) от 26.02.2025
-
-Крепкий орешек: Квадрология / Die Hard: Quadrilogy (1988, 1990, 1995, 2007) [H.264] BDRip
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир опять на краю гибели из-за новой террористической угрозы. В этот раз в «заложниках» оказывается всемирная компьютерная сеть. Правительство и спецслужбы бессильны, все готово погрузиться в хаос. Но на борьбу с нависшей над миром опасностью выходит наш старый герой Джон МакКлейн со своей неразлучной подругой «Береттой».
-Он давно в отставке, но когда на карту поставлена (   Читать дальше...   )В канун Рождества группа террористов захватила международный аэропорт и теперь удерживает тысячи путешествующих в качестве заложников. Террористы — банда отступников из первоклассно вооруженных коммандос, возглавляемых одержимым жестокостью офицером. Их цель — спасти наркобарона.
-Банда подготовлена ко всевозможным случайностям, за исключением одной — встречи с Джоном (   Читать дальше...   )Производство: США, ВеликобританияЖанр: боевик, триллерРежиссер: Лен УайзманАктеры: Брюс Уиллис, Тимоти Олифант, Джастин Лонг, Мэгги Кью, Клифф Кёртис, Джонатан Садовский, Эндрю Фридман, Кевин Смит, Йорго Константин, Сирил РаффаэллиПеревод: Авторский одноголосый (Гаврилов)Субтитры: ОтсутствуютПродолжительность: 02:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9CD6423F6B649776095E713667B63B4591C4FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

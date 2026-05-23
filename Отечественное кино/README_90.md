@@ -1,3 +1,107 @@
+###  Публикация: 1126753   (740515) от 20.04.2017
+
+Притяжение (2017) BDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+…Как только что стало известно, сбитый над Москвой неопознанный объект имеет, возможно, внеземное происхождение. Большая часть столичного Чертанова оцеплена, к месту крушения стягиваются представители силовых структур, решается вопрос об эвакуации местных жителей. По словам нашего источника в Минобороны, сейчас специальная комиссия пытается вступить в контакт с так (   Читать дальше...   )Производство: Россия / Кинокомпания «Водород», Art Pictures StudioЖанр: фантастикаРежиссер: Фёдор БондарчукАктеры: Ирина Старшенбаум, Олег Меньшиков, Александр Петров, Никита Кукушкин, Евгений Сангаджиев, Дарья Руденок, Риналь Мухаметов, Людмила Максакова, Евгений Коряковский, Ульяна Куликова, Сергей Шаталов, Евгений Михеев, Никита Тарасов, Сергей ГармашПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56FEF9C3A2D3E9DBA9E3D22DBA34D27A79FCE67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217895   (740115) от 07.04.2018
+
+Сын (2017) WEBRip [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодого архитектора Анну Завьялову предает ее возлюбленный. Павел не только бросает её ради выгодной женитьбы, но и присваивает её проект. Именно в этот непростой момент Анна знакомится с пенсионеркой Марковой. Эта встреча заставляет героиню решиться на борьбу за справедливость. Анна намерена вернуть свой проект и помочь Марковой получить положенную ей по праву (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Александр ХванАктеры: Алексей Макаров, Анастасия Савосина, Сергей Мухин, Алла Малкова, Максим УсановСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F93069D49B85F3431EE151F415B6123E66EB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283188   (740088) от 16.02.2019
+
+Северное сияние. Ведьмины куклы. Фильм второй (2018) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Известная писательница Агата Север и ее помощница Маруся возвращаются на остров, чтобы разгадать семейный секрет. Поездка превращается в настоящий кошмар. Тетя Агаты погибает при загадочных обстоятельствах, а вскоре писательница становится подозреваемой в убийстве своей двоюродной сестры. Чтобы снять с себя обвинение, Агате предстоит пролить свет на тайны прошлого (   Читать дальше...   )Производство: Россия / Марс Медиа / ВВП АльянсЖанр: Детектив, драмаРежиссер: Владимир НахабцевАктеры: Ирина Горячева, Анна Дулова, Никита Плащевский, Константин Шелестун, Алексей Симонов, Галина Бокашевская, Хельга Филиппова, Вита Корниенко, Котов Владимир и др.Субтитры: ОтсутствуютПродолжительность: 00:44:12+00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2964A715025FA8FF59A26B44DE42328AC50DF445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217927   (740063) от 07.04.2018
+
+Сын (2018) WEB-DLRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодого архитектора Анну Завьялову предает ее возлюбленный. Павел не только бросает её ради выгодной женитьбы, но и присваивает её проект. Именно в этот непростой момент Анна знакомится с пенсионеркой Марковой. Эта встреча заставляет героиню решиться на борьбу за справедливость. Анна намерена вернуть свой проект и помочь Марковой, получить положенную ей по праву (   Читать дальше...   )Производство: Россия | "Гамма", "Форте-Фильм"Жанр: ДрамаРежиссер: Александр ХванАктеры: Алексей Макаров, Анастасия Савосина, Сергей Мухин, Алла Малкова, Максим УсановСубтитры: ОтсутствуютПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E97E6EF42E569ECA16F3FAAE2E6550752F69273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 118526   (740043) от 08.05.2014
 
 Урга: Территория любви (1991) DVDRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D39720F72B4BAB3EE06D3744BB39568A17E946FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787420   (736510) от 17.05.2014
-
-Трудно быть Богом (2013) Blu-Ray [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Ленфильм, Студия СеверЖанр: Фантастика, драмаРежиссер: Алексей Герман / Aleksey GermanАктеры: Леонид Ярмольник, Юрий Цурило, Наталья Мотева, Александр Чутко, Евгений Герчаков, Валентин Голубенко, Пётр Меркурьев, Олег Ботин, Константин Быков, Юрий ДумчевПеревод: Не требуется (Русский язык)Субтитры: ОтсутствуютПродолжительность: 02:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91372F4873CA754D4AF5399DC8A5FC8898ABB25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398078   (736499) от 24.07.2020
-
-Верность (2019) BDRip [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лена — талантливая акушер-гинеколог, её муж Серёжа — артист провинциального драмтеатра. Близость и нежность у них есть, секса — нет. Лена подозревает, что Серёжа завёл роман на стороне, но она мучается молча и не выдаёт свою ревность. Вместо того чтобы выяснить отношения с мужем, Лена сама начинает изменять ему со случайными мужчинами. Она, конечно, не думала, что (   Читать дальше...   )Производство: Россия / PREMIER Studios, Droog Drooga FilmsЖанр: ДрамаРежиссер: Нигина СайфуллаеваАктеры: Александр Паль, Евгения Громова, Алексей Агранович, Марина Васильева, Павел Ворожцов, Анна Котова-Дерябина, Василий Рихтер, Анастасия Денисова, Кирилл Каганович, Михаил ТройникПеревод: Не требуется (русский) ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9959C175005EF83F103D9B31B0BB0FC9E8B90AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527677   (736338) от 29.01.2022
-
-Красный призрак (2020) BDRemux [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима 1941 года. Выходя из окружения около Вязьмы, небольшая группа советских солдат вынуждена остановиться в заброшенной деревне. Но передышки не получается. В этом же доме решает обосноваться хорошо вооружённый немецкий отряд во главе с карателем Вермахта, который ищет таинственного солдата по прозвищу Красный призрак. Он появляется из ниоткуда, в одиночку убивает (   Читать дальше...   )Производство: Россия, ООО "АБС"Жанр: Триллер, История, ВоенныйРежиссер: Андрей БогатыревАктеры: Юра Борисов, Алексей Шевченков, Владимир Гостюхин, Полина Чернышова, Вольфганг Черни, Михаил Горевой, Олег Васильков, Павел Абраменков, Вячеслав Шихалеев, Пауль ОрлянскийПеревод: Не требуется (Русский лицензия)Субтитры: русские (forced)Продолжительность: 01:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34802B8157545D5DBA0065262763F62120A7A4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527933   (735816) от 30.01.2022
-
-Уснувший пассажир (1993) HDTVRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735816.jpg" />
-</div>
-
-
-###  Подробнее
-
-На затерянном в степи аэродроме совершает непредвиденную посадку самолет, следующий рейсом из Москвы в Сингапур. После устранения неполадок в салоне первого класса оказывается труп иностранного пассажира. Среди пассажиров лайнера находится полковник в отставке, бывший сотрудник Московского угрозыска Александр Иванович Смирнов, который по горячим следам начинает расследование…Производство: Россия, Евразия (Свердловская к/ст) при участии РоскомкиноЖанр: детективРежиссер: Ярополк ЛапшинАктеры: Анатолий Кузнецов, Ольга Остроумова, Александр Пашутин, Владимир Кашпур, Шавкат Газиев, Николай Шушарин, Виталий Краев, Валерий Храмцов, Сейдулла МолдахановСубтитры: ОтсутствуютПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B694A7E49763DA9EE405E8D3E121CFA33549400
 ```
 
 https://mybot314.ru/tekegram_catalog/

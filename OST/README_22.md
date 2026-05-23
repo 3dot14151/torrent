@@ -1,3 +1,61 @@
+###  Публикация: 1083592   (273473) от 16.12.2016
+
+Михаил Костылев - 28 Панфиловцев (Оригинальная музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Пролог (00:54)
+02. То ли легенда то ли миф (08:29)
+03. Стоять намертво (15:02)
+04. Фашистская гидра (06:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8506B3631D55FE06318A1658CF89AEAC1D6B2AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083415   (273472) от 16.12.2016
+
+Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. He's Here For Us (03:20)
+02. A Long Ride Ahead (03:56)
+03. Wobani Imperial Labor Camp (00:54)
+04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 135669   (272818) от 29.11.2018
 
 VA - Лучшие песни французских мюзиклов (2008) [MP3|320 kb/s]<музыка театра и кино>
@@ -6,7 +64,7 @@ VA - Лучшие песни французских мюзиклов (2008) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +91,7 @@ VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +120,7 @@ Alexander Taylor - Animal Among Us / Животное среди нас (Origina
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -91,7 +149,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Co
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -120,7 +178,7 @@ Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture So
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -149,7 +207,7 @@ Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + O
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Jay & Silent Bob Reboot / Джей и Молчаливый Боб - Пер�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -207,7 +265,7 @@ Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kb
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +294,7 @@ Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original So
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +323,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +352,7 @@ Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Оригина
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +381,7 @@ Simonetti, Morante, Pignatelli - Tenebre (1982) The Complete Original Motion Pic
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -352,7 +410,7 @@ Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -381,7 +439,7 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -410,7 +468,7 @@ Atom Music Audio - Immortals: Massive Hybrid Epic Tracks (2017) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -439,7 +497,7 @@ Daughter - Music From Before The Storm (2017) [MP3|320 Kbps] <Alternative, Indie
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Diablo 3 (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -503,7 +561,7 @@ Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +596,7 @@ Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|1
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -573,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -608,7 +666,7 @@ Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -637,7 +695,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -666,7 +724,7 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -695,7 +753,7 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -709,64 +767,6 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424682   (227805) от 17.11.2020
-
-Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка из моей любимой игры в детстве01. Intro
-02. Ice World
-03. Jungle World
-04. Dream World(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FCB57CDDE32F241BC607C16A98CB620554DF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342386   (221561) от 04.12.2019
-
-Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rob Zahn - Music to Hide Corpses To (Main Menu Theme)
-02. Robert Purzycki - No Sweat
-03. Jan Sanejko - Sucker Punch
-04. Jan Sanejko - Horoscope Date(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:730133466277A06E9A1261695214BED2E6B51CFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

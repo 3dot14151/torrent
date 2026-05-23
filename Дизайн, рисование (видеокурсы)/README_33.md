@@ -1,3 +1,85 @@
+###  Публикация: 1285508   (720523) от 26.02.2019
+
+Джама Джурабаев | Blender 2.8: Расширенное руководство по Grease Pencil / Blender 2.8: Advanced Grease Pencil Tutorial (2018) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Следующая глава моей серии курсов по Blender.
+Этот курс показывает творческий рабочий процесс с использованием Grease Pencil в версии 2.8 и Photoshop для создания: окружения, персонажей, транспортных средств.Производство: GumroadЖанр: 3D моделирование, Рисование, Blender, Grease PencilПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9A5400DA403724F5CFA7FAA7574EAFB7600DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285793   (718686) от 27.02.2019
+
+Джама Джурабаев | Как создать панорамное 360/VR изображение. Часть I / How to create a panoramic 360/VR painting VOL.I (2016) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это первый курс из серии руководств по панорамным изображениям в 360 градусов и VR.
+В этом курсе я покажу, как создать панорамный рисунок в 360 градусов с нуля, используя только Photoshop.Производство: GumroadЖанр: Рисование, PhotoshopПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED115102173EBC9D0C2C5816B7476611044B62C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531806   (718366) от 17.02.2022
+
+CGcircuit, Daviv CGMK | Houdini Elements - Smoke (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом онлайн-курсе вы узнаете о том, как создавать реалистичный дым в Houdini, который взаимодействует с окружающей средой, а также с анимированными объектами.
+
+Курс начнется с изучения DOP и создания дыма в Houdini, как способа познакомить вас с моделированием явлений реального мира в Houdini. Мы будем работать над небольшими проектами, такими как дымный портал, (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: АнглийскийПродолжительность: 08:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E83520A515CE7A43D666FF603468CA2AC237D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531808   (718341) от 17.02.2022
 
 Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
@@ -6,7 +88,7 @@ Sapphire FX | Houdini Ship Destruction (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +115,7 @@ VFX Grace | Volcanic Eruption | Pyro FX (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +168,7 @@ Allan McKay | FX Technical Director Transformation Module 11 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +196,7 @@ Allan McKay | FX Technical Director Transformation Module 12 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +224,7 @@ Stephen Wells | Physics Pile In 3ds Max / Создание груды косте
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -225,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -251,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -277,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +385,7 @@ studyboom | Профессия: Дизайнер мобильных прилож
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +413,7 @@ VFX Grace | Jaguar Grooming Workflow - Blender Case Study (2020) PCRec [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +439,7 @@ Allan McKay | FX Technical Director Transformation Module 10 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +467,7 @@ Allan McKay | FX Technical Director Transformation Module 8 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +521,7 @@ Skillbox | Дизайнер промосайтов (2019) CamRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +547,7 @@ Skillbox | Дизайн мобильных приложений с нуля до
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +573,7 @@ Skillbox | Дизайнер сайтов на Tilda (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +599,7 @@ Andrew Gordon | Animation Foundations Gesture (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,7 +680,7 @@ Allan McKay | FX Technical Director Transformation Module Extras (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,90 +693,6 @@ Allan McKay | FX Technical Director Transformation Module Extras (2015) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A7979B80E8C73FBD011B575E3B228DB8B0661D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402331   (701414) от 14.08.2020
-
-Allan McKay | FX Technical Director Transformation Module 1 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
-Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
-Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 04:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189E42CBA80E4E1281AE4EB34AB94B63F2799C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402295   (701410) от 14.08.2020
-
-Allan McKay | FX Technical Director Transformation Module 4 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
-Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
-Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 05:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C686653DAB8CEF12BCCA4B0B805A6518A14847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402306   (701316) от 14.08.2020
-
-Allan McKay | FX Technical Director Transformation Module 2 (2015) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая работа по спецэффектам связанная со скриптингом и разработкой инструментов. Станьте мастером FX и улучшите свои умения до предела и дальше!
-Просто получите возможность создавать собственные FX инструменты и все автоматизировать. Многие художники имеют нужные знания, но не могут их систематизировать, чтобы увеличить свою востребованность.
-Чтобы получить высокооплачиваемую (   Читать дальше...   )Производство: FumeFXTrainingЖанр: Создание видеоПродолжительность: 06:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48E4D1E0057AFDCC533A19C25E008ABF700CC42
 ```
 
 https://mybot314.ru/tekegram_catalog/

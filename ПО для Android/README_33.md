@@ -1,3 +1,83 @@
+###  Публикация: 1090392   (945616) от 07.01.2017
+
+ElectroBuddy Pro 1.2 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+ElectroBuddy Pro- AdFree версия Electrobuddy приложение, которое получило 100 тысяч загрузок в этой категории.
+Большая коллекция наиболее широко используемых инструментов электроники под одной крышей для всех студентов электроники, энтузиастов и профессионалов отрасли. Большая часть этого приложения является состоит из бесплатной версии electrobuddy.
+Цель этого приложения (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 8 февраля 2016 г.Разработчик: www.electrobuddyapp.comПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B09A2B45BB50A30333E288836B6F4D68CFE3CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090865   (945581) от 07.01.2017
+
+AntiVirus Android Premium 2.5.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Life-License Full версия Aнтивирус Aндроид AndroHelm Mobile Internet Security Vip Premium с расширенными функциями и возможностями для безукоризненной работы Вашего смартфона или планшета и Web безопасности в любых ситуациях, с пожизненной лицензией. При установке и начале работы быстро выявляет проблемные места для их лечения и при отклонениях в работе системы моментально (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 07.01.17Разработчик: AndroHelm SecurityПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4062277E34A29DAC0CA946CB3E650304E577E1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091116   (944268) от 08.01.2017
+
+Recorder 4 in 1 PRO 1.7.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Recorder 4 in 1 PRO - Запись входящие звонков, исходящих звонков,запись видео, секретный диктофон, рекордер экрана (для последней функции требуется версия Android 5.0 и выше). Все ещеищите рекордер, который имеет множество функций? Нет необходимости искать дальше, представляем вашему вниманию новое приложение "Recorder 4 in 1".Запись входящие звонков, исходящих (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20 декабря 2016 г.Разработчик: Manqaro.Поддерживаемая ОС: Android 4.0.3 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75D60AB5D49B46B130C90E0148C2F94D202BF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091272   (944224) от 08.01.2017
 
 Ремонт ошибок Ваз Pro 1.6 [Ru]
@@ -6,7 +86,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +113,7 @@ Bini СУПЕР АЗБУКА v2.6.9.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +165,7 @@ SMD компоненты v1.7.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +327,7 @@ APK Extractor 4.1.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +353,7 @@ Gallery Go by Google Photos v1.0.1.258899354 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +457,7 @@ Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +539,7 @@ Cписок покупок v2.1.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -487,7 +567,7 @@ Stepik v1.114 [Ru] - бесплатные онлайн-курсы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -513,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -539,7 +619,7 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,7 +671,7 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -603,85 +683,6 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8001DD4A7DCEE031A041CB4397E536181F8CE3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094099   (930433) от 17.01.2017
-
-P4P 7 Minute Workout PRO 1.3.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь думали о возможности тренировки всего вашего тела всего за 7 минут, сжигании максимума калорий и достижении желаемых результатов? Научное обоснование тренировки «7 минут» не только гласит, что это возможно, но и утверждает, что это один из лучших способов тренировок из когда-либо придуманных!
-«Больше» не всегда означает «лучше». Даже изобилие здоровой (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 10 января 2017 г.Разработчик: Passion4Profession AppsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30306A8B80E7ABDEC3A6885563F80370DD9BE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365426   (930272) от 07.03.2020
-
-TinyCam Monitor PRO v14.2.2 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930272.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinyCam Monitor PRO – это программа позволяющая вести видеонаблюдение с любых камер на любом андроид гаджете, а также управлять и записывать изображение с ip-камер, виды деятельности в которых может быть использована данная программа - безграничны. Вы можете удалённо смотреть за вашим ребёнком, домом, следить за офисом, бизнесом.Тип издания: PremiumРелиз состоялся: 6.03.2020Разработчик: Tiny Solutions LLCПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB35CA5A9ED02984DD0642F6E479D3E22D5F8994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329823   (929859) от 07.03.2020
-
-Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Cast to TV позволяет передавать все локальные видео, музыку и изображения на Chromecast, Amazon Fire Stick или Fire TV, Xbox One, Smart TV или иные устройства DLNA. Установите Cast to TV и смотрите видео по телевизору прямо сейчас!Тип издания: Пиратка (Разблокирован Premium, удалена реклама и аналитика)Релиз состоялся: 21.01.2020Разработчик: InShot Inc.Поддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C365EC23389B9F6F3EC7954C13515279A7F3F499
 ```
 
 https://mybot314.ru/tekegram_catalog/

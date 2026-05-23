@@ -1,3 +1,206 @@
+###  Публикация: 1859699   (1061238) от 17.03.2026
+
+Secret Garden - Secret St. Patrick's Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-classical, New Age, Nordic Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Daughters Of Erin (2:35)
+02. The Rap (2:34)
+03. Flow (3:29)
+04. Fantasia (4:40)(   Читать дальше...   )Жанр: Celtic, Neo-classical, New Age, Nordic FolkПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136FE356C7D81B39A356E944295B67B8B090D293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858146   (1060164) от 08.03.2026
+
+Franck Pourcel And His Orchestra - Pourcel Himself (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+01. Rotor Motor
+02. Sunny Cuckoo
+03. Summer Tide
+04. Applewine(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E00BD759B21172EE905738370DBC09806573F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858148   (1060163) от 09.03.2026
+
+Mladen Franko & Norman Candler Magic Strings - Just Beautiful (2024) Remastered [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Find a Way
+02. Steps to Heaven
+03. Seawind
+04. Love Image(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A04EDDDB78E458C52CE4C0B1753BEB212222F42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857829   (1060040) от 07.03.2026
+
+Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You Like Me Now?! [0:03:29.05]
+02. When Love Fades [0:03:07.25]
+03. Blue Bedroom [0:03:30.12]
+04. New Orleans [0:04:13.53](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:41:04.733 (108 694 740 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EB9509EC8463CD445092F57627D5AA6353CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858083   (1059941) от 08.03.2026
+
+Paul Mauriat - Retalhos De Cetim (1974) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+01. O Show Já Terminou
+02. Teimosa
+03. Folhas Secas
+04. Joanna Francesa(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A54F0DEE4980144FF0A75C9AF2410BA806F390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858088   (1059939) от 08.03.2026
+
+Paul Mauriat - Sommer Souvenirs (1975) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/009/" />
+</div>
+
+
+###  Подробнее
+
+01. Please Tell Her
+02. Es stieg ein Engel vom Olymp
+03. Deine Spuren im Sand
+04. I Got A Name (From ″Last American Hero″)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB442D8479352B5C6DC6165A8F82D58AC6301D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856672   (1059018) от 01.03.2026
+
+Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Parle plus bas - Thème d'amour du film ″Le Parrain″
+02. Le passager de la pluie
+03. Un homme et une femme
+04. La chanson de Lara (Lara's Theme ⧸ Du film ″Le Docteur Jivago″)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9985C7BCE75B9445AFC12074E2329578479C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856699   (1058998) от 01.03.2026
 
 Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
@@ -6,7 +209,7 @@ Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Mumford & Sons - Prizefighter (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Folk R
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Apparat (Sascha Ring) - 4 Soundtracks (2020) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -122,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +412,7 @@ The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Franck Pourcel - Cole Porter Story (2018) Remasterisé en 2018 [FLAC 24/44.1|Los
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Vayper - Матерные частушки (Алексей Иванов) (2026) 
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +557,7 @@ The St. John Damaskin children’s and youth choir (Детско-юношеск�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - The Orient Collective: Sahara Stories (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Y
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +673,7 @@ Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +702,7 @@ Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Sessio
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +729,7 @@ Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downte
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,206 +743,6 @@ Ambra - Honour & Glory (2003) [OGG Vorbis|470 Kbps] <Electronic, New Age, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F9E07AAEC25E5D1E683F5A964A5D87B0C7AF149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604093   (1045285) от 14.01.2023
-
-Ted Hammond Orchestra - Hammond Evergreens (2022) Vol. 1, 2 [MP3|320 Kbps] <Hammond, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stayin' Alive (Original Mix) [02:53]
-02. Summer Nights (Original Mix) [03:39]
-03. Kiss You All Over (Original Mix) [03:15]
-04. The Devil Sent You To Lorado (Original Mix) [03:09](   Читать дальше...   )Жанр: Hammond, InstrumentalПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB6EC5F84FD07AC93F30E5578607A324BB12561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604704   (1044946) от 17.01.2023
-
-Канцлер Ги - Страшная сказка (2010) [FLAC|Lossless|image + .cue] <Folk-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Ezzelino
-03. Письмо тирана Римини Папе Римскому
-04. Due Angeli(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1066E2642F367CE76DD5FECF51DBD55DBAF625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606205   (1044437) от 22.01.2023
-
-Deep Forest - Deep Forest / Comparsa (1998) Reissue, 2001, Epic Records Group [OGG Vorbis|450 Kbps] <Electronic, Folk, World & Country>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noonday Sun
-02. Green And Blue
-03. Madazulu
-04. 1716(   Читать дальше...   )Жанр: Electronic, Folk, World & CountryПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1685FC19B7389D3ED0A634769EA57D66F51A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605665   (1044418) от 22.01.2023
-
-Тролль гнет ель - Дискография (11 релизов) (2005-2022) [MP3|320 Kbps] <Folk Rock, Metal, Beer Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Rock, Metal, Beer FolkПродолжительность: 06:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2798118184ED172AC0DDB5126716B6967E1EE947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606056   (1044417) от 22.01.2023
-
-Le Grand Orchestre De Paul Mauriat - Penelope (1971) Reissue, Remastered, 1997, Philips [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penelope
-02. El Condor Pasa
-03. Anonimo Veneziano 'Anonimo Veneziano
-04. El Mourir De Plaisir(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC39788461998D311D464F4E3F6097F7F13CF29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606893   (1044228) от 24.01.2023
-
-Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ameno remix
-02. Don't go away
-03. The mass
-04. Mother remix(   Читать дальше...   )Жанр: New Age, Pop, ClassicalПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

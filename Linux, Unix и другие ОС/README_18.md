@@ -1,3 +1,248 @@
+###  Публикация: 701239   (476115) от 18.09.2013
+
+Bodhi Linux 2.4.0 [x86, x86-64] (3xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Bodhi Linux 2.4.0, построенного на пакетной базе Ubuntu 12.04 LTS. Графическое окружение в Bodhi Linux основано на оконном менеджере Enlightenment 17, в качестве файлового менеджера используется EFM, а браузера - Midori. Для упрощения установки дополнительных приложений, наиболее интересные программы из различных категорий, представлены в специальном web-каталоге.  В качестве минимальных требований к оборудованию упоминается CPU 300 Mhz и 128 Мб ОЗУ.
+
+Этот релиз отличается от предыдущего только обновлением пакетов. Русский язык поддерживается в достаточной мере.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E440B847276A2850A8CB24AA1D8EC8F3D5C850D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567050   (475889) от 01.08.2022
+
+Linux Mint 21 Custom Xfce с доп. пакетами [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Модифицированный с помощью Cubic оригинальный образ Linux Mint 21 Xfce. Предназначен как для установки, так и для проверки функционирования, тестирования, обслуживания ПК, ноутбуков. Весит меньше (1.94GB вместо 2.25GB) так как filesystem.squashfs пересжат xz вместо gzip.
+Добавлены пакеты: cheese chntpw cpu-x ethtool exfatprogs gddrescue gsmartcontrol htop iperf iperf3 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B3D72E2CD85700AE28A23D3536F995D0A03C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406692   (472639) от 04.09.2020
+
+Ubuntu*Pack 20.04 GNOME (сентябрь 2020) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2225DE1123A56FF511BD29F280750507293EE302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406717   (472637) от 04.09.2020
+
+Ubuntu*Pack 20.04 GNOME Classic (сентябрь 2020) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4973EE2BFC0F4343309B3057D5E4BBEBEA2E8BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406648   (472545) от 04.09.2020
+
+Ubuntu*Pack 20.04 Budgie (сентябрь 2020) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE958DC32494638162B31025E5DA2475D4FEBC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406686   (472542) от 04.09.2020
+
+Ubuntu*Pack 20.04 (сентябрь 2020) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D0E11B6A01272C8BC6D2A1BB2E396913C05D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406655   (472538) от 04.09.2020
+
+Ubuntu*Pack 20.04 Cinnamon (сентябрь 2020) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C685BD9DE279A2AD345E7FB5A2F88F53C6CC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406668   (472530) от 04.09.2020
+
+Ubuntu*Pack 20.04 DDE (сентябрь 2020) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F9918E10DBE31406BE472363F3A6237CD207AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057656   (472503) от 29.09.2016
+
+Proxmox VE 4.3 [x64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Proxmox Virtual Environment (Proxmox VE) — система виртуализации с открытым исходным кодом, основанная на Debian GNU/Linux.
+В качестве гипервизоров использует KVM и OpenVZ. Соответственно, способна выполнять любые поддерживаемые KVM ОС (Linux, *BSD, Windows и другие) с минимальными потерями производительности и Linux без потерь.
+Управление виртуальными машинами и (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D1264E8B9C4F45DDDB3B177F7446BF85676EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939954   (470689) от 23.09.2015
 
 Tor Browser 5.0.3 [анонимный доступ в сети] [х86, x64] (bundle)
@@ -6,7 +251,7 @@ Tor Browser 5.0.3 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +277,7 @@ Debian GNU/Linux 8.2.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +303,7 @@ Ubuntu*Pack 20.04 GNOME Flashback (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +330,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +357,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +384,7 @@ Ubuntu*Pack 20.04 GNOME Like Win (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +411,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (сентябрь 2020) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +438,7 @@ Ubuntu 16.10 Yakkety Yak Beta II [i386, amd64] 2xDVD, 2xCD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +464,7 @@ BackBox Linux 3.09 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +494,7 @@ KNOPPIX 8.6 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +520,7 @@ Manjaro Linux 0.8.7.1 (Arch + XFCE, LXDE, openbox, net: легкий дистр�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +548,7 @@ Antergos 18.9 18.9 [i586, x86_64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +574,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [amd64] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +600,7 @@ Debian Live GNU/Linux 9.1.0 + nonfree Stretch [i386] 12xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +626,7 @@ Mandriva 2012 Alpha [i586 + x86-64] (2xDVD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +652,7 @@ Tor Browser 2.3.25-13 [анонимный доступ в сети] [i686, x86-6
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +678,7 @@ BlackArch Linux 2017.08.30 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,250 +689,6 @@ BlackArch Linux — специализированной Live модификац
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C87F37C13553DBB345DA84796CB5DF938C08A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941791   (457284) от 29.09.2015
-
-Manjaro Linux 15.09 (KDE, Xfce, LXDE, LXQt + netinstall) [i686] 2xDVD + 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступна новая версия дистрибутива Manjaro Linux 15.09, построенного на основе Arch Linux и ориентированного на начинающих пользователей. Дистрибутив примечателен наличием упрощённого и дружественного пользователю процесса установки, поддержкой автоматического определения оборудования и установки необходимых для его работы драйверов. Manjaro поставляется в виде live-сборок (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D066845CA778F661809F3B652848B42C2599BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162604   (456263) от 02.09.2017
-
-Ubuntu 17.10 Artful Aardvark Beta I [i386, amd64] 10xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены первые бета версии дистрибутива Ubuntu 17.10 Artful Aardvark, которые доступны для тестирования и это означает что Ubuntu переходит на стадию заморозки пакетов.
-
-Так, для загрузки доступны следующие сборки: Lubuntu, Lubuntu Next, Ubuntu Mate, Kubuntu, Ubuntu Studio, Ubuntu Budgie, Xubuntu, Ubuntu Kylin. Здесь в релизе только пять рабочих окружений для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5506ED10DFB46F6379411D5C9979E9B730CF5D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704749   (455665) от 27.09.2013
-
-Ubuntu Gnome 13.10 Saucy Beta II [i386, amd64]
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел второй beta тестовый релиз Ubuntu GNOME 13.10, отличающийся от основного релиза DE, в котором вместо Unity используется традиционный Gnome. Комитет по техническому развитию Ubuntu (Ubuntu Tech Board) утвердил придание сборке Ubuntu с десктоп-окружением GNOME статуса официального ответвления от Ubuntu.
-
-Ubuntu — это разрабатываемая Canonical, основанная на ядре Linux операционная система, которая идеально подходит для использования на персональных компьютерах, ноутбуках и серверах. Она содержит все необходимые программы, которые вам нужны: просмотр Интернета, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4BE86B3D38A99CE9C0A856FA7765E295BFD5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704775   (453679) от 28.09.2013
-
-Kubuntu 13.10 Saucy Beta II [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел второй альфа релиз следующей версии Kubuntu Saucy. Kubuntu — производный от Ubuntu дистрибутив Linux. Kubuntu использует графическое окружение KDE вместо стандартного для Ubuntu Unity. Слоган проекта Kubuntu — «Дружественный компьютер». Дистрибутив разрабатывался и поддерживался компанией Canonical Ltd. до версии 12.04. Релиз 13.10 разрабатывается сообществом. Дистрибутив содержит все необходимые программы, которые Вам нужны или могут потребоваться: программу просмотра Интернет, офисный пакет для работы с текстами, электронными таблицами и презентациями, программы для общения в Интернет и много других
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6805112FB80A180370A5361ADC253FD0987D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942505   (453557) от 01.10.2015
-
-Calculate Linux 15 [x86-64] 1xCD, 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453557.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия Calculate Linux - 15. Calculate Linux основан на дистрибутиве Gentoo. Базовое  отличие - присутствие в дистрибутиве графического инсталлятора. С этой версии в состав дистрибутива входит релиз CLDM с рабочим столом MATE, в прошлой версии он вышел первый раз, но отдельным релизом.
-
-Доступны для загрузки следующие редакции дистрибутива: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E05F565C483B2869F791B456F3671103205130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942506   (453411) от 01.10.2015
-
-Calculate Linux 15 [i686] 1xCD, 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453411.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия Calculate Linux - 15. Calculate Linux основан на дистрибутиве Gentoo. Базовое  отличие - присутствие в дистрибутиве графического инсталлятора. С этой версии в состав дистрибутива входит релиз CLDM с рабочим столом MATE, в прошлой версии он вышел первый раз, но отдельным релизом.
-
-Доступны для загрузки следующие редакции дистрибутива: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E98FA6DFB4A87ADDAA144A887150DBC9F415DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704783   (453370) от 28.09.2013
-
-Lubuntu 13.10 Saucy Beta II (легкий дистрибутив) [i386, amd64]
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся второй тестовый релиз семейства дистрибутивов 13.10  Saucy Alpha II
-
-Lubuntu — это свободная операционная система на базе Ubuntu Linux. Основное отличие Lubuntu — малые требования к ресурсам компьютера за счет использования среды рабочего стола LXDE. Lubuntu — это современная операционная система, которую можно поставить как на современные компьютеры, так и на устаревшие. Lubuntu работает очень быстро, она безопасна, красива, функциональна. К тому же, Lubuntu позволяет вернуть к жизни старые персональные компьютеры, на которых другие современные операционные системы не смогут нормально работать. Lubuntu также отлично подходит для установки на нетбуки и другие портативные устройства.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EC99828EB44E02114AE9C6EC501CECF852D887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408729   (453166) от 13.09.2020
-
-SystemRescueCD 6.1.8 [x86/x64] 2xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453166.jpg" />
-</div>
-
-
-###  Подробнее
-
-SystemRescueCd — это спасательной диск в системе Linux в качестве загрузочного компакт-диска или USB Stick для администрирования или восстановления системы и данных после сбоя. Его целью является обеспечить простой способ для выполнения задач администратора на компьютере, таких как создание и редактирование разделов на жестком диске.     Диск поставляется с большим количеством (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A444E67C2C143E27F9542AB30A2C84E1DB20949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942709   (453094) от 01.10.2015
-
-Parted Magic 2015_09_29 [i686, amd64] 1xCD
-
->>Linux, Unix и другие ОС
->>Специализированные ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parted Magic — готовое решение для работы с разделами жесткого диска на базе загрузочного LiveCD. Дистрибутив включает полноценную операционную систему. Последняя, в свою очередь, кроме управления разделами, может также производить настройку установленной системы, работать с сетью интернет, а также производить любые операции с данными (удаление, восстановление, перенос (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CAEBB378AA34F339DAD33C0240A603BE5129B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

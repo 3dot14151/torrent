@@ -1,3 +1,107 @@
+###  Публикация: 1479619   (1009574) от 24.06.2021
+
+Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-4] [2018, TV, 25 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сакамичи Онода – главный герой сей истории, который уже «повзрослел» и теперь уже опытный велогонщик, намерен выиграть очередные соревнования и доказать, чего он добился за время своих изнурительных тренировок. Теперь Онода вместе с Сёкитой Наруко, который и вовлёк его в велоклуб, плечом к плечу должны пройти множество испытаний, ведь, достигая больших высот, взобраться (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: спорт, комедияРежиссер: Набэсима ОсамуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B4559A00E076AF71BA7A963CA4D32F8CA5966B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479533   (1009543) от 24.06.2021
+
+UFO Robo Grendizer tai Great Mazinger | UFO Robo Grandizer vs. Great Mazinger | Инопланетный робот Грендайзер против Великого Мазингера [1976, Movie] BDRip 522p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Дайске и Хикару отправляются на прогулку в лес, а тем временем к Земле незаметно приближается новый, хорошо оснащённый враг. Коджи принимает решение сражаться в одиночку. Что из этого вышло - смотрите сами...Производство: Dynamic Planning / ダイナミック企画Жанр: приключения, фантастика, мехаРежиссер: Касай ОсамуПеревод: Дорога ЗероЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 27 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A6856470DAD9B86B84358D9E4C5EF5722D869B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461545   (1009510) от 24.06.2021
+
+Fairy Ranmaru: Anata no Kokoro Otasuke Shimasu | Феи Ранмару: Мы спасём твоё сердце [2021, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Пятеро юношей работают в загадочном баре «Ф», который предлагает клиентам исцелить сердце. За это они не берут платы... разве что украдут их сердце.Производство: Студия Studio Comet / スタジオコメットЖанр: приключенияРежиссер: Хисида МасакадзуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8AFCE411452727D39CFAA958E8926DCFFAB9C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461542   (1009507) от 24.06.2021
+
+Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это история о Сётаро Футабу, старшекласснике, который на последнем году обучения в средней школе загорелся таким видом спорта, как мужская художественная гимнастика. Когда Сётаро зачислили в частную академию Сосюкан, он вступил в кружок мужской художественной гимнастики. В нём он, вместе с остальными участниками клуба, стремится добиться общей цели.Производство: Студия Zexcs / ゼクシズЖанр: спортРежиссер: Куроянаги ТосимасаПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F52CF9B71B5C22FA434D81466B63C6A32590A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461012   (1009500) от 24.06.2021
 
 Dragon, Ie o Kau. | Dragon Goes House-Hunting | Дракон в поисках дома [2021, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +110,7 @@ Dragon, Ie o Kau. | Dragon Goes House-Hunting | Дракон в поисках �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Yowamushi Pedal: New Generation | Трусливый велосипедист [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ On-Gaku: Our Sound | Ongaku | Музыка [2020, Movie] BDRip 1080p HEVC 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Godzilla: Singular Point | Годзилла: Точка сингулярност
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Zombie Land Saga Revenge | Зомбиленд. Сага [ТВ-2] [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Subarashiki Kono Sekai the Animation | The World Ends with You the Animation | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Убива�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Yuukoku no Moriarty (2021) | Moriarty the Patriot 2 | Патриотизм Мо�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +374,7 @@ Bishounen Tanteidan | Pretty Boy Detective Club | Клуб детективов-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Nomad: Megalo Box 2 | Megalobox: Nomad | Мегалобокс [ТВ-2] [2021, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +426,7 @@ Osananajimi ga Zettai ni Makenai LoveCome / Романтическая коме�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Tatoeba Last Dungeon Mae no Mura no Shounen ga Joban no Machi de Kurasu You na M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +530,7 @@ Nanatsu no Taizai: Fundo no Shinpan | The Seven Deadly Sins: Dragon's Judgement 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +556,7 @@ Edens Bowy | Eden's Bowy | Парень из Эдема [1999, TV, 26 из 26] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +609,7 @@ Fruits Basket the Final | Корзинка фруктов [ТВ-2, финал] [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +635,7 @@ Hibike! Euphonium | Sound! Euphonium | Играй, эуфониум! [ТВ-1 и 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +661,7 @@ Kabukibu! / Клуб кабуки [2017, TV, 12 из 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,110 +672,6 @@ Kabukibu! / Клуб кабуки [2017, TV, 12 из 12] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580806A07AC8D9B903A38F171DF6D74A2BF3768F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483314   (1006885) от 13.07.2021
-
-Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006885.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Почему же я принимаю это обличье?» Сюити Кагая — юноша с опасной для всего мира способностью: он умеет превращаться в странный звериный костюм. И однажды его сила привлекает внимание таинственной девушки по имени Клэр… Встреча с ней окончательно рушит мирную жизнь Сюити: на него объявляют охоту чудовища — люди с такой же способностью, как у парня. Став единым целым, (   Читать дальше...   )Производство: студия Pine Jam / パインジャムЖанр: приключенияРежиссер: Ёнэда КадзухироПеревод: Wakanim (дехардсаб JiLleON)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29C043380947430C8BA37686166B99FD3FF95DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484074   (1006392) от 17.07.2021
-
-Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: Девушка бьёт парней [2017, TV, 12 эп.] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006392.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий оригинальной игры девушка-сирота Хинако Накаяма неожиданно воссоединилась со своим братом-близнецом, Хикару. Он просит ее занять его место в академии «Львиный Рык», частной школе для парней. О ней ходит дурная молва из-за жестокого учсовета, установившего свою диктатуру. Хикару принадлежит к влиятельному клану якудза, и он обязан стать лидером академии (   Читать дальше...   )Производство: Project No.9Жанр: приключенияРежиссер: Сайто НориакиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 8 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617B30C81B5CA5FD2BE6E672127B755B58B5670A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484781   (1005905) от 21.07.2021
-
-Night Head Genesis | Сумеречный разум: Рождение [2006, TV, 24 эп.] DVDRip 476p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители юных Наото и Наойа Кирихама очень быстро поняли, что их дети отличаются от остальных. Они любили своих детей и желали им добра. Но c самого детства маленький Наото причинял боль другим, не осознавая мощи своей силы, а младший брат Наойа мог читать мысли, лишь прикасаясь к человеку. В конце концов эти силы стали сводить с ума родителей, и они приняли очень (   Читать дальше...   )Производство: Actas / アクタスЖанр: триллер, фантастикаРежиссер: Такэути ЁсиоПеревод: Felix007 (1-13); mAdmaxi (14-24)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F481929A72DCA19288E0E52AA0CE4FA8FE565888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485214   (1005581) от 24.07.2021
-
-Regalia: The Three Sacred Stars | Регалия: Три священные звезды [2016, TV, 13 эп.] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь – невероятно непредсказуемая штука. Планы то и дело срываются, мечты о будущем рушатся, как карточные домики, а судьба иногда выкидывает такие кульбиты, что впору только руками разводить. Юные Рэна и Юи – две сестры-сиротки, которые жили душа в душу и не планировали пускаться в опасные приключения. Жизнь в Энастории, их родном королевстве, была спокойной и (   Читать дальше...   )Производство: Студия Actas / アクタスЖанр: приключения, фантастика, мехаРежиссер: Тосака СинПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F623843872A7AE66FF718EE9449CE38E46CC7ED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

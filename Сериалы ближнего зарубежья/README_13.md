@@ -1,3 +1,81 @@
+###  Публикация: 1576113   (370601) от 12.09.2022
+
+Копы 667 / Qopy 667 (2021) WEBRip [H.264/1080p] (сезон 2, серии 1-10 из 10)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На улицах любого мало-мальски большого города есть преступность. На передовой с ней боремся мы - оперуполномоченные криминальной полиции, или проще говоря - «опера», а еще проще – копы. Работа копов не простая – нужно всё обо всех знать и при этом, чтобы тебя не знали те, кому не положено знать кто ты. Короче, там всё запутано, но на то мы и копы, чтобы распутывать, (   Читать дальше...   )Производство: Казахстан | Oyboy ProductionЖанр: комедия, криминалРежиссер: Абзал ГарифуллинАктеры: Ерлан Примбетов, Абзал Гарифуллин, Арнат Утепбергенов, Нуркен Иманкулов, Еркен Губашев, Рустем ЖаныамановЯзык озвучки: Русский (фрагментами присутствует казахский)Продолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B626356C8C2800AB8716AFB15C2BB83612C6E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576124   (368366) от 13.09.2022
+
+Копы 667 / Qopy 667 (2021) WEBRip [H.264/1080p] (сезон 3, серии 1-10 из 10)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На улицах любого мало-мальски большого города есть преступность. На передовой с ней боремся мы - оперуполномоченные криминальной полиции, или проще говоря - «опера», а еще проще – копы. Работа копов не простая – нужно всё обо всех знать и при этом, чтобы тебя не знали те, кому не положено знать кто ты. Короче, там всё запутано, но на то мы и копы, чтобы распутывать, (   Читать дальше...   )Производство: Казахстан | Oyboy ProductionЖанр: комедия, криминалРежиссер: Абзал ГарифуллинАктеры: Ерлан Примбетов, Абзал Гарифуллин, Арнат Утепбергенов, Нуркен Иманкулов, Еркен Губашев, Рустем ЖаныамановЯзык озвучки: Русский (фрагментами присутствует казахский)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F9A4DA4A41685735AFBBFE2E5ABC8BF09A545B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176797   (366967) от 23.10.2017
+
+В последний раз прощаюсь (2017) SATRip (2 серии из 2)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жарким летним днем 24-летний Андрей спасает утопающую школьницу Веру. Девушка безответно влюбляется в своего спасителя, а тот видит в ней лишь малюсенькую робкую девчонку. Вскоре Андрей уезжает в город и женится на своей ровеснице. А у Веры остаются его рисунки, медальон и щенок Джим, которого они вместе спасли. Прошли годы, из неловкой девчонки Вера превратилась (   Читать дальше...   )Производство: Украина / FILM.UAЖанр: МелодрамаРежиссер: Андрей ЧерныхАктеры: Ксения Роменкова, Константин Самоуков, Валерия Ходос, Мальвина Салийчук, Мария Трепикова, Андрей Фединчик, Александра Польгуй, Игорь Петрусенко, Нина Антонова, Инна КапиносЯзык озвучки: РусскийСубтитры: Украинские (хардсаб)Продолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68634A931D75A106A3A0EE44C73012BC31AF7318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416691   (364756) от 17.10.2020
 
 Булатов / Крысолов (2020) WEBRip (сезон 1, серии 1-16 из 16)
@@ -6,7 +84,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01B0DB0C8CBAB8F5AD67C1AAF2F621D2EE9E6B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419183   (341914) от 27.10.2020
-
-Разве можно мечтать о большем (2020) HDTVRip [H.264] (сезон 1, серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечту скромной медсестры Ксении о прекрасной жизни в новом месте с любимым человеком неожиданно разбивает известие о тяжелой болезни ее мамы. Ксения вынуждена отменить свой переезд за границу и искать деньги на дорогостоящую операцию. Оставшись одна, без жилья и без работы, она пытается сделать все, что в ее силах. Неожиданно она получает предложение стать сиделкой (   Читать дальше...   )Производство: Украина | "Film.UA"Жанр: МелодрамаРежиссер: Алексей ЕсаковАктеры: Александра Сизоненко, Ирина Веренич-Островская, Сергей Дзялик, Владислав Никитюк, Александр Крючков, Оксана Архангельская, Кирилл Никитенко, Ирина Бибик, Ева Шевченко-ГоловкоЯзык озвучки: РусскийСубтитры: Украинские (hardsub)Продолжительность: ~00:43:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2AA19B2FC2D0E261E464E29147BB11957C11DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258139   (340707) от 28.10.2018
-
-Одна на двоих  (2018) WEB-DLRip (сезон 1, серии 1-4 из 4)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оля и Петя – ровесники и соседи с детства: вместе росли, вместе пережили потерю близких в одной аварии (Олиной мамы и Петиного отца), вместе попали в детдом. Детская дружба со временем перерастает в любовь, и к своим восемнадцати молодые люди уверены, что и дальше пойдут по жизни вместе, готовятся к свадьбе. Но в их планы вмешивается Илья Горелов, сын влиятельного (   Читать дальше...   )Производство: УкраинаЖанр: мелодрамаРежиссер: Владимир ЯнощукАктеры: Алина Сергеева, Александр Ратников, Дмитрий Сова, Андрей Исаенко, Ксения Баша-Довженко, Владислав Демиденко, Анна Расстальная, Владимир Миняйло, Олег Щербина, Кристина Мельниченко и др.Язык озвучки: русскийПродолжительность: ~ 00:49:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33197227C390C8B79ACA3EF3D5709936AF0BA20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257969   (340405) от 28.10.2018
-
-Дежурный врач (2017) WEBRip (сезон 2, серии 1-40 из 40)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340405.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 часа в сутки, семь дней в неделю, без перерывов и выходных! Именно так работает обычная больница скорой помощи. Каждый день сюда попадают десятки новых пациентов. У каждого — своя история болезни, за которой скрываются реальные проблемы и личные драмы. И дежурные врачи становятся невольными участниками этих драм. Иногда они просто наблюдают ход событий, а иногда (   Читать дальше...   )Производство: Украина / IFILM.UA, ТРК "Україна"Жанр: драма, мелодрамаРежиссер: Виктор Полторацкий, Константин Денесюк, Сергей СотниченкоАктеры: Михаил Жонин, Ирина Ткаленко, Руслан Сокольник, Надежда Левченко, Лилия Майборода, Виктория Лушникова, Валентина Вовченко, Леонид Попадько, Елена Новикова, Светлана Князева и др.Язык озвучки: русскийПродолжительность: ~00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2BFAE738E0E307C1C6E306CB2D4EDB1B30A80B
 ```
 
 https://mybot314.ru/tekegram_catalog/

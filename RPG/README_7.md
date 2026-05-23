@@ -1,3 +1,81 @@
+###  Публикация: 1486311   (1004779) от 30.07.2021
+
+The Ascent (2021) [Ru/Multi] (Build 7106737) License CODEX
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на Велес! Вы - подневольный "Асцент Груп", крупнейшей корпорации на планете, которая владеет здесь всем и вся. Внезапно "АГ" прекращает своё существование и Вы попадаете в водоворот опасных событий. Системы безопасности выходят из строя, конкуренты стремятся захватить власть, а преступные группировки - укрепиться на черном рынке. (   Читать дальше...   )Тип издания: LicenseРазработчик: Neon GiantЖанр: Cyberpunk, RPG, Action, ShooterЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA434AB40756941A354FC208A70A141D1EF7558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486585   (1004660) от 31.07.2021
+
+Ys IX: Monstrum Nox (2021) [Multi] (1.0.5/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Известный авантюрист Adol "the Red" Christin и его товарищ Dogi прибывают в Балдук, город, аннексированный Ромунской Империей. Однако Adol оказывается схвачен едва ли не раньше, чем его нога ступает на городской камень. Находясь в тюрьме, он встречает загадочную женщину по имени Aprilis, которая превращает его в Монструма, существо со сверхъестественными (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom, Engine Software BV, PH3 GmbHЖанр: jRPG, ActionЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, ФранцузскийЯзык интерфейса: Английский, Японский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5F19BB888C269551FFB89A866E28143A845C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385856   (1004471) от 01.08.2021
+
+Signs of the Sojourner (2020) [En] (4) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сыграйте в очень интересную карточную игру, сюжет которой повествует о важности общения и отношениях между людьми. Заводите новых друзей, соперников или просто знакомых с помощью серий карточных диалогов. Signs of the Sojourner не экономическая игра и не симулятор управленца. Практически всё, чем предстоит заниматься, это разговоры. Вопреки сложившемуся представлению (   Читать дальше...   )Тип издания: LicenseРазработчик: Echodog GamesЖанр: Ролевая игра, Exploration, Визуальные новеллыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3438D62723236D662A1AAAE747C37A88434AE62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349449   (1004416) от 01.01.2020
 
 Lichdom: Battlemage (2014) [En] (1.2.3) License GOG
@@ -6,7 +84,7 @@ Lichdom: Battlemage (2014) [En] (1.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Guild of Darksteel (2021) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Forgotten City (2021) [Ru/Multi] (1.1) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Jupiter Hell (2021) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Heroes of Hammerwatch (2018) [En] (101/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Octopath Traveler (2019) [Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Witcher / Ведьмак (2008) [Ru/Multi] (1.5/dlc) Repack Other s [Enhance
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Witcher / Ведьмак (2007) [Ru/Multi] (1.5a) License GOG [Enhanced Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Library of Ruina (2021) [Multi] (1.1.0.5b1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Girls' civilization (2020) [Multi] (4552555) Repack Nikita1358
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Bound by Flame (2014) [Ru/Multi] (2195b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Surge 2 (2019) [Ru/Multi] (1.09u5/dlc) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Torchlight 2/II [Ru/En/Multi4] (Steam-Rip/1.21.5.1) 2012
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +452,7 @@ Torchlight II [Ru/En/Pl] (Repack/1.21.5.1) 2012 | THETA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +480,7 @@ Torchlight 2/II [Ru/Multi4] (RePack/1.21.5.1) 2012 | R.G. Games
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +508,7 @@ Pirates of Black Cove [En/Multi4] (L/1.0.6.8095) 2011 | PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -456,7 +534,7 @@ Dungeon Siege 3 (2011) [Ru/En] (1.0/upd1/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +560,7 @@ R.A.W. Realms Of Ancient War [Ru] (Repack/1.0.1) 2012 | Fenixx
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +587,7 @@ Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +613,7 @@ R.A.W.: Realms of Ancient War [En/Ru] (Lossless Repack/1.0.u1) 2012 | R.G. Origa
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +640,7 @@ Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +666,7 @@ Darkwood (2017) [Ru/Multi] (1.3a) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,86 +677,6 @@ Darkwood (2017) [Ru/Multi] (1.3a) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5450F69D60511A574E1F479F164E061E3E89CB1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616744   (974434) от 10.02.2013
-
-Antology Gothic / Антология Gothic [Ru/En/De] (L) 2001 - 2011
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игрок, попавший в мир «Готики», получает небывалую для ролевых игр степень свободы. Трёхмерная вселенная Мордрага дарует ему возможность пройти по ней любым путём, жить и умереть под небом Миртаны так, как захочется именно ему. Для решения любого квеста найдётся несколько разных способов, а выбор может изменить судьбу персонажа. Только одной свободы игрок будет лишен — он не сможет покинуть этот мир, не изучив его до мельчайших подробностей, не исследовав все его земли и не познакомившись со всеми его обитателями. Он не сможет уйти, не освоив искусство боя, первоначально кажущееся простым, но постепенно раскрывающее все свои тонкости, овладев которыми можно за счет мастерства побеждать противников, значительно превосходящих силой. И даже когда покажется, что все уже изведано, обязательно откроётся что-нибудь новое — таков уж этот прекрасный, полный опасностей и загадок мир. Мир, которым награждает своих пленников «Готика».
-(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Spellbound EntertainmentЖанр: Add-on (Standalone) / RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17159C84C1D49A99A4DC961932BE1102712FCD2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357193   (973885) от 03.02.2020
-
-Vampire's Fall: Origins (2020) [Ru/Multi] (1.5.45) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973885.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение многих лет жители Вамп’Ира жили в мире и покое. Однако, всё чаще люди говорят о властелине тёмной магии - Чернокнижнике. Опасаясь, что слухи подтвердятся и готовясь к худшему, деревня собирает отряд сопротивления. Вы новобранец, примкнувший к рядам защитников, но ещё не знаете, что для вас судьба приготовила нечто особенное... Эта игра – дань классическим (   Читать дальше...   )Тип издания: RepackРазработчик: Early Morning StudioЖанр: RPG, Strategy, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3881C31255D1251F34C56DD8E39223189618FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617084   (973053) от 11.02.2013
-
-Drakensang Dilogy / Дилогия Drakensang [Ru/En] (L) 2009-2010
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами – настоящее возрождение жанра! Игра основана на самой успешной серии немецких настольных ролевых игр – Das Schwarze Auge. Порядочно подзабытые каноны ролевых игр возвращаются вместе с эпическими приключениями отряда героев. Всего в игре представлено порядка двадцати различных классов, у девяти из них есть возможность выбора особой специализации. Продвинутая ролевая составляющая и многочисленные возможности развития персонажей специально адаптированы и упрощены по сравнению с настольным вариантом игры. Диалоги с NPC играют важную роль и напрямую зависят от различных умений и способностей героев.
-(   Читать дальше...   )Тип издания: ЛицензияРазработчик: Radon LabsЖанр: RPG / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F986DA90FB489929364702FCB1D5F7184FC911B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

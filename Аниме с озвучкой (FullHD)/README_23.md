@@ -1,3 +1,89 @@
+###  Публикация: 1562065   (212770) от 07.07.2022
+
+Дневник слизи | Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I Got Reincarnated as a Slime [2021, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Дорогой дневник… Я переродился в слизь. Даже в другом мире жизнь не всегда на кону. Есть много работы, которой надо заниматься: кормление сообщества, ковка предметов, необходимых сообществу. Много разных игр и шуток вокруг! Присоединяйтесь к Римуру и его друзьям, наслаждающимся своим отдыхом и повседневной жизнью!
+
+Это аниме раскроет Римуру и его спутников с совершенно (   Читать дальше...   )Производство: Япония / Студия 8bitЖанр: Комедия, повседневность, сёнен, фэнтезиРежиссер: Хайбара ЮдзиЯзык озвучки: Русский закадровый (AniLibria.TV), (Crunchyroll), (SHIZA Project), Японский
+- Ados, Hekomi, Sharon, Silv (AniLibria.TV)
+- Лизавета, Daelit, Wozwald (SHIZA Project)Субтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A4332073E93F62065B039D2FE0FF40A3190D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562877   (212675) от 11.07.2022
+
+Избранный богами [ТВ-1] | Человек, выбранный богами [ТВ-1] | Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods [2020, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь обычного и ничем не примечательного 39-летнего бизнесмена Рёмы Такебаяши кардинально меняется в тот день, когда он умирает во сне и переносится на небеса к трём великим Богам. Они решают переродить его душу в ином мире, где царят чудеса и магия. Рёме предстоит не только приспособиться к новому окружению, полному необычных для него явлений, и его правилам, но (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: Магия, приключения, фэнтезиРежиссер: Янасэ ЮдзиЯзык озвучки: Русский многоголосый закадровый, Японский
+- Amikiri, Crowley, Derenn, Itashi (AniLibria.TV)
+- Русаков А., Шамарина Т., Портная А., Бобылёва Д., Кубасян С., Жбанов Н. (Wakanim)Субтитры: Русские (софтсаб полные/надписи)
+- (int) (полные/надписи) (AniLibria.TV)
+- (int) (полные) (Wakanim): Екатерина Ясницская, Тимофей КостинПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983B23170351AEE337651CA7B6DFE873F50B1556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830598   (212543) от 28.10.2025
+
+Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Во время летних каникул Хаири Такахара отправился на остров Торисиродзима, чтобы разобрать имущество недавно умершей бабушки. Сойдя с парома, он заметил девушку, стоящую на пирсе. Залюбовавшись ею, он пришёл в себя только тогда, когда осознал, что прекрасная незнакомка исчезла. Проведя какое-то время на острове, Хаири обнаружил, что стал потихоньку привыкать к тамошней (   Читать дальше...   )Производство: Япония, FeelЖанр: Романтика, ПовседневностьРежиссер: Кобаяси ТомокиПеревод: AniLibertyЯзык озвучки: Русский (AniLiberty)Субтитры: РусскиеПродолжительность: 26 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7BFC1BE4E3C835B01A33C1029EF4C8C9BD036C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563631   (212542) от 15.07.2022
 
 Дворянство | Noblesse [2020, TV, 13 из 13] WEBRip 1080p raw+rus
@@ -6,7 +92,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +171,7 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +223,7 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -163,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +276,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -303,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -331,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -358,7 +444,7 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -384,7 +470,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -410,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +525,7 @@ Bakuman 3 | Бакуман [ТВ-3] [2012, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -465,7 +551,7 @@ Bakuman 2 | Бакуман [ТВ-2] [2011, TV, 25] BDRip HEVC 1080p 10-bit raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -491,7 +577,7 @@ Bokura no Yoake | Break of Dawn | Наш рассвет [2022, Movie] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -517,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -547,7 +633,7 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -576,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,7 +690,7 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,84 +701,6 @@ Mai-HiME | My-Hime | Май-Химэ [2004-2005, TV, 26 эп. + 28 SP] BDRip 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E103DBA0E2FD0F7ECD46ECEF406C80DCBDC9F05F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573902   (209093) от 02.09.2022
-
-Blue Thermal | Влюблённые в небо [2022, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первокурсница Тамаки в школе занималась волейболом, потом, чтобы больше нравиться парням, переключилась на большой теннис и однажды случайно попала мячом в планер студента Даисукэ. Поскольку оплатить ремонт она не может, Тамаки вступает в авиационный клуб в качестве помощницы.Производство: Япония / Telecom Animation FilmЖанр: повседневность, спортРежиссер: Татибана МасакиЯзык озвучки: японский и русскийСубтитры: английскиеПродолжительность: 104 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE78134F0AAEC0E69C629B7BCF42A92D6B0B76E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646574   (208895) от 15.07.2023
-
-Fate/Grand Order: Shuukyoku Tokuiten - Kani Jikan Shinden Solomon | Fate/Grand Order Final Singularity - Grand Temple of Time: Solomon | Судьба: Великий приказ - Финальная сингулярность [2021, Movi ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208895.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Халдея» победоносно прошла через семь Сингулярностей и достигла финальной точки своего долгого путешествия. Именно здесь она должна будет исполнить свой Великий приказ. Здесь — на просторах Великого Храма времени: Соломона. Пришла пора уничтожить корень всех зол — Короля магов Соломона. Нужно вернуть человечеству украденное будущее! В преддверии битвы Романи Архиман (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключения, фэнтезиРежиссер: Акай ТосифумиЯзык озвучки: Японский, русский (Wakanim)Субтитры: Русские (Wakanim)Продолжительность: 1 эп. по 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1EF81215BA608DE006C8CA992E2FA5BEC9DF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647089   (208727) от 17.07.2023
-
-Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demonic Front: Babylonia | Судьба: Великий приказ - Вавилония [2019, TV, 21 из 21 + OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208727.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Халдея», организация по обеспечению выживания человечества, днём и ночью продолжает наблюдение за миром с целью обратить вымирание человечества, произошедшее в 2017 году. Его причинами стали сингулярности, внезапно появившиеся в разных отрезках истории. Единственный мастер «Халдеи», Рицука Фудзимару, и его полуслуга Мэш Кириелайт с помощью запретного ритуала отправляются (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключения, фэнтезиРежиссер: Акай ТосифумиЯзык озвучки: Японский, русский (Wakanim, AniLibria)Субтитры: Русские (RikuSempai, AniLibria)Продолжительность: 22 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A677DF9BF9D6AFF1604489423233B333458184
 ```
 
 https://mybot314.ru/tekegram_catalog/

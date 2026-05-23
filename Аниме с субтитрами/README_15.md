@@ -1,3 +1,108 @@
+###  Публикация: 1436751   (1013657) от 29.05.2021
+
+Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика заказывали? [ТВ-3] [2020, TV, 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В некотором царстве, странном государстве, где в культурно-историческом экстазе неведомым образом слились Европа и Япония, на неторопливой речке по-прежнему стоит милый городок с фахверковыми домами и бульварами, поросшими сакурой. Недалеко от реки притаилось кафе «Кроличья нора» - и там усталых путников ждут не только говорящий кролик и чудесный кофе, но и настоящий (   Читать дальше...   )Производство: Студия Encourage Films / エンカレッジフィルムズЖанр: комедия, повседневностьРежиссер: Хасимото ХироюкиПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E702671AFC909502A3ECDA24BF1D64BF7C148527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463698   (1012705) от 04.06.2021
+
+Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Находясь в незапланированной поездке, Рико переносится в альтернативную Японию, где неведомые металлические существа — Мимезис — угрожают миру. И только девушки, обладающие специальным вооружением, могут бороться с этой опасностью. Вместе с другими четырьмя девушками Рико вынуждена бороться с врагами, чтобы спасти человечество и вернуться домой.Производство: студия Studio A-CATЖанр: приключенияРежиссер: Мотонага КэйтароПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ABE03404C7385EA8CFC9DC71A035B3F2A45EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458666   (1012600) от 04.06.2021
+
+Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Новый старт [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья»-авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: студия TNK / ティー・エヌ・ケーЖанр: тёмное фэнтези, драма, эротикаРежиссер: Асаока ТакуяПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80329C34CE2521007F1F75C0532E8EFF36375CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474985   (1012547) от 05.06.2021
+
+Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Кадзуки Сикимори посещает Академию Аой, элитную школу магов. У каждого мага в этом мире установлен предел - выполнение заклинаний больше, чем позволяет лимит, превратит заклинателя в пыль. И у Кадзуки этот предел гораздо ниже среднего в школе.
+Однажды, совершенно неожиданно, перед ним предстают три девочки: Юна Мияма, Курико Кадзэцубаки и Рин Камисиро. И всех их (   Читать дальше...   )Производство: J.C. StaffЖанр: комедия, романтика, фэнтези, эттиРежиссер: Кимура СинъитироПеревод: TM aka ТехноМаг, KeeperRus, WarlockЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3820179B47C56B924F3B0BA44B675B840925B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475377   (1012445) от 06.06.2021
 
 Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
@@ -6,7 +111,7 @@ Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +165,7 @@ Princess Lover! | Любимчик принцесс [2009, TV, 12 эп. + 18 SP]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Легенда о Бело
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +217,7 @@ Kiddy Grade / Детское подразделение [ТВ-1] [2002, TV, 24 �
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Bungaku Shoujo Memoire / Записки литературной девушки 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +271,7 @@ BALDR FORCE EXE Resolution / Виртуальный спецназ [2006, OAV, 4
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +297,7 @@ Saishuu Shiken Kujira / Final Examination Kujira / Кудзира: послед�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +323,7 @@ A Journey Through Fairyland | Yousei Florence | Фея Флоренция [1985,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +349,7 @@ Dear Boys | Hoop Days | Дорогие парни [2003, TV, 26 эп.] DVDrip 48
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +375,7 @@ Rekka no Honoo | Flame of Recca | Пламя Рэкки [1997, TV, 42 эп.] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +401,7 @@ Akikan! | Пустая банка [2009, TV, 12 эп.] DVDrip 400p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +427,7 @@ Tsukuyomi: Moon Phase | Фаза Луны [2004, TV, 25 эп. + 1 SP] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +453,7 @@ Claymore | Клеймор [2007, TV, 26 эп.] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +481,7 @@ Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +509,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -430,7 +535,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +563,7 @@ Shimoneta: A Boring World Where the Concept of Dirty Jokes Doesn`t Exist / Ск�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +589,7 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +615,7 @@ Ame-iro Cocoa in Hawaii | Rainy Cocoa in Hawaii | Какао цвета дожд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +641,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +667,7 @@ Niji-iro Days | Rainbow Days | Радужные деньки [2016, TV, 24 + OVA
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,110 +678,6 @@ Niji-iro Days | Rainbow Days | Радужные деньки [2016, TV, 24 + OVA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72F55BEC417F772F9228D45066CEB422DB3564D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477130   (1011337) от 13.06.2021
-
-Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailsen Files - The Movie | Бронированные воины Вотомы: Материалы по делу Пейлсена [2009, Movie] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война есть война, уродливая, ужасная старуха с крюкой, и никакой романтики здесь не пахнет! Вселенная в которой разворачиваются действия сериала- это галактика, в которой уже 100 лет идет война между Гильгамеш и Балалант. Это безжалостный миниатюризированный мир , где верховодят люди в форме, и человеческая жизнь не стоит и ломанного гроша. Мир, где существует одно (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такэути КадзуёсиПеревод: Николай ГалактионовЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 118 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD691AECF6CAD9F49024A909E1E6BF29305C70AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477120   (1011335) от 13.06.2021
-
-Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Votoms: Roots of Ambition | Бронированные воины Вотомы: Предательство [1988, OVA, 1 из 1] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высшее военное руководство только начинает подозревать о личных планах полковника Пейлсена на взвод Красноплечих. Для этого они решают заслать в Красноплечих группу своих людей, в которую попадает и Кирико. Однако, прибыв на военную базу, всех новоприбывших сразу же с борта шаттла отправляют на учебный бой, который обернулся настоящей кровавой бойней.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 56 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E257A309D7F3082F7D80D288C175124F94D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477116   (1011333) от 13.06.2021
-
-Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Red Shoulder | Бронированные воины Вотомы: Последний красноплечий [1985, OVA, 1 из 1] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается уже после завершения войны и расформирования группы элитных воинов-пилотов Вотомс, которые пытаются отомстить своему бывшему командиру за искалеченные судьбы.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 53 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915BC6F9FC372DD7CCCD819E2E91E1FAA58AF88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477126   (1011331) от 13.06.2021
-
-Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Бронированные воины Вотомы: Материалы по делу Пейлсена [2007, OVA, 12 из 12] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война есть война, уродливая, ужасная старуха с крюкой, и никакой романтики здесь не пахнет! Вселенная в которой разворачиваются действия сериала- это галактика, в которой уже 100 лет идет война между Гильгамеш и Балалант. Это безжалостный миниатюризированный мир , где верховодят люди в форме, и человеческая жизнь не стоит и ломанного гроша. Мир, где существует одно (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77976AF6182DBE2EF2A50B6B4CF97A281B89787C
 ```
 
 https://mybot314.ru/tekegram_catalog/

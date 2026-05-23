@@ -1,3 +1,109 @@
+###  Публикация: 1562856   (506886) от 11.07.2022
+
+Аманат (2022) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История любви сына имама Шамиля Джамалутдина и Лизы Олениной на фоне драматических событий военной истории России первой половины XIX века. Джамалутдин вошёл в историю как «великий заложник», и фильм — это попытка ответить на вопрос: заложник большой политики или большой любви. Исторический контекст заката Николаевской эпохи, на фоне которого разворачивается история (   Читать дальше...   )Производство: Россия / ООО Даггер ФилмЖанр: Биография, история, военный, драмаРежиссер: Антон Сиверс, Рауф КубаевАктеры: Амин Хуратов, Варвара Комарова, Арслан Мурзабеков, Андрей Соколов, Екатерина Гусева, Фёдор Лавров, Фархад Махмудов, Василий Мичков, Виталий Коваленко, Даниил СтраховПеревод: Не требуется (Русский)Субтитры: Русские (Full, hardsub на дагестанскую речь)Продолжительность: 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E4EBADE3540F23721FC5920268F6D33497A40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562888   (506885) от 11.07.2022
+
+Аманат (2022) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История любви сына имама Шамиля Джамалутдина и Лизы Олениной на фоне драматических событий военной истории России первой половины XIX века. Джамалутдин вошёл в историю как «великий заложник», и фильм — это попытка ответить на вопрос: заложник большой политики или большой любви. Исторический контекст заката Николаевской эпохи, на фоне которого разворачивается история (   Читать дальше...   )Производство: Россия /  ООО Даггер Филм , Algous studioЖанр: биография, история, военный, драмаРежиссер: Антон Сиверс, Рауф КубаевАктеры: Амин Хуратов,   Варвара Комарова,   Арслан Мурзабеков,   Андрей Соколов,   Екатерина Гусева,   Фёдор Лавров,   Фархад Махмудов,   Василий Мичков,   Виталий Коваленко,   Даниил СтраховПеревод: Не требуется (Русский)Субтитры: Русские (hardsub на дагестанскую речь)Продолжительность: 01:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9E816BF0DF88D3E7EEB7E4615E15E34E7F47A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316419   (506717) от 25.07.2019
+
+Я не такой! Я не такая! (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Три подруги - Вера, Люба и Надя встречаются в загородном доме, чтобы отметить помолвку Нади, но во время празднования они узнают, что их любимые мужчины пользуются услугами одной и той же проститутки.
+И кажется, что женский идеальный мир разрушен навсегда. Отчаявшись, девушки решаются вызвать разлучницу на дом под видом клиенток, и девичник обретает совершенно неожиданный (   Читать дальше...   )Производство: Россия, Русская Фильм ГруппаЖанр: комедия, драмаРежиссер: Руслан ПаушуАктеры: Филипп Рейнхардт, Анна Чурина, Кристина Бабушкина, Рената Пиотровски, Анатолий Руденко, Иван Кокорин, Наталья Лесниковская, Тимур Боканча, Елена Драпеко, Валентина МазунинаПеревод: Не требуется - Русский (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E69C971C3DFFA76D910F8720F5002AB2DD0997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539372   (506408) от 26.08.2012
+
+Каникулы строгого режима (2009) BDRip [H.264/720p] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о том, как двое не самых молодых людей, Кольцов и Сумароков, волею судьбы оказались вожатыми в пионерском лагере в компании в меру энергичного руководства и не в меру энергичных детей. Все бы ничего, да только попали они туда прямо с арестантской шконки.
+Сначала Кольцов, будучи весьма уважаемым профессиональным сотрудником МВД, имеющий за плечами две поездки (   Читать дальше...   )Производство: Россия, Дирекция Кино, Buzz ProductionЖанр: драма, комедия, приключенияРежиссер: Игорь ЗайцевАктеры: Сергей Безруков, Дмитрий Дюжев, Алена Бабенко, Сабина Ахмедова, Владимир Меньшов, Алексей Кравченко, Станислав Лесной, Александр Лыков, Кирилл Плетнев, Роман Мадянов, Людмила Полякова, Михаил Богдасаров, Малхаз АбуладзеПродолжительность: 01:54:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539458   (506270) от 26.08.2012
 
 Большая ржака! (2012) DVD5
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Generation П (2011) BDRip [H.264/720p] [PR]
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3CE9FC10CD4647A509900E044E35D2DDB925654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542067   (499913) от 01.09.2012
-
-Розыгрыш (2008) [H.264] DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499913.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме рассказывается об учениках обычной московской школы, об их отношениях друг с другом и со своими учителями. Кульминационный момент — жестокий розыгрыш, которому подверг преподавательницу английского языка ученик по фамилии Комаров. В итоге Комаров наживает себе опасного врага — завуча, который хочет исключить хулигана из школы.Жанр: МелодрамаРежиссер: Андрей КудиненкоАктеры: Иван Алексеев (Noize MC), Дмитрий Дюжев, Дмитрий Харатьян, Евгений Дмитриев, Евдокия Германова, Ирина Купченко, Клавдия Коршунова, Мария Горбань, Сергей Юшкевич, Вера Зотова, Юрий КузнецовПродолжительность: 01:23:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C033800899D903888556E699B760094ED9D54D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317713   (499295) от 02.08.2019
-
-Как вызвать дьявола в домашних условиях (2016) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одиноко живущий, нигде не работающий Савелий занимает себя тем, что проводит разного рода ритуалы по вызову дьявола. В основе его ритуалов лежат сказки, детские страшилки, отрывки из случайно найденных книг. Но однажды, открыв для себя интернет, Савелий находит подробную инструкцию по вызову дьявола в домашних условиях. Савелий проводит ритуал, но на вызов является (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Тимур СадыковАктеры: Михаил Меркушин, Ярослав ХорошковСубтитры: ОтсутствуютПродолжительность: 00:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40359D079C5897EA03B3C40AE7D560066B5EA05C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542101   (499281) от 02.09.2012
-
-Ой, вы, гуси... (1991) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о жизни в русской глубинке без прикрас. Отснятый в естественной обстановке, с участием в большинстве своем непрофессиональных актеров, фильм вызывает неподдельное ощущение реальности.Жанр: ДрамаРежиссер: Лидия БоброваАктеры: Вячеслав Соболев, Юрий Бобров, Василий Фролов, Галина Волкова, Светлана Гайтан, Марина Кузнецова, Нина УсатоваСубтитры: отсутствуютПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484310   (499017) от 08.09.2015
-
-Не улетай, землянин! (1991) SatRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы раскрыть секреты воспитания детей на Земле, инопланетяне пытаются похитить молодого талантливого педагога. Но Марина, влюбленная в своего учителя, спасает его от неминуемого исчезновения.Жанр: Фантастическая комедияРежиссер: Вадим КостроменкоФормат: AVIПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507C80AFFFB270C6F4A598BEDADC0B415AAA75A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

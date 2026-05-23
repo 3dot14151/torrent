@@ -1,29 +1,3 @@
-###  Публикация: 931523   (511574) от 26.08.2015
-
-The Legend of Zelda: Twilight Princess (2006) [Wii] [NTSC] [Unofficial] [Ru/Multi]
-
->>Консольные Игры
->>Wii, GameCube
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда страну Hyrule окутывает зловещая тьма, юный фермер Линк опять становится героем поневоле. Когда Линк попадает в Сумеречное Царство, то принимает другое обличье - превращается в волка-оборотня. В сражениях с порождениями тьмы ему помогает загадочное существо с магическими способностями по имени Мидна. С Мидной все непросто: она коренной житель Сумеречного Царства (   Читать дальше...   )Тип издания: UnofficialРазработчик: Nintendo EADЖанр: Action, AdventureЯзык озвучки: AнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF08D8A0481B71D727EDBD2C4D82B39881121A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931453   (511550) от 26.08.2015
 
 Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
@@ -32,7 +6,7 @@ Doom 3 BFG Edition (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +32,7 @@ Tetris 99 (2019) [Switch] [EUR] 8.0.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +59,7 @@ SpongeBob HeroPants (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +85,7 @@ Cars Race-O-Rama (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +111,7 @@ Need for Speed Payback (2017) [PS4] [EUR] 5.05 [HEN] [License / 1.08 ] [Ru/Multi
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +163,7 @@ Days Gone / Жизнь после (2019) [PS4] [EUR] 9.00 [HEN] [License / 1.80 
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +189,7 @@ Aliens: Colonial Marines (2013) [PS3] [EUR] 4.31 [Cobra ODE / E3 ODE PRO ISO] [L
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +216,7 @@ Halo 4 (2012) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +243,7 @@ Call of Duty: WWII (2017) [PS4] [EUR] 7.00 [HEN] [License / 1.25] [Ru]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +269,7 @@ Shaun White Skateboarding (2010) [PS3] [USA] 3.42 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +295,7 @@ Dungeons & Dragons: Daggerdale (2011) [Xbox360] [RegionFree] [FreeBoot] [Unoffic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +321,7 @@ Sniper Elite 5: France (2022) [PS4] [USA] 5.05 [HEN] [License / 1.06 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +348,7 @@ Dead Island (2011) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru] | R.G.DSh
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +374,7 @@ Syberia / Сибирь (2002) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +400,7 @@ Call of Duty: Black Ops II + DLC (2012) [Xbox360] [RegionFree] [FreeBoot] [Unoff
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +426,7 @@ Weird West (2022) [PS4] [USA] 5.05 [HEN] [License / 1.11] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +452,7 @@ MotoGP 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +478,7 @@ James Cameron’s Avatar: The Game (2009) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +504,7 @@ Silent Hill HD Collection (2012) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +530,7 @@ Ben 10: Galactic Racing (2011) [PS3] [USA] 3.70 [Cobra ODE / E3 ODE PRO ISO] [Li
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +556,7 @@ Final Fantasy XIII (2009) [PS3] [ASIA] 3.21 [Unofficial] [Ru/Jp] | R.G. RED
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +582,7 @@ Kung Fu Panda (2008) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -637,7 +611,7 @@ Disney Universe Disney: Мир героев (2011) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -663,7 +637,7 @@ Syndicate [PS3] [RUS] [PAL] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,6 +649,32 @@ Syndicate [PS3] [RUS] [PAL] (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00D706D2EFF6F573418A4386BC6A826E9704848E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935109   (500121) от 07.09.2015
+
+G-Force: Миссия Дарвина (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+G-Force является трехмерным экшен-платформером, события которого основаны на фильме с одноименным названием. Выступив в роли секретного агента, морской свинки по имени Дарвин, вам вместе со специально подготовленным боевым отрядом предстоит отправиться на спасение мира от очередного злодея. Для борьбы с коварным врагом и преодоления различных трудностей, в вашем (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Eurocom, Keen GamesЖанр: Action / Adventure / 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD46B3CC2AE396570AD3B9387AD19F265EB8F51F
 ```
 
 https://mybot314.ru/tekegram_catalog/

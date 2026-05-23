@@ -1,3 +1,56 @@
+###  Публикация: 454674   (77231) от 19.02.2012
+
+Астерикс и Обеликс (Трилогия) / Asterix & Obelix (Trilogy) (1999, 2002, 2008) [1080p] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+50 лет до Рождества Христова. Вся Галлия под властью Римской Империи. Но не стоит огорчаться: одна деревня продолжает героическое сопротивление. Ведь ее жители уверены в собственной непобедимости.
+Уже несколько месяцев сердце Полюбвикса бьется только ради греческой принцессы Ирины. Но, увы, он не единственный претендент на ее руку. Большая политика предназначила (   Читать дальше...   )Жанр: Фэнтези, Комедия, Приключения,  СемейныйРежиссер: Фредерик Форестье, Тома ЛангманнАктеры: Жерар Депардье, Кловис Корнийяк, Бенуа Пульворде, Ален Делон, Ванесса Эсслер, Франк Дубоск, Хосе Гарсиа, Стефан Руссо, Жан-Пьер Кассель, Эли СемонПеревод: ДублированныйСубтитры: ОтсутствуютЯзык субтитров: РусскиеФормат: MKVПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444363   (73535) от 01.02.2012
+
+Зловещие мертвецы: Трилогия / The Evil Dead: Trilogy (1981-1992) [720p] BDRip
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+По воле случая Эш переносится в далекое прошлое. Вместе со своим автомобилем и двухстволкой он оказывается в 13 веке. В этом мрачном средневековье люди страдают от сил тьмы. Бедняга Эш был пойман добропорядочными гражданами и помещен в местную тюрьму. Он с трудом смог убедить судью, в том, что он вовсе не шпион из враждебного королевства. Он решает помочь людям в (   Читать дальше...   )Производство: СШАЖанр: Ужасы, Комедия, ФэнтезиРежиссер: Сэм РэймиАктеры: Брюс Кэмпбелл, Эмбет Дэвидц, Маркус Гилберт, Йен Эберкромби, Ричард Гроув, Тимоти Патрик Куилл, Майкл Эрл Рейд, Бриджит Фонда, Патриция Таллман, Тед РеймиПеревод: Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйСубтитры: Русские, Английские (SDH)Продолжительность: 01:20:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804473   (65651) от 29.06.2025
 
 Детство Горького / В людях / Мои университеты (1938-1939) WEBRip [H.264/1080p] [Трилогия]
@@ -6,7 +59,7 @@
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +589,7 @@ Zомбилэнд  / Zombieland (2009, 2019) BDRemux [H.264/1080p] [Дилоги
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -614,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -625,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F951D4FC90A87093ABE95FB73D1FC3B2502E7D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607271   (52552) от 22.06.2024
-
-Хеллбой: Дилогия / Hellboy Duology (2004-2008) BDRip [H.264/1080p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52552.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как древнее перемирие между человечеством и тайным миром было нарушено, на Земле вот-вот разверзнется ад. Безжалостный лидер, вхожий в оба мира, бросает вызов своей крови и пробуждает на свет неодолимую армию чудовищ.
-Настало время самому Хэллбою сразиться с беспощадным диктатором и его воинами. Вместе со своей пополняющей ряды командой «Бюро Паранормальных (   Читать дальше...   )Производство: Dark Horse EntertainmentЖанр: Боевик, Фэнтези, ПриключенияРежиссер: Гильермо Дель Торо / Guillermo del ToroАктеры: Рон Перлман Сэльма Блэр Даг Джонс Джон Александр Джеймс Додд Сет МакФарлейн Люк Госс Анна Уолтон Джефри Тэмбор Джон ХёртПеревод: Профессиональный |полное дублирование| + Профессиональный |многоголосый, закадровый| С.Р.И. КравецСубтитры: русские |полные, forced|, английские - srtПродолжительность: 01:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032EF1C7FD8C10570A02B575EEEEB28BA287DBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733255   (51454) от 01.07.2024
-
-Коготь тигра / Tiger Claws (1992-2000) BDRip [H.265/1080p] [10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейские Терек Ричардс (Джалал Мерхи) и Линда Мэстерсон (Синтия Ротрок) противостоят Ян Цзе (Боло Юнг) - мастеру легендарного и опаснейшего стиля боевых искусств, известного как "Коготь тигра".Производство: Канада, США / Film One Distributors, Film One Productions, Shapiro-Glickenhaus Entertainment, Film One, Annex EntertainmentЖанр: боевик, фэнтезиРежиссер: Келли Макин, Дж. Стивен МондерАктеры: Синтия Ротрок, Джалал Мерхи, Боло Йен, Ник Дибли, Онг Су Хань, Эван Лурье, Лорен Аведон, Картер ВонПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:32:25 / 01:28:45 / 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6972C4525E2F087BE7AD1385D688CD94534C31C
 ```
 
 https://mybot314.ru/tekegram_catalog/

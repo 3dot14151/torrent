@@ -1,3 +1,206 @@
+###  Публикация: 1628225   (199495) от 22.04.2023
+
+VA - В машине с музыкой Vol.331 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Эллаи  - Я Приеду (03:06)
+02. Ани Лорак  - На Мели (03:00)
+03. Дмитрий Колдун  - Приду Без Повода (03:09)
+04. Натали  - Будут Танцы (03:21)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1AC627BA9EFD9F1B7CACF58BC11B8CF40D3F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629493   (199219) от 26.04.2023
+
+VA - Дискотека 2023 Dance Club Vol. 219 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. Hypaton feat. David Guetta & La Bouche - Be My Lover (2023 Mix) (2:49)
+002. Wrigley - Dancin' (2:49)
+003. Minelli - Drinks On Mi (2:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A9E347E586A06D2DA19B0E39B7023AACC12C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629631   (199201) от 27.04.2023
+
+VA - Club&Dance Весенние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Benny Benassi - Satisfaction (Newtone Remix) (4:08)
+02. Rihanna x Ice x Nitrex x Nikita Nik - Don't Stop The Music (Dj De Maxwill Mash-Up) (3:35)
+03. Benassi Bros. Feat. Sandy - Hit My Heart (Den Exclusive Remix) Radio Edit 2021 (3:48)
+04. SURVIVOR x BON JOVI, Savin & DMC Mikael - Tiger Life (DJ Baur Mixshow) (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CEA325A5DE843847D6579E5EA34D254552BCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630359   (199125) от 30.04.2023
+
+VA - ЕвроХит Топ 40 Europa Plus 28.04.2023 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Tove Lo - Borderline (3:13)
+02. The Future X - This Kind Of Love (2:50)
+03. Maneskin feat. Tom Morello - Gossip (2:48)
+04. Tiesto - Lay Low (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9544A0016631628E9FA7206A1089D31D4AF93226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630438   (199052) от 30.04.2023
+
+VA - В машине с музыкой Vol.332 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Орбакайте - Алла Будет Петь (03:41)
+02. Jake Isaac Feat. & Jack Savoretti - When It Hurts (03:01)
+03. Laska - Не Отпускай Меня (03:14)
+04. Diplo Feat. & Sturgill Simpson & Dove Cameron - Use Me  (03:22)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEC633ADF4E55EA251ABF821466BA802E1351FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631159   (198971) от 04.05.2023
+
+VA - Music News vol.261 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+001. Estiva feat. Jess Ball - Carnal Emotion (04:43)
+ 002. AIHAN - Тонкая Нить (03:25)
+ 003. Akera - Звёзды (02:31)
+ 004. Akha - Аиша (02:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:30:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5243DE3C3191AA68C1CA0E9AA7A58FEAFB0D528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630949   (198934) от 03.05.2023
+
+VA - Music News vol.260 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+001. XYLO - Super Sex Mona Lisa (03:09)
+ 002. 4ETVERGOV - Детство (02:12)
+ 003. Addiction.sad - Останься Со Мной (03:06)
+ 004. A'DI - Фотки Шмотки (02:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712C78BF897A72967860FD77E7B3C786BA1F902E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637910   (197488) от 06.06.2023
 
 VA - Music News vol.269 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +209,7 @@ VA - Music News vol.269 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Dance Rising 3 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Лучшие рок баллады 20-го века Vol.2 (2023) [MP3|320 K
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Music News vol.268 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Музыка для машины Vol.25 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - ЕвроХит Топ 40 Europa Plus 09.06.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Remixes 2023 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - just hits 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Nu Disco Vol.3 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Club&Dance Летние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Tik Tok Треки выстрелили летом 2023 [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.07.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Summer Dance Hits 2023 [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Ремейки и каверы NNM 5 (2023) [MP3|320 Kbps] <Pop, Dance, Oth
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Музыка для машины Vol.34 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Музыка для машины Vol.36 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Сегодня на радио хиты FM Vol.13 (2023) [MP3|320 Kbps] <Po
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Дискотека 2023 Dance Club Vol. 220 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - ЕвроХит Топ 40 Europa Plus 18.08.2023 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -542,208 +745,6 @@ VA - ЕвроХит Топ 40 Europa Plus 18.08.2023 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8E3E420ABD5EBC2FD46C085F2C84BD2BC9C3CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654563   (193973) от 21.08.2023
-
-VA - 30(19) Новые Песни (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5УТРА, Alex Coffman - Прыгнула в Бумер (2:50)
-02. Adamant - Афк (3:05)
-03. Anna Asti & Alex Shu - Царица (Misha Plein & Mark Shady Vip Edit)Жанр: Pop, Dance, OtherПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7B420BA7969FB5AF7F48676B45105C1F06DCA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322236   (193761) от 25.08.2023
-
-VA - Понемногу отовсюду by Yuridar #K (1973-2020) Compilation Album [MP3|128-320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalandra - Borders
-02. Kalandra - Brave New World
-03. Kalandra - Concrete Landscapes
-04. Kalandra - Grizzly Man (Rockettothesky cover)(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CFA9D62EBE875CA9E5FC2BF9816614431D43F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828352   (193404) от 24.10.2025
-
-VA - Musical kaleidoscope part 59 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echønova - Relaxing and Soothing Melody
-02 - Giovanni Marradi - Solitude
-03 - Novi - A Shadow of You (Remix)
-04 - Giovanni Marradi - Because I Love You(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, AIПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D28781B0E7DC8A2DDD34BA109AAEC49BD83A5FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828745   (193402) от 24.10.2025
-
-VA - Anything and everything assorted part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, AI, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Hold Me Tonight
-02 - Jumanov - October
-03 - Mr Salama - Feel Your Love
-04 - Stive Morgan - Chicago Plus(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, AI, OtherПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCE753A8EDDAED00CAA0BE74BBF1E6FDFF14859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827776   (193287) от 23.10.2025
-
-VA - Anything and everything assorted part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Besso - Pulse
-02 - Azimov - Long Night
-03 - Elno - More Time
-04 - Mr Salama - Touch Me(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40EA42E7A76A39CF1501904D0F2FF8309AADFA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827774   (193286) от 23.10.2025
-
-VA - Anything and everything assorted part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Retrox - Whispers By the Shore
-02 - Dndm - Gray Night
-03 - Dova Music - Empty Heart
-04 - Umar Keyn - Like a Titanic(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93B5971232A0818E604E0FD91F9B0D835187D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827773   (193285) от 23.10.2025
-
-VA - Anything and everything assorted part 5 (2025) [MP3|320 Kbps] <Electronic, Vocal, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Davvi - I Loved You Once
-02 - Dova Music - Dream Without End
-03 - Rodle - Lost You
-04 - Dova Music - Love Love(   Читать дальше...   )Жанр: Electronic, Vocal, Dance, OtherПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48CF5D69AF76754382E20F0CC8F33873F5C33708
 ```
 
 https://mybot314.ru/tekegram_catalog/

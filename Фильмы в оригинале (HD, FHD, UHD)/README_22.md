@@ -1,3 +1,81 @@
+###  Публикация: 1017996   (732502) от 29.05.2016
+
+Пеле: Рождение легенды / Pele: Birth of a Legend (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Биографическая лента о самом знаменитом футболисте планеты. Создатели фильма сосредоточились на ранних годах Пеле, его взаимоотношениях с отцом. Особая роль отведена состоянию в бразильском обществе после катастрофического поражения от сборной Уругвая в 1950 году. Тогда мальчишка из бедных кварталов решил доказать, что с бразильским футболом не покончено, и его страна (   Читать дальше...   )Производство: США, Imagine Entertainment, Seine Pictures, Zohar InternationalЖанр: Драма, Биография, СпортРежиссер: Джефф Цимбалист, Майкл ЦимбалистАктеры: Винсент Д’Онофрио, Родриго Санторо, Диего Бонета, Колм Мини, Тоня Корнелисс, Сеу Жоржи, Кевин де Паула, Свен Холмберг, Андре Маттос, Сет Майклс...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15E5A9D5B74D43DCD7F14E6E194BAD975D627F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283930   (730592) от 19.02.2019
+
+Вход в никуда / Enter Nowhere (2011) BDRip [H.264/1080p] [EN / EN, RU Sub] [PR]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета фильма — несколько человек, оказавшихся волей случая в безлюдном сверхъестественном лесу. Мистические обстоятельства приводят героев в пустующую сторожку, где их судьбы переплетаются самым жестоким образом.Производство: США, Caliber Media CompanyЖанр: Триллер, Детектив, ФантастикаРежиссер: Джек ХеллерАктеры: Кэтрин Уотерстон, Скотт Иствуд, Сара Пэкстон, Шон Сайпос, Кристофер Денэм, Джесси Перез, Лей Лезарк, Вик ФиналборгоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские (отдельно), Английские (форсированные, полные (отдельно))Продолжительность: 01:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386447E7CFEBBAB18ACCFE7B7F87871D5D14939A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530042   (730517) от 09.02.2022
+
+King’s Man: Начало / The King's Man (2021) WEB-DL [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Kingsman — организация супершпионов, действующая на благо человечества вдали от любопытных глаз. И один из первых и самых талантливых оперативников в истории организации — Конрад, молодой и наглый сын герцога Оксфордского. Как и многие его друзья, он мечтал служить на благо Англии, но в итоге оказался втянут в тайный мир шпионов и убийц.Производство: Великобритания, США / 20th Century Studios, Marv Films, Marv StudiosЖанр: боевик, триллер, приключенияРежиссер: Мэттью ВонАктеры: Харрис Дикинсон, Даниэль Брюль, Рэйф Файнс, Аарон Тейлор-Джонсон, Рис Иванс, Джемма Артертон, Мэттью Гуд, Том Холландер, Бранка Катич, Стэнли ТуччиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EFFCF14F26C552C7D20479595D61C578D5B99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530069   (730466) от 09.02.2022
 
 King’s Man: Начало / The King's Man (2021) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
@@ -6,7 +84,7 @@ King’s Man: Начало / The King's Man (2021) WEB-DL [H.264/1080p] [EN / RU
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3328D49EEB1625CA466C2BD65BD29A45F5A566A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024524   (718042) от 08.06.2016
-
-Моя большая греческая свадьба 2 / My Big Fat Greek Wedding 2  (2016) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718042.jpg" />
-</div>
-
-
-###  Подробнее
-
-У главных героев первого фильма, Тулы Портокалос и Йена Миллера, подросла дочь, которая ждет не дождется уйти из-под крыла родителей.
-Тем временем, оказывается, что родители Тулы не заключили брак официально, и им придется устроить свадьбу.Производство: США, Канада, Gold Circle Films, HBO Films, Playtone, Universal PicturesЖанр: мелодрама, комедияРежиссер: Кирк ДжонсАктеры: Ниа Вардалос, Джон Корбетт, Майкл Константин, Лэйни Казан, Андреа Мартин, Джиа Каридес, Джои Фатоне, Елена Кампурис, Алекс Вулф, Луис Мэндилор, Бесс Майслер, Брюс ГрэйПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B8CBD6EF664BB7C9C4E28E4DBB7498FAD30BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024256   (717629) от 08.06.2016
-
-Рег / Reg (2016) HDTV [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717629.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2003 году 20-летний солдат Том Кейс и пять других были расстреляны, попав в засаду в Ираке. Его родители, бывший фельдшер Рег и мать Салли,  были потрясены, узнав, что Том и его коллеги были недостаточно вооружены и оснащены. Рег, испытывает глубокое отвращение, к решениям Тони Блэра, о посылке британских содат в ненужную и, возможно, незаконную войну. Будучи убежденным, (   Читать дальше...   )Производство: Великобритания, LA ProductionsЖанр: ДрамаРежиссер: Дэвид БлейрАктеры: Тим Рот, Чарли Энсон, Келва Баррет, Тим Бентинг ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CB0AE8828E8341144907F0E0AA909600C662C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218766   (717297) от 12.04.2018
-
-Охота на воров / Den of Thieves (2018) WEBRip [H.264/720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой Ник — начальник элитного подразделения полиции Лос-Анджелеса — ежедневно доказывает, что его команда более крутая, чем те, на кого они охотятся. Когда коп узнает, что легендарный и неуловимый вор планирует дерзкое ограбление Федерального резервного банка США, то он решает помешать этому любым способом. И играть по правилам он не привык.Производство: США, Atmosphere Entertainment MM, Diamond Film Productions, G-BASEЖанр: Боевик, Криминал, Драма, ТриллерРежиссер: Кристиан ГьюдгэстАктеры: Джерард Батлер, Пабло Шрайбер, О’Ши Джексон мл., Фифти Сент, Медоу Уильямс, Морис Комт, Брайан Ван Холт, Ивэн Джонс, Мо, Каиви Лайман ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, (full)Продолжительность: 02:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80780D616A183D55609D6F715EDE02FC5D4E2DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

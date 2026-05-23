@@ -1,3 +1,107 @@
+###  Публикация: 539630   (212613) от 13.07.2022
+
+Ищу невесту без приданого (2003) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В обычном провинциальном городе живут две подруги. Совершенно не схожие ни внешне, ни характерами: «лёд и пламень». И всё — таки с похожими судьбами, потому как оказались в одной грустной категории, незамужних.Жанр: Мелодрама, КомедияРежиссер: Аким СалбиевАктеры: Екатерина Гусева, Амалия Гольданская, Дмитрий Орлов,Евгений Стычкин, Людмила Касаткина, Александр Мохов, Дарья КалмыковаСубтитры: отсутствуютПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FAB5B031ABF51820BC308A9B2D2D42BABB1C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830955   (212600) от 28.10.2025
+
+Выходи за меня замуж! (2025) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Нина выходит на свободу после трёх лет заключения. Незнакомый мужчина поджидает её у ворот колонии и предлагает вступить в фиктивный брак.Производство: Россия / ЭФ ДистрибьюшнЖанр: детективРежиссер: Егор БариновАктеры: Евдокия Лаврухина, Дмитрий Мальцев, Ксения Назарова, Ольга Никольская, Руслан Булатов, Сергей Масленников, Денис Ткачев, Юлия Конюхова, Илья Фоменко, Александра СамойловаСубтитры: РусскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31207717B75456852DE106E2FB08FB69FFD4BA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563330   (212597) от 13.07.2022
+
+Иван Денисович  (2021) BDRemux [H.264/1080p] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Иван Шухов, рядовой солдат, по законам военного времени после немецкого плена оказывается в родной стране заключенным Щ-854. Среди снегов вместе с другими зеками Шухов строит будущий завод-гигант космической промышленности. Несмотря на несправедливость, голод, унижение и страх, даже в каторжном лагере Иван Денисович сохраняет удивительные свойства русского характера. (   Читать дальше...   )Производство: Россия / Телеканал «РОССИЯ 1», ВераЖанр: ДрамаРежиссер: Глеб ПанфиловАктеры: Филипп Янковский, Артур Бесчастный, Александр Караваев, Степан Абрамов, Игорь Савочкин, Сергей Карякин, Денис Карасёв, Андрей Фролов, Михаил Хмуров, Владимир ЕреминПеревод: Не требуетсяСубтитры: Русские (Full, SDH), Немецкие (Full)Продолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A67E615A53E1F7748FEECCA506185A5C949C010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 535945   (212581) от 14.07.2022
+
+Райское яблочко (1998) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Притчевая история одного карьерного возвышения. В закрытый пансионат для высшего руководства на должность горничной принимают новенькую — смазливую блондинку Асю, победительницу конкурса красоты среди буфетчиц. Трудовым коллективом этой благополучной обители ловко управляет хозяйка пансионата. Сначала, как водится, Асю «проверяют» и, признав за свою, расслабляются. (   Читать дальше...   )Жанр: КомедияРежиссер: Роман ЕршовАктеры: Олег Янковский, Виктория Туникайте, Ольга Спиридонова, Ирина Пономарева, Анатолий Кузнецов, Евгений Моргунов, Ольга Волкова, Сергей Никоненко, Наталья ГундареваСубтитры: отсутствуютПродолжительность: 01:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDED13448F9747A7F4D7F29907DC375D10E2C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 154925   (212568) от 28.10.2025
 
 Волчок (2009) DVDRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_212566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -452,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04A8808C67E2FBEDAADB3DB4D1D0B438E1FC733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567676   (211121) от 04.08.2022
-
-Селфимания (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие романтические отношения обходятся сейчас без селфи?! Будь ты известный блоггер с многомиллионной аудиторией из России, молодая семейная пара из Австрии или итальянская пенсионерка — у селфи нет национальности.Производство: Россия, Италия, Австрия, США / Ellly Films, Ливандия Энтертейнмент, Odyssey Cinema Group, Stemo ProductionЖанр: Комедия, семейныйРежиссер: Франческо Коланджело, Элизабетта Пеллини, Элли Зенгер-Вайс ...Актеры: Катерина Мурино, Иева Андреевайте, Алексей Воробьёв, Джессика Белкин, Олег Тактаров, Милена Вукотич, Андреа Ронкато, Бьянка Наппи, Катарина Холубек, Филипп КарнерПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3988424E00FED1B1538D914C71CCF62E78E565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601848   (211052) от 02.01.2023
-
-Кадриль (1999) HDTV [H.264/1080i]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадриль - танец с переменой партнеров… Русский народный вариант «любви вчетвером». В далекой прибайкальской деревушке живут две семьи: Коля Звягинцев с женой Лидой и его сосед Саня Арефьев с женой Валей. Две соседки решили в сердцах «махнуться» своими непутевыми, подвыпившими мужиками...Производство: Россия, МосфильмЖанр: комедияРежиссер: Виктор ТитовАктеры: Станислав Любшин, Любовь Полищук, Олег Табаков, Валентина Теличкина, Нина УсатоваСубтитры: отсутствуютПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FB7CFAE4958CEB68F8147C52222B94548A4863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640948   (211016) от 20.06.2023
-
-Надо мною солнце не садится (2019) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поссорившись с отцом, Алтан приезжает работать на Крайний Север. Ему предстоит провести целый месяц в одиночестве на безлюдном острове. Но вскоре у Алтана появляется сосед — старик Байбал. Он приехал сюда доживать свои последние дни и просит Алтана похоронить его рядом с могилой жены. Однажды парень узнаёт, что у Байбала в молодости пропала дочь. Он уговаривает старика (   Читать дальше...   )Производство: Россия / СахафильмЖанр: Драма, комедияРежиссер: Любовь БорисоваАктеры: Иван Константинов, Степан Петров, Анатолий Кириллин, Иннокентий Луковцев, Елена Маркова, Вероника Максимова, Спартак ЛарионовПродолжительность: 01:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96D851321892B946D8664A998E1CAEF4CAC9A42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602055   (210889) от 04.01.2023
-
-Мертвец (2020) HDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чудак Мартин говорит, что он мёртв. Он считает, что утонул при наводнении некоторое время назад. Остальные смеются над ним, и только девушка Мэри проявляет к нему заботу. Но даже и она не верит в его смерть и хочет помочь Мартину стать нормальным. Мартин пытается понять, что мертво, а что живо, и почему он всё ещё бродит в этом мире.Производство: Россия, Липецкая киностудияЖанр: психологическая драмаРежиссер: Эдуард КовзанАктеры: Эмин Мамедов, Светлана Попова, Евгений Кузнецов, Михаил Труфанов, Егор Злобин, Евгений Плесеинов, Георгий Щуров, Андрей Литвинов, Лилия Красных, Светлана ПерекинаПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F61E2B110487B4195EA5AE71C2CAEDB8A3D51A
 ```
 
 https://mybot314.ru/tekegram_catalog/

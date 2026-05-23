@@ -1,3 +1,55 @@
+###  Публикация: 1224388   (665946) от 10.05.2018
+
+BBC. Восхождение животных: Триумф позвоночных / Rise of Animals: Triumph of the Vertebrates (2013) BDRip [H.264/1080p] (Серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Аттенборо отправляется в эпическое путешествие длиной 500 миллионов лет и исследует невероятный скачок в развитии позвоночных, породивший самых крупных, быстрых и умных существ, когда-либо живших на планете. Сначала он отправляется в Китай, страну, в которой он давно мечтал побывать, чтобы больше узнать о животных древности. Именно они считаются ключевыми недостающими (   Читать дальше...   )Производство: Великобритания, BBC, Atlantic ProductionsЖанр: Документальный, научно-познавательный, палеонтологияРежиссер: Дэвид ЛиПеревод: Одноголосый закадровый, профессиональныйСубтитры: Русские, АнглийскиеПродолжительность: 2 x ~00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6917ED7BC907A4164406326C062D99A055303A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511882   (665929) от 17.06.2012
+
+Animal Planet. Кошек не любить нельзя [3 серия] / Must love cats (2010) [H.264/1080p-LQ] HDTV
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к невиданным кошачьим приключениям в сериале «Кошек не любить нельзя»! Ее ведущий, музыкант Джон Фултон, большой любитель кошек, приглашает совершить путешествие по удивительному миру пушистых хвостатых созданий. Из этого сериала вы узнаете о кошках много удивительного — например, слышит ли кошка с четырьмя ушами лучше, чем ее обыкновенные сородичи. Мы также посетим удивительный город во Флориде, выстроенный исключительно для кошек!Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EF2EE688036161E4DFC9B82FEED694F56739EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512063   (665928) от 17.06.2012
 
 Animal Planet. Кошек не любить нельзя [5 серия] / Must love cats (2010) [H.264/1080p-LQ] HDTV
@@ -6,7 +58,7 @@ Animal Planet. Кошек не любить нельзя [5 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Animal Planet. Кошек не любить нельзя [4 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NG: Секс в каменном веке / Sex in the Stone Age (2011) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Animal Planet. Кошек не любить нельзя [6 серия] / Must l
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NG: Начало (Происхождение: Путешествие челов�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ NGW: Неудачи хищников / Predator Fails (2015) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Animal Planet. Кошек не любить нельзя [6 серий из 6] /
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ BBC: Horizon. Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ NG: Скрытый мир Амазонки / Amazon Underworld (2016) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ BBC: Материалы и факты. Металлы / The Secret World of Mate
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ BBC: Первобытные поселенцы Америки / Traking the Firs
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ NG: Секретные материалы древности. Великий п�
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Discovery: Северное море (2 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Discovery: Северное море (3 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Discovery: Северное море (1 серия) / The North Sea (2009) SATRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Discovery. Апокалипсис 2012: Откровения / Maya 2012 Prophec
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Discovery. Как устроена Вселенная. Есть ли жизнь 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Viasat Nature: BBC: Экспедиция в Новую Гвинею / Expedition
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Discovery: Монстры механики. Разрушители и круши
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Discovery: Монстры механики. Разрушители и круши
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E81E053B79F38A0C5A3906B623DD7FD5E33313E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903692   (657770) от 31.05.2015
-
-Discovery: Через магию к звёздам / The Pop Illusionist (El Mago Pop)  (2015.05.24) HDTVRip (серия 1)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657770.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что пойдет молодой и талантливый иллюзионист, чтобы встретиться со звездами поп-культуры? Разумеется, он выкинет какой-нибудь фокус! Антонио Диас — победитель Национального конкурса иллюзионистов Испании — очень надеется, что его мастерство поможет ему исполнить мечту и увидеть кого-нибудь из своих звёздных кумиров. В его арсенале нет надоевших цилиндров и кроликов (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, путешествия, фокусыРежиссер: Джоан ХильПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D80D9E29F95E29B8834EF31E8BFFB736E9DE58B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514749   (657719) от 24.06.2012
-
-Discovery: Монстры механики. Искусственные монстры / What a Tool. Annihilators (2010) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они обшарили всю землю в поисках самых грандиозных агрегатов. И нашли их. Этот фильм рассказывает про монстров машиностроения глазами самого инструмента и глазами людей, которые работают на них, раскрывая историю гигантов, их необходимость в повседневной жизни, и непревзойденную силу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C87F971272D68FBD7FF9CC66D29D024A213540C
 ```
 
 https://mybot314.ru/tekegram_catalog/

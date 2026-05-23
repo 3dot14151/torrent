@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1870259   (1069230) от 
+
+CrossCode (2018) [Ru/Multi] (1.4.2-4/dlc) Repack Let'sРlay [Complete Edition]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Эта игра в жанре экшен-RPG с 2D-графикой сразу вас удивит. CrossCode - это 16-битная графика в стиле SNES, потрясающая физика, динамичная система боя, увлекательные загадки и захватывающая фантастическая история. CrossCode - это процесс! Мы взяли лучшее от двух популярных жанров, нашли идеальный баланс и создали отличную игру. Вот, что такое CrossCode.Тип издания: RepackРазработчик: Radical Fish GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CA90C60653EF8B5C56998101E17C9988ED513B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868941   (1067945) от 03.05.2026
 
 Kamikaze Lassplanes (2024) [Multi] (1.1.0) License GOG
@@ -7,7 +33,7 @@ Kamikaze Lassplanes (2024) [Multi] (1.1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Temtem: Swarm (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +85,7 @@ Biped 2 (2025) [Ru/Multi] (2.0) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.2.1.0_476053/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Mortal Kombat 11 (2019) [Ru/Multi] (0.384-34-CL237394/dlc) Repack dixen18 [Ultim
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Dragon Ball FighterZ (2018) [Ru/Multi] (1.42/dlc) Scene Rune [Legendary Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +189,7 @@ S.E.M.I.: Side Effects May Include... (2025) [Ru/Multi] (1.0.ebcf741ea) Repack F
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +215,7 @@ Hoverflow (2021) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Big Hops (2026) [Ru/Multi] (21207) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Boat Together (2025) [Ru/Multi] (1.2.2) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -267,7 +293,7 @@ FRONT MISSION 3 Remake (2026) [Multi] (0.0.13) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +319,7 @@ Gatekeeper (2024) [Ru/Multi] (1.2.0.00/dlc) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +345,7 @@ Harry Potter - Anthology / Гарри Поттер - Антология (2001-20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -345,7 +371,7 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.8.0-118300/dlc) Repack Let's
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +397,7 @@ Brotato (2022) [Ru/Multi] (1.1.14.3/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +423,7 @@ Driftwood (2023) [Ru/Multi] (1.0.6-h1) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +449,7 @@ Bud Spencer & Terence Hill - Slaps And Beans (2017) [Ru/Multi] (1.02) Repack Let
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +475,7 @@ Bud Spencer & Terence Hill - Slaps And Beans 2 (2023) [Ru/Multi] (1.2.2024011511
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +501,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.8.139834.0/dlc) Repack FitGirl [C
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +527,7 @@ Donna: The Canine Quest (2025) [En] (1.0.0/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +553,7 @@ Sky Force Reloaded (2017) [Ru/Multi] (build 3397294) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +579,7 @@ Cozy Caravan (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +605,7 @@ SpongeBob SquarePants: Titans of the Tide (2025) [Ru/Multi] (1.3.0.0/dlc) Repack
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +631,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.19.1031/dlc) Repack Necros [The One Who 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -631,7 +657,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -642,32 +668,6 @@ Cult of the Lamb (2022) [Ru/Multi] (1.5.18.1029/dlc) Repack Wanterlude [The One 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B920A2E1126B6F9040B52051C01F66B028434EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849867   (1053917) от 25.01.2026
-
-Cult of the Lamb (2022) [Ru/Multi] (1.5.15.979/dlc) Repack Pioneer [Pilgrim Edition]
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053917.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Cult of the Lamb игрок окажется в роли одержимого ягненка, спасенного от гибели жутким незнакомцем. Чтобы отплатить долг спасителю, вам придется найти ему верных последователей. Заложите основы собственного культа в землях лжепророков и совершайте вылазки в разнообразные таинственные регионы, создайте преданное сообщество лесных почитателей и несите свое Слово, (   Читать дальше...   )Тип издания: RepackРазработчик: Massive MonsterЖанр: Экшны, Приключение, МенеджментЯзык субтитров: Русский, Английский Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478EE7C5764589FA459AEBE818C07483DEC122A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

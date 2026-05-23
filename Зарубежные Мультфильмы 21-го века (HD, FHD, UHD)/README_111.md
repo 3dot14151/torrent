@@ -1,3 +1,81 @@
+###  Публикация: 854320   (151179) от 28.12.2014
+
+Семейка монстров / The Boxtrolls (2014) BDRip [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ему не повезло родиться в роскошном замке. Вместе с семейкой забавных монстров юноша поселился прямо под мостовой. Изысканные костюмы ему заменила обычная коробка. Зато каждую ночь он мог разгуливать по темным улицам в поисках новых приключений. Но однажды он встретил очаровательную девчушку из высшего общества — и мир вокруг изменился навсегда.Жанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Грэхэм Эннэйбл, Энтони СтаккиПерсонажи: Бен Кингсли,  Джаред Харрис,  Ник Фрост,  Ричард Айоади,  Трэйси Морган,  Ди Брэдли Бейкер,  Стивен Блум,  Ника Футтерман,  Пэт Фрэли,  Фред ТатаскьорПеревод: Дублированный (iTunes)Язык субтитров: Русский (форсированные), Английский (полные)Продолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC7A557BAA5503FD0473D680123BB0ADBCBC5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194931   (151116) от 27.12.2017
+
+МиниФорс. Новые герои / MiniForce: New Heroes Rise (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Приквел популярного сериала, повествующий  о создании суперкоманды Минифорс. Члены команды – очаровательные зверушки-пушистики, но за их милой внешностью скрываются настоящие отважные воины. Доктор Джереми из лаборатории Минифорс исследует «эллиниум» – неизвестное вещество, содержащее могучую силу. Зевс, капитан Армии Ящериц, рассматривает эллиниум с целью создания (   Читать дальше...   )Производство: Южная КореяЖанр: Фантастика, Приключение, Компьютерная анимацияРежиссер: Ли Ён-джунПеревод: Дублированный (CLS MЕDIA)Субтитры: ОтсутствуютПродолжительность: 01:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A593E237B1F07E9A3B63E4EF575B2FFA5E01D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677403   (150605) от 17.11.2023
+
+Мармадюк / Marmaduke (2022) WEB-DL [H.264/1080p] [UKR, EN / EN, Multi Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Легендарный кинолог пытается сделать из недисциплинированного Мармадюка первого немецкого дога, выигравшего чемпионат мира среди собак.Производство: США / Andrews McMeel Entertainment, Legacy Classics, One Cool Animation, StoryBerryЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Марк А.З. Диппе, Ли Ён-ги, Фил НиббелинкАктеры: Пит Дэвидсон, Дж.К. Симмонс, Дэвид Кокнер, Мэри Харт, Джули Натансон, Терри Дуглас, Эрин Фицджералд, Стефен Стэнтон, Брайан Халл, Сумали МонтаноПеревод: Дублированный (Cinemaker)Язык озвучки: украинский, английскийСубтитры: английские (full, SDH), арабские, чешские и др.Продолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0E0FC36986CD1CAC1F59E5ABBD7D999D3A9914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677355   (150603) от 17.11.2023
 
 Форсажики / Kong long fei che / Crazy Racing (2021) WEBRip [H.264/1080p]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:988702981E41DA27160592D6E4C844B4B1174311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347981   (146877) от 25.12.2019
-
-Мегамозг / Megamind (2010) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегамозг — самый гениальный и самый неудачливый злодей в мире. Вот уже много лет он пытается покорить Метро-Сити самыми разнообразными способами. Но каждая такая попытка кончается провалом по вине супергероя по имени Метро-Мэн. Но злодей убивает супергероя, и внезапно Мегамозг лишается цели в жизни. Суперзлодей без супергероя.Производство: США / DreamWorks Animation, Pacific Data Images (PDI), Red Hour FilmsЖанр: Рисованная анимацияРежиссер: Том МакГратПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), украинские (форсированные, полные), английские (полные, SDH)Продолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6A8D7533FA18961C09534A5F4612932B678611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272019   (146392) от 25.12.2018
-
-My Little Pony: Наилучший подарок / My Little Pony: Best Gift Ever (2018) WEB-DL [H.264/720p-LQ] [UKR, ENG / ENG Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приближается Праздник Огня, пони собираются вместе и готовятся праздновать, но планы Твайлайт меняются через внезапный визит брата с семьей. Чтобы предотвратить беспорядка, Твайлайт и друзья объединяют свои усилия, чтобы найти друг другу лучший подарок.Производство: США, Канада, Hasbro StudiosЖанр: ДетскийРежиссер: Денни Лу, Майк МаерПеревод: ОтсутствуетОзвучка / Автор перевода: ТК ПлюсПлюсЯзык озвучки: украинский, английскийСубтитры: английскиеПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEF7E9A20AA91C3D6E94C10EF7F93000958FEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519770   (146300) от 25.12.2021
-
-Неисправимый Рон / Ron's Gone Wrong (2021) BDRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146300.jpg" />
-</div>
-
-
-###  Подробнее
-
-У любого ребенка должен быть друг. Настоящий, а не какой-то там домашний питомец. Таким лучшим другом может стать прекрасный робот, умеющий двигаться, говорить, но главное — подключенный к интернету, и помогающий своему хозяину делать публикации в соцсетях и узнавать о всех последних тенденциях, поддерживать связь с одноклассниками и быть в курсе событий. Такие есть (   Читать дальше...   )Производство: США, Великобритания, Канада / 20th Century Fox Animation, 20th Century StudiosЖанр: мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Сара Смит, Жан-Филипп Вине, Октавио Е. РодригесАктеры: Джек Дилан Грейзер, Зак Галифианакис, Эд Хелмс, Оливия Колман, Роб Делани, Джастис Смит, Кайли Кэнтралл, Рикардо Уртадо, Каллен МакКарти, Ава Морс, Маркус Скрибнер, Пьер Бувье, Томас Барбаска, Барнс Кортни , Сара МиллерПеревод: Дублированный (Невафильм)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47DC79B6A28669DEE7A17CD7DDDAAC98B407D12B
 ```
 
 https://mybot314.ru/tekegram_catalog/

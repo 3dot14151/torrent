@@ -1,3 +1,112 @@
+###  Публикация: 1380422   (833311) от 03.05.2020
+
+Б.Н. Флоря и др. | Воссоединение Киевской митрополии с Русской Православной Церковью. 1676-1686 гг. Исследования и документы (2019) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой исчерпывающую выборку документов из российских архивов за 1676—1686 гг. по теме воссоединения Киевской митрополии с Русской Церковью. Публикуемые тексты тщательно изучены и проанализированы ведущими российскими учёными, по мере необходимости снабжены научным комментарием и — где это требуется — новыми переводами на современный (   Читать дальше...   )Жанр: Православие. ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B46593AE8F6BD70F301A1868B93499124CD952E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380922   (831578) от 04.05.2020
+
+Архимандрит Андрей (Конанос) | Источник радости. Беседы о Церкви и священстве (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В книге известного греческого проповедника архимандрита Андрея (Конаноса) «Источник радости» собраны беседы о Церкви и священстве, о том, как относиться к таинствам, о Божественной Литургии и её значении в жизни каждого человека.
+
+«Наше спасение очень близко, рядом с нашим домом, и ехать никуда не надо. Для этого нужно только одно чудо: чтобы Господь коснулся нашей (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222BA9CDE01DF69D7DC00ED24252A3C99E8D941F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502096   (830007) от 13.10.2021
+
+Дмитрий Орехов | Святые источники России (2000) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге — третьей в серии о святынях России — впервые сделана попытка собрать и обобщить сведения о святых источниках нашего Отечества. Автор рассказывает об истории почитания источников на Руси, о гонениях на них в советское время и об удивительных чудесах исцеления, которые они и по сей день дарят страждущим.Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9771AFC0C1049972FCBCE577F2A30A8C10B7C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502081   (830002) от 13.10.2021
+
+День (изд.) | Молитвы о помощи заключённым (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Издание содержит молитвы о помощи заключённым ко Господу, Ангелу-Хранителю, Пресвятой Богородице, Святым Угодникам Божиим.
+
+Молитва о заключённых в темницах
+Господи Иисусе Христе Боже наш, святаго апостола Твоего Петра от уз и темницы без всякаго вреда свободивый, приими, смиренно молим Ти ся, жертву сию милостивно во оставление грехов раба Твоего (имя) в темницу (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4A834FD18257D7CB4948F4282DE6347CB86C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502385   (828400) от 14.10.2021
 
 Сергей Милов (сост.) | Азы Православия. В помощь пришедшим к вере (2017) [PDF, DJVU]
@@ -6,7 +115,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_828061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -188,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -214,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -240,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -374,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -400,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -426,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -452,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -480,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -506,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -559,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -570,111 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB3DE8A66F4A07E67872F2D588513412AB3ADB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007089   (823124) от 14.04.2016
-
-И.М. Концевич | Истоки душевной катастрофы Л.Н.Толстого (1960) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823124.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Он отверг Церковь, ибо отрицал человека. Он хотел остаться наедине со здравым смыслом... Гордость и самоуничижение странно смыкаются в этом нигилизме от здравого смысла. И даже такой наблюдатель, как Горький, сумел за этим "злейшим нигилизмом" распознать и различить "бесконечное, ничем не устранимое отчаяние и одиночество"...(Прот.Проф.Флоровский). (   Читать дальше...   )Жанр: Монография, историяФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A89EF22BE26CF233A9B31BC422232F5E8F02483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116688   (822990) от 20.03.2017
-
-Валентина Николаевна Кузнецова | Письмо христианам Рима апостола Павла. Комментарий (2013) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Письмо апостола Павла христианам Рима – самое важное из его эпистолярного наследия. Оно оказало огромное влияние на христианскую мысль и богословие. Апостол изложил в нем свои самые заветные мысли о любви и верности Бога, даровавшего всему человечеству прощение и спасение за веру в Иисуса Христа, а не за соблюдения разного рода ритуальных требований, которые Павел (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C110D1EB11D227072CDCA7EB2FCD8D79FA64FCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690316   (822892) от 20.03.2017
-
-А. В. Бармин | Полемика и схизма (2007) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822892.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей работе рассматриваются все греко-латинские полемические сочинения IX-XII вв. в их взаимосвязи и в отношении к церковному и политическому развитию того времени.
- Книга не содержит в себе богословского разбора и оценки содержащихся в них идей. Задачей нынешнего исследования было дать общую картину развития религиозных споров IX-XII вв. Для этого необходимо (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2553051F21BB9B6A0B9F4641A8FB2548EDA9E086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655236   (821906) от 12.05.2013
-
-Роберт Френсис Тафт | Анамнез - не амнезия. Проблема "униатства" и "исцеление памяти" (2006) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы правильно понять «униатство» и его отрицательный образ, нужно рассмотреть характер воссоединений XVI в. и позднейшего времени, а также понять природу Восточных Католических церквей, возникших в результате этих процессов. Несмотря на намерения творцов уний, они не были, разве что в формальном богословском смысле, восстановлением общения, которое существовало (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E065809B83B7A08CEE6AEFB74BC7A57F576B1162
 ```
 
 https://mybot314.ru/tekegram_catalog/

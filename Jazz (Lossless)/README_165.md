@@ -1,3 +1,76 @@
+###  Публикация: 539828   (504850) от 28.08.2012
+
+Larry Coryell - 2 альбома (1984 & 2006) [FLAC / WavPack|Lossless]<Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. No More Booze Minor Blues [08:29]
+02. Intro to Tracey [01:31]
+03. Tracey [07:37]
+04. Gimme One REason/Rock Me Baby [04:38]
+05. Body & Soul [08:28]
+06. Intro to Straight No Chaser [00:35]
+07. Straight No Chaser [08:20]
+08. Denver in April [05:06]
+09. The Dragon's Grate [08:15]
+10. Not Exactly Like BB [07:18]Жанр: Jazz, InstrumentalПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155C77A0D90C721DAB4FCDE1061D91F7495937A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539499   (504744) от 28.08.2012
+
+Abraham Laboriel & Friends- Live in Switzerland (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Give Your Love  [07:31]
+02. Abe's Intro  [00:31]
+03. Waterwings  [10:05]
+04. Paul's Intro  [00:16]
+05. On Eagle's Wings  [07:00]
+06. Abe's Intro  [02:52]
+07. Guidum  [10:53]
+08. Abe's Intro  [00:48]
+09. Dios Te Bendiga  [08:47]
+10. Abe's Intro  [00:46](   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:16
+
+Абрахам Лабориэль ( Jul 17, 1947 in Mexico City, Mexico ) - джазовый басист, популярный сессионный музыкант.
+Участвовал в записи более 4000 композиций и саундтреков. Основатель групп Friendship и Koinonia. Отец барабанщика Abe Laboriel Jr. и композитора Mateo Laboriel. Выпускник Berklee School of Music. Сотрудничал с Donald Fagen, Lee Ritenour, Larry Carlton, Dave Grusin, Andy Pratt, Stevie Wonder, Barbra Streisand, Al Jarreau, Billy Cobham, Dolly Parton, Elton John, Ray Charles, Madonna, Paul Simon и многими другими.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539480   (504726) от 28.08.2012
 
 VA - Kuschel Jazz vol. 7 & 8 (2010-2011) 2 x 2CD[FLAC|Lossless]<Jazz>
@@ -6,7 +79,7 @@ VA - Kuschel Jazz vol. 7 & 8 (2010-2011) 2 x 2CD[FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +114,7 @@ Essiet Okon Essiet - Shona (2014) /Space Time Records/ [FLAC|tracks+.cue]<Crosso
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +143,7 @@ Donald Byrd - With Strings & Byrd Blows On Beacon Hill (1956/1959) /2013, Phoeni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -99,7 +172,7 @@ Shorty Rogers & The Giants - You Shorty, Me Tarzan! (1956-1959) /2010, Giant Ste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +201,7 @@ Terry Gibbs - The Exciting Terry Gibbs Big Band + Swing Is Here! (1960/1961) /20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -157,7 +230,7 @@ Dinah Shore - 36 All-Time Greatest Hits (1940-e - 1960-e) 3CD, 1999, BMG [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -186,7 +259,7 @@ Gene Ammons - Groove Blues & The Big Sound (1958) 2СD, 2003, Азбука Зв�
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +288,7 @@ Taylor Cook - The Cook Book (2015) [FLAC|tracks+.cue]<Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +317,7 @@ Dominique Magloire - Travelin' Light With Billie (2015) [FLAC|tracks|WEB-DL]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +346,7 @@ Ethel Ennis - If Women Ruled The World (1998) /Savoy Jazz/[FLAC|tracks+.cue]<Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +375,7 @@ Anat Cohen - Luminosa (2015) /Anzic Records/[FLAC|tracks+.cue]<Contemporary Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,7 +404,7 @@ Bireli Lagrene - 15 (1982) Antilles [FLAC|Lossless|tracks + .cue] <Swing, Gypsy,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +433,7 @@ Paul Brown - Promised Land (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +462,7 @@ Chick Corea - The Spanish Heart Band: Antidote (2019) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -418,7 +491,7 @@ The Cinematic Orchestra - Presents In Motion #1 (2012) [FLAC (tracks+cue)|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +523,7 @@ Bheki Mseleku - Celebration (1992) /World Circuit/[FLAC|image+.cue]<Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +552,7 @@ Jean-Loup Longnon & His New York Orchestra (1988) Atlantic Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +581,7 @@ Lee Konitz - Chicago'N All That Jazz (1975) 1989, Lester Recording [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +610,7 @@ Jessi Teich - Twisted Soul (2015) [FLAC|Lossless]<Vocal Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +639,7 @@ Claudia Morris - Secret Love (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -595,7 +668,7 @@ Pink Turtle - Pop in Swing (2008) [APE|image+.cue]<Jazz Mainstream, Tribute, Par
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,7 +697,7 @@ Pink Turtle - A la mode (2012) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,7 +726,7 @@ Bill Bruford - Making a Song and Dance: A Complete-Career Collection (2022) Box 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,7 +755,7 @@ Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -696,64 +769,6 @@ Paul Brown - The Funky Joint (2012) Woodward Avenue Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D0DF94C8B4FE98D6BB3046F00144D9C04BE6BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317370   (501483) от 31.07.2019
-
-Anouar Brahem - Blue Maqams (2017) ECM Records [FLAC|Lossless|image + .cue] <World Fusion, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Day [7:01]
-02. La Nuit [10:29]
-03. Blue Maqams [8:42]
-04. Bahia [8:46](   Читать дальше...   )Жанр: World Fusion, Modern CreativeПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20061B5CCEF1348DF3F1FE4049CD0DA95803AD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934567   (501329) от 06.09.2015
-
-Pink Turtle - Back Again (2010) [FLAC|tracks]<Jazz Mainstream, Tribute, Parody>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maniac (Dennis Matkowsky - Michal Sambello)
-02. Everybody's Got to Learn Sometimes (James Warren)
-03. Money Money Money (Bernard Ulvaes - Benny Anderson)
-04. I Can't Get No Satisfaction (Mick Jagger - Keith Richards)(   Читать дальше...   )Жанр: Jazz Mainstream, Tribute, ParodyПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DDC55254C7C9D7A7F948D6BA18DAC61CD81380
 ```
 
 https://mybot314.ru/tekegram_catalog/

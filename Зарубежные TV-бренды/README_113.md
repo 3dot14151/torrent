@@ -1,3 +1,55 @@
+###  Публикация: 1595085   (176495) от 03.12.2022
+
+BBC. История Вселенной (Наша Вселенная) / Our Universe (2022) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [EN, UKR / RU, UKR, EN Sub] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: документальный, природа, наука, исследованиеРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсПеревод: субтитрыЯзык озвучки: английский, украинский (дублированный)Субтитры: английские, русские, украинскиеПродолжительность: 6x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7ADC0322673E8EE3FF17BF0F4BC5234A0C8978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 363420   (176454) от 06.12.2020
+
+Discovery: Техногенная катастрофа: Японская трагедия / Nuclear nightmare: Japan in crisis (2011) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+11 марта 2011 года в 14:46 по токийскому времени мир стал другим: мощное землетрясение вызвало к жизни чудовищное цунами, которое обрушилось на Японию. Силы природы вновь бросили вызов человеческой цивилизации, и люди сумели достойно его принять. Съемочная группа Discovery Channel отправилась к месту катастрофы, чтобы показать зрителям это противостояние в новых (   Читать дальше...   )Телекомпания: Discovery ChanelЖанр: ДокументальныйПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EBCC24C2E742163C0A43C31F1748092A76C5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 363235   (176313) от 06.12.2020
 
 NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
@@ -6,7 +58,7 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery: Высадка союзников - цветная съемка / D-d
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -163,7 +215,7 @@ BBC. Секреты древних. Каменные головы Ольмеко
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -189,7 +241,7 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -241,7 +293,7 @@ BBC. Параллельные Вселенные / BBC: Parallel Universes (2002
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +319,7 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -319,7 +371,7 @@ History Channel: Злой гений / Evil Genius (2016-2017) HDTVRip (8 сер
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -345,7 +397,7 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +449,7 @@ NG. Эпические приключения с Берти Грегори / Epi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +475,7 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +501,7 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +527,7 @@ BBC. Великие географические открытия / Voyages of D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +579,7 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,7 +658,7 @@ NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,58 +669,6 @@ NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672794   (167559) от 29.10.2023
-
-Жизнь на нашей планете / Life on Our Planet (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) [EN / RU, EN Sub]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167559.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом новаторском документальном сериале о природе — необыкновенное путешествие жизни: завоевание Земли, адаптация и выживание на протяжении миллиардов лет.Производство: США, Amblin Television, Silverback Films, NetflixЖанр: документальный, история, исследованияРежиссер: Адам Чэпман, Софи Лэнфиар, Барни РевиллУчастники: Морган ФриманПеревод: субтитры (Катерина Яцук, Netflix)Язык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 1x 00:40:00 + 7x ~00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062C4DCDF5086EC8F5B19CD66362F442B8515F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516119   (167509) от 09.12.2021
-
-NG: Война Гитлера против прессы / Hitler's Battle Against the Press (2018) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1920-х годах журналисты газеты «Мюнхенер Пост» (Münchner Post) уже видели опасность, исходившую от Гитлера. Решительно и бесстрашно они писали об угрозе национал-социализма. Гитлер называл эту газету «мастерской дьявола» и угрожал её сотрудникам с помощью своих головорезов. Сегодня эти смелые редакторы и их газета оказались в полном забвении. Только одна книга (   Читать дальше...   )Производство: США, Германия / National Geographic ChannelЖанр: Документальный, ИсторияРежиссер: Уте Бёнэн, Геральд ЭндресПеревод: Одноголосый профессиональный (Студия «Велес»)Субтитры: ОтсутствуютПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

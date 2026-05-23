@@ -1,3 +1,188 @@
+###  Публикация: 1520814   (730323) от 09.02.2022
+
+Не смотрите наверх / Don't Look Up (2021) WEB-DL [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Астрономы открывают новую комету и, рассчитав её траекторию, узнают, что через полгода она столкнётся с Землёй, что положит конец существованию человечества и всего живого на планете. Двое учёных с трудом добиваются аудиенции у президента США, но там к их предупреждению относятся с недоверием, тогда они выступают в популярной телепередаче, но большинство всё равно (   Читать дальше...   )Производство: CША / Bluegrass Films, Hyperobject IndustriesЖанр: Драма, фантастика, комедияРежиссер: Адам МакКейАктеры: Леонардо ДиКаприо, Дженнифер Лоуренс, Мэрил Стрип, Джона Хилл, Кейт Бланшетт, Роб Морган, Марк Райлэнс, Тайлер Перри, Тимоти Шаламе, Рон ПерлманПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (forced х2, full), украинские (forced х2, full), английские, французские, немецкие, испанские, китайскиеПродолжительность: 02:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6EF035AEED1DD4BDEC24AB2B8A5B7CD29C29CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127209   (730264) от 22.04.2017
+
+Проекты - VideoHive - Made of Love - Romantic Slideshow - 19654947 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот романтический шаблон AE может помочь вам создать винтажный свадебный фильм, видеоролик о любви, поздравление с Днем рождения или любое другое ретро-слайд-шоу. С его модульной структурой и подробным видео-уроком вы можете сделать это с легкостью.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FBE39333FA4DE2E9E062A4179FD4DCDA7CF9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936366   (730235) от 22.04.2017
+
+The Forest (2015) [En] (0.59b) Repack Mr.Weegley
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Forest – хоррор на выживание, выходящий на Steam Early Access. В результате падения самолета игрок попадает на остров. Теперь он должен строить укрытия, делать оружие и различные инструменты выживания. Разработчики ввели в игру каннибальское племя, которое, по задумке, должно заставить игрока задуматься: является ли племя врагом протагониста, и наоборот, является (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Action, FPS, Adventure, Indie, Simulator, Early AccessЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20467DADE9DEA333BDFB78DA391AB866752944D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127682   (730231) от 22.04.2017
+
+Windows 7 Home Premium SP1 (x86/x64) Elgujakviso Edition (v.22.04.17) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборки сделаны на основе оригинальных образов от MSDN:
+ru_windows_7_home_premium_with_sp1_x86_dvd_u_676719.iso (Original 12.05.2011)
+ru_windows_7_home_premium_with_sp1_x64_dvd_u_676728.iso (Original 12.05.2011)
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296704484CDB0B6A73B2965B139D9C908E4CE765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021734   (730224) от 31.05.2016
+
+Tor Browser Bundle 6.0 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD1CB057608231A834CDA01DB547897814428C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021890   (730210) от 31.05.2016
+
+Проекты - Проект ProShow Producer -  Выпускной в детском саду [PSH]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Выпускной в детском саду" - проект от известного мастера PSPФормат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94552C40DA1F14128E48AB24E6295246F22DF2BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022140   (730208) от 31.05.2016
+
+Экипаж (2016) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История талантливого молодого летчика Алексея Гущина. Он не признает авторитетов, предпочитая поступать в соответствии с личным кодексом чести. За невыполнение абсурдного приказа его выгоняют из военной авиации, и только чудом он получает шанс летать на гражданских самолетах. Гущин начинает свою летную жизнь сначала. Его наставник - командир воздушного судна - суровый (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: Драма, Приключения, ТриллерРежиссер: Николай ЛебедевАктеры: Данила Козловский, Владимир Машков, Агне Грудите, Сергей Кемпо, Катерина Шпица, Сергей Шакуров, Сергей Газаров, Елена Яковлева, Алёна Бабенко, Сергей Романович, Ксения Георгиади, Ирина Лачина, Вячеслав Разбегаев, Владимир Яглыч, Василий Мищенко, Дмитрий Золотухин, Ирина Пегова, Александра ЯковлеваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD059B7873C2AFFAA1A140B34DFEF6242EC084D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021950   (730204) от 31.05.2016
 
 Хардкор / Hardcore Henry (2015) WEBRip [Line]
@@ -6,7 +191,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +270,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +296,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 02.2019 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +322,7 @@ Windows 11 Pro x64 21Н2 (build 22000.469) by ivandubskoj 07.02.2022 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +348,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +374,7 @@ Sandboxie 5.18 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +452,7 @@ Adobe Audition CC 2017.1 10.1.0.174 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +556,7 @@ SCAD Office 21.1.1.1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +582,7 @@ Commandos Антология [Ru] (L) 2011 | R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -451,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_729041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,191 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F271DA56B62EEDA1B7CE9CE267662DA1726C6F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284036   (728376) от 21.02.2019
-
-Хроники хищных городов / Mortal Engines (2018) WEB-DL [H.264/1080p] [Open Matte]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, США / Media Rights Capital (MRC), Scholastic Productions, Silvertongue FilmsЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Гера Хилмарсдоттир, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк МитчинсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD2994A5549858274FEFCCF235CABFC1A461B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126970   (728089) от 24.04.2017
-
-Притяжение (2017) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728089.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Как только что стало известно, сбитый над Москвой неопознанный объект имеет, возможно, внеземное происхождение. Большая часть столичного Чертанова оцеплена, к месту крушения стягиваются представители силовых структур, решается вопрос об эвакуации местных жителей. По словам нашего источника в Минобороны, сейчас специальная комиссия пытается вступить в контакт с так (   Читать дальше...   )Производство: Россия / Кинокомпания «Водород», Art Pictures StudioЖанр: фантастикаРежиссер: Фёдор БондарчукАктеры: Ирина Старшенбаум, Олег Меньшиков, Александр Петров, Никита Кукушкин, Евгений Сангаджиев, Дарья Руденок, Риналь Мухаметов, Людмила Максакова, Евгений Коряковский, Ульяна Куликова, Сергей Шаталов, Евгений Михеев, Никита Тарасов, Сергей ГармашПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40B28A5F76817FD248B87019CD283A946A47FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971701   (728084) от 24.04.2017
-
-София Прекрасная: Как стать принцессой / Sofia the First (2015) WEB-DLRip [H.264/720p-LQ] (3 сезон: 29 серий из 29)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сезон приключений юной принцессы Софии из страны Волшебнии.Производство: Disney Television Animation, Walt Disney ProductionsЖанр: мультфильм, мюзикл, фэнтези, семейныйРежиссер: Джэми Митчелл, Сэм Ригел, Ларри ЛэйчлитерПерсонажи: Эриэл Винтер, Сара Рамирез, Джим Каммингс, Уэйн Брэди,
-Дарси Роуз Барнс, Зак Каллисон, Джесс Харнелл, Дженнифер Хейл, Трэвис ВиллингхемПеревод: Дублированный, включая и песниПродолжительность: 28 х ~ 00:23:00 + 1 х ~ 00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E68353F7A20EA311903E218E99BD3FA6C94613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022585   (728076) от 02.06.2016
-
-Maxthon Cloud Browser 4.9.3.1000 Final + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный веб-браузер, разработанный для пользователей любого вкуса и предпочтений. Помимо основных возможностей браузера, Maxthon предлагает богатый набор функций для улучшения вашего Интернет-серфинга. Двойной движок для отображения веб-страниц (Trident и Blink), быстрый JavaScript-движок (V8), поддержка современного HTML5 делают все, чтобы посещаемые сайты открывались (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C153F4996DE57B11EE5E4EDF18B46FEF5DF50065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022414   (728010) от 02.06.2016
-
-Linux Lite 3.0 (легкий дистрибутив) [x32, x64] 2xDVD
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джерри Безенкон (Jerry Bezencon) объявил о выходе Linux Lite 3.0 окончательного релиза теперь для 32-разрядных процессоров с поддержкой PAE, а также с поддержкой архитектуры х64. Дистрибутив ориентирован на новичков в мире Linux Ubuntu-based дистрибутивов с Xfce в качестве предпочтительного рабочего окружения.
-
-По умолчанию установлена тема оформления Arc и тема (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0414BD1436C1C68C3F67FF33AD46A52015DD5E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022372   (728005) от 02.06.2016
-
-Acronis True Image 2016 19.0.6571 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image — это интегрированный пакет программ, обеспечивающий безопасность всей информации на вашем компьютере. True Image предоставляет возможность создавать резервные копии операционной системы, приложений, пользовательских настроек и всех имеющихся данных, а также надежно уничтожать всю конфиденциальную информацию, ставшую ненужной. C помощью этого программного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73210EA759239C5AD8F0885FFF4E1361054EC5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022572   (728000) от 02.06.2016
-
-Братья из Гримсби / Grimsby (2016) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сверхсекретная операция, которую выполняет образцовый спецагент, с треском провалена из-за некстати свалившегося на его голову неадекватного брата — оголтелого футбольного фаната и полного беспредельщика. Теперь герою предстоит спасти свою жизнь и вдобавок планету от нависшей над ней угрозы — практически невыполнимая задача в тандеме с вновь приобретенным родственником.Производство: Великобритания, Австралия, Big Talk Productions, Columbia Pictures, Four by Two Films, LStar CapitalЖанр: Комедия, БоевикРежиссер: Луи ЛетерьеАктеры: Саша Барон Коэн, Марк Стронг, Ребел Уилсон, Пенелопа Крус, Айла Фишер, Габури Сидибе, Аннабелль Уоллис, Иэн МакШейн, Дэвид Хэрвуд, Рикки ТомлинсонПеревод: Дублированный (iTunes)Субтитры: АнглийскийПродолжительность: 01:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E676BC8462359483039577861A1C6CD0BABBA5C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

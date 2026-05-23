@@ -1,3 +1,108 @@
+###  Публикация: 1520777   (138772) от 30.12.2021
+
+Когда часы двенадцать бьют (2020) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда часы двеннадцать бьют, все ждут исполнения желаний и новогодних чудес.. О том же мечтал и менеджер Гришенька, опоздав к бою курантов и возвращаясь к жене Настеньке далеко за полночь. Но чудо случилось совсем другого толка...Производство: РоссияЖанр: Короткометражный, комедия, мелодрамаРежиссер: Ника АббасоваАктеры: Станислав Бондаренко, Елена Саар, Юрий СазоновСубтитры: ОтсутствуютПродолжительность: 00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB13D547EA4BCC9FD8B2B1EA9BD6F3932A9F411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587894   (138761) от 30.12.2018
+
+Ой, мороз, мороз! (2005) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Иногда, чтобы исправить свою судьбу, полезно сыграть роль другого человека. Жизнь героя этой взрослой сказки действительно зашла в тупик. Он - бывший офицер спецназа, отбывающий срок по ложному обвинению. Уже несколько лет подряд в канун Нового года он бежит из колонии, чтобы отомстить…
+Однако у судьбы свои планы и в этот раз все будет совсем иначе. Роль Деда Мороза, (   Читать дальше...   )Жанр: КомедияРежиссер: Николай ЩербаковАктеры: Владимир Епифанцев, Стася Задорожная, Ирина Шипова, Павел Лысенок, народная артистка РФ Раиса Рязанова, заслуженные артисты РФ: Роман Мадянов, Виктор Проскурин, Борис Клюев и Валерий Гаркалин, Сергей КагадеевПродолжительность: 01:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4E68B413F7339A1A13E73C9BD3DD82CDA6B27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 48701   (138732) от 30.12.2019
+
+Путешествие с домашними животными (2007) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Это трогательная история о жизни 35-летней женщины Натальи, муж которой внезапно умирает. Наталья остается одна вдали от людей со своими домашними животными на заброшенном полустанке. Она родилась и выросла в детском доме и совсем не знает жизни…Производство: Россия, студия "Слон" при поддержке Федерального агентства по культуре и кинематографииЖанр: Драма, мелодрамаРежиссер: Вера СторожеваАктеры: Ксения Кутепова, Дмитрий Дюжев, Евгений Князев, Анна ДаниловаПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296FC0F19336811755C2149196C449E816C93AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678783   (138696) от 24.11.2023
+
+Бери да помни (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шестилетний Ильхам проводит лето в деревне, но сильно скучает по родителям. Чтобы развлечь внука, дед Расим вспоминает про легендарную игру «Бери да помни», благодаря которой начинается череда исполнений желаний. Поначалу происходящее не нравится его жене Суфие, но постепенно игра самым невероятным образом меняет как жизнь этой семьи, так и жизнь и мечты всей деревни.Производство: Россия, Bosfor PicturesЖанр: комедия, мелодрама, семейныйРежиссер: Байбулат БатуллинАктеры: Рабит Батулла, Роза Хайруллина, Юнус Таиров, Алмаз Хамзин, Нияз Мубаракзянов, Сирень Байрамов, Алина Насибуллина, Нурбек БатуллинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B10263A8ABB9FC5982A74BF962925C7D0DBA16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520895   (138487) от 30.12.2021
 
 Вампиры средней полосы (2021) WEBRip [H.264] (Новогодний эпизод)
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +530,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DLRip
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -477,7 +582,7 @@ SOS, Дед Мороз или Все сбудется! (2015) WEB-DL [H.264/720p
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCD92915D09E56D4D200E51524A7DC925929840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229389   (137229) от 31.12.2021
-
-Приходи на меня посмотреть (2000) WEB-DLRip [H.264/720p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед Новым годом окна огромного города светятся изнутри разноцветными елочными огнями. Кажется, что за каждым из этих окон осторожно хранят любимый праздник. Кажется, что за каждым из них ждут новогоднего исполнения желаний… К силуэту пожилой женщины за одним из окон старого московского дома соседи по двору наверняка привыкли как к чему-то неизменному. Софья Ивановна (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, комедияРежиссер: Михаил Агранович, Олег ЯнковскийАктеры: Олег Янковский, Ирина Купченко, Екатерина Васильева, Наталья Щукина, Марк Рудинштейн, Иван ЯнковскийСубтитры: ОтсутствуютПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A920E03D201F0837D0B7AE340EBA80442E4595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679449   (137176) от 25.11.2023
-
-Невеста с заправки (2014) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кассир заправки, мечтательная Оксана, с первого взгляда влюбляется в вице-президента банка - красавца Виктора. Случайно она спасает ему жизнь, и родственники «принца» принимают Оксану за его невесту. Девушка не в силах сказать правду, ведь семья возлюбленного отнеслась к ней как к родной, она не может разочаровать этих людей. К тому же очнувшийся Виктор из всех вспомнил (   Читать дальше...   )Производство: Россия, ООО "Ланд Синема"Жанр: мелодрама, комедияРежиссер: Игорь НурисламовАктеры: Екатерина Тарасова, Сергей Перегудов, Эра Зиганшина, Максим Радугин, Петр Журавлев, Ольга Белявская, Марго Адаева, Елена Купрашевич, Елена Мартыненко, Михаил Шеломенцев и др.Субтитры: отсутствуютПродолжительность: ~0:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBA30E8D7BDFBDC56E168B1513EF9E1DEF4D463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521111   (137137) от 31.12.2021
-
-Здравствуй, Дедушка Мороз! (2021) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московского журналиста отправляют готовить репортаж о работе дедов морозов в новогоднюю ночь. Облачившись в костюм и бороду главного новогоднего волшебника, он попадает домой к мальчику Саше, которому обещает исполнить его желание — вернуть папу.Производство: Россия / Киностудия ОлимпЖанр: Комедия, семейныйРежиссер: Наталия КаленоваАктеры: Виктор Логинов, Юрий Гальцев, Александр Тютрюмов, Роман Петров, Дарья Румянцева, Светлана Смирнова-Марцинкевич, Ольга Кирсанова-Миропольская, Александр Алексин, Егор Бакулин, Татьяна ЯковенкоПеревод: Не требуется (KION)Субтитры: ОтсутствуютПродолжительность: 01:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CD41A425C6FEEFE9852AE154D3E98ABC72E620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520903   (137087) от 31.12.2021
-
-Море волнуется раз (2021) WEB-DLRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коля и Саша прячутся от всех в старом домике посреди леса. Они влюблены, и мир вокруг кажется им странным и чудесным. Но идиллию то и дело нарушают ночные кошмары. Саше снится, как ее накрывает огромной волной. Однажды ребята встречают загадочную супружескую пару, живущую по соседству. Мужчина и Женщина очень похожи на них самих. С их помощью молодые попробуют разобраться (   Читать дальше...   )Производство: Россия / PLAN 9Жанр: ДрамаРежиссер: Николай ХомерикиАктеры: Андрей Смоляков, Юлия Ауг, Ольга Бодрова, Валерий СтепановЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D69E1C2E31D39D647A672F13DF07ECE89FE47BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,341 @@
+###  Публикация: 1199455   (801034) от 16.01.2018
+
+Растровый клипарт - Fotolia - Apricot jam [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Абрикосовый джем с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3201x2500-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D903CD4D86331B26EBF89D716860155CF98E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199453   (801028) от 16.01.2018
+
+Растровый клипарт - Fotolia - Apricot [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Абрикос с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3254x4700-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13949AC987B8BBC87DBC174C77D783DDB596784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199452   (801023) от 16.01.2018
+
+Растровый клипарт - Different Cargo Transport 21 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Различные грузовые перевозки, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5221x3480-6750x4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98FC358E5BCCFAC371C16B302F56B8CBC0AF5533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199457   (801022) от 16.01.2018
+
+Растровый клипарт - Fotolia - Aircraft on the background of the city [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Самолет на фоне города с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2738x1825-7360x4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE194DADF98408E1A495B34553CF11FB8A3BEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199449   (801019) от 16.01.2018
+
+Растровый клипарт - Shutterstock - Apples in a basket [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Яблоки с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 1909x2250-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA7DDD573EB1EAEBC965DC937DA7C6C2F315C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199447   (800953) от 16.01.2018
+
+Растровый клипарт - Shutterstock - Backgrounds autumn leaves [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Осенние листья с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2200x2200-5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B08782BC412D11E435E31B9CB114E74F934728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199456   (800949) от 16.01.2018
+
+Растровый клипарт - Shutterstock - Background night city [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ночной город с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2200x3300-4854x3343
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867678C9BA4344D44C65044BEEC216FF4BE82DEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199570   (800878) от 16.01.2018
+
+Растровый клипарт - Creative Market - Autumn Leaves - Creator Kit - 1977039 [JPG, PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Набор из осенних листьев, веток, цветов бархатцы  для создания осенних проектовФормат: JPG, PNG, PSDРазрешение файлов: 1200x1200-4000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05D21A3F11B81AEB385D7CED5129C98B7D3F54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199579   (800872) от 16.01.2018
+
+Текстуры - Creative Market - AL's Vintage Picture Automator - 2122207 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+AL's Vintage Picture Automator -это мой любимый инструмент . Я предпочитаю использовать, если мне нужно создавать фотографии с аутентичным изношенным винтажным взглядом. Когда я сделал его образцы цветов и текстур из старых фотографий, книг и документов, чтобы я мог достичь правильного взгляда.Формат: PSDРазрешение файлов: 3000x2000-4500x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34315CF443BAD6597CEADDDB7F8DF69FB22796FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199459   (800864) от 16.01.2018
+
+Кисти - Creative Market - Clouds Brushes - 2165569 [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Набор из 32 облачных кистей с высоким разрешением для Adobe Photoshop CS2-CS6Формат: ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EB8B591CA79EFA17425D02CC27EA456A355495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384931   (800791) от 22.05.2020
+
+Сборники - Creative Fabrica - The Valentine's Scrapbook Bundle [AI, EPS, PNG, PSD, SVG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наступает самый романтичный день в году, и чтобы подготовить вас к нему, мы хотели бы представить The Scrapbook Bundle от Valentine. Этот прекрасный набор включает романтические бумаги и узоры, наборы клипартов и наборы сердечных элементов, идеально подходящие для всех ваших поздравительных проектов.Формат: AI, EPS, PNG, PSD, SVG, JPGРазрешение файлов: 960x960-6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803900B30401BAAC7D4A29B4BCBCC14AFBD1B253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384922   (800754) от 22.05.2020
+
+Стили - GraphicRiver - 66 Creative Text Effects Bundle 5 - 26168423 [ASL, ATN, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+66 стилей и макетов Creative Text Bundle vol.5: 8 пакетов в одном комплекте.Формат: ASL, ATN, PSDРазрешение файлов: 1400x1400-2500×1875
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07DC83101E12D14F39034770A2B052EABF0C22E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385208   (799990) от 23.05.2020
+
+3D модели - Bugatti Centodieci 2020 Low-poly [MAX, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BugattiФормат: MAX, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D621D5B151A5A06A5DDA09EA090179561EA2174B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385217   (799986) от 23.05.2020
 
 3D модели - Hum3D - BMW X6 M with HQ interior 2015 [MAX, FBX, OBJ]
@@ -6,7 +344,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,352 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:193E6F5F93C8325EEBE238E2500545D8CAC10064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507341   (798337) от 04.11.2021
-
-3D модели - Daz 3D - Сборник 3D моделей #26 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Hair.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2364FB42B6221C890264289074E5DC200A0024AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507608   (798205) от 05.11.2021
-
-Пресеты - Creative Market - 788 Cyberpunk Presets LUTs - 5883096 [XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузите этот колоссальный набор из 788 пресетов и LUT, чтобы создавать потрясающие образы в стиле киберпанк.Формат: XMP, DNG, 3DL, CUBE, ICC, LOOK, MGA, PNG, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A0C8A4E7D950216B2A29299001FCC5D2EB727E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385342   (797746) от 24.05.2020
-
-Футажи - VideoHive - Baby Shower Celebrations - 26733109 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет "Baby Shower Celebrations" - это праздник мыльных пузырей с сердечками.
-Особенность пакета: 4 различных файла с мыльными пузырями в которых находятся сердечки. Каждый из них отличается друг от друга скоростью полета и интенсивностью. Они дадут вам более живой взгляд на ваши проекты. Выберите, что больше подходит для вас.Формат: MOVРазрешение файлов: Full HD 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D59E9A4D7B00201D212BD35BEC1813838B4A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385216   (797674) от 24.05.2020
-
-3D модели - Библиотека для SketchUp Pro 2020 - 20.05.20 [SKP, SKM]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека для SketchUp Pro 2020, включает компоненты и материалы.Формат: SKP, SKM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7D4B532E9CF98217D874A6E07DF20E3D02A738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508680   (796751) от 09.11.2021
-
-Векторный клипарт - Fotolia - Clip art illustrations of teddy bear [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Плюшевый мишка
-22 EPS+ previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B6CD24AA1CE1D8BD4D0D695C9143FBD9E868FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508689   (796681) от 09.11.2021
-
-Текстуры - 15 Texture Backgrounds Bundle [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры льда, меха, кожи и т.д.Формат: JPGРазрешение файлов: 3600x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405C9676DDEE229F8E878F3234E102D1292B0BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011405   (796571) от 27.04.2016
-
-Футажи - Коллекция видеофутажей 4 [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртая часть личной коллекции из 125 видеофутажей на различную тематикуФормат: MP4Разрешение файлов: 1280х720
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50002FA55A5F6B6A9C2D5C3F403B36C786F1F7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385769   (796523) от 26.05.2020
-
-Футажи - VideoHive - Birthday Celebrations - Balloons With Birthday Numbers - 26734641 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796523.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 различных реалистичных анимаций воздушных шаров с цифрами от 11 до 20 - летнего празднования Дня рождения. (QuickTime+альфа-каналом). Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
-Простота использования в любом программном обеспечении для редактирования.Формат: MOVРазрешение файлов: Full HD 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925FF48F02D9E2098314977D1687090B18DF6D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385777   (796515) от 26.05.2020
-
-Футажи - VideoHive - First Birthday Celebration Balloons - Baby Boy - 26731993 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796515.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 различных анимаций воздушных шаров для празднования Дня Рождения мальчика (QuickTime+Alpha).
-Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
-Простота использования в любом программном обеспечении для редактирования.Формат: MOVРазрешение файлов: Full HD 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A5C50AD77C406018CFBF42981D6076CD1F1738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385772   (796511) от 26.05.2020
-
-Футажи - VideoHive - First Birthday Celebration Balloons - Baby Girl - 26732383 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796511.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 различных анимаций воздушных шаров для празднования Дня Рождения девочки (QuickTime+Alpha).
-Каждый из них имеет циклическую анимацию. Выберите, что подходит для ваших работ.
-Простота использования в любом программном обеспечении для редактирования.Формат: MOVРазрешение файлов: Full HD 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB66024B258DFA71CA80ED805072856D685C732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011727   (796040) от 28.04.2016
-
-Экшены - GraphicRiver - Pure Art Hand Drawing - 3455359 [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05132AD6BB7D8BB46C8FBABBF1DD7713B20BF9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508829   (796020) от 10.11.2021
-
-Шрифты - Summitsoft - FontPack Pro Master Collection [TTF, OTF, MSI]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это полная коллекция всех шрифтов, созданных SummitType ™ Font Foundry. Каждый шрифт в коллекциях Fontpack Pro Master Collections был разработан профессионалами, и теперь вы можете получить доступ к удивительному качеству и разнообразию, которое стало основным продуктом шрифтов SummitType. Предлагая широкий выбор стилей и типов, FontPack Pro Master Collection Edition (   Читать дальше...   )Формат: TTF, OTF, MSI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3949DE5B10D262BCABA4C73BC9249082BBF7B051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508835   (795951) от 10.11.2021
-
-Шаблоны - Creative Market - ANIMATED Instagram Stories Pack III - 3500363 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет шаблонов «Анимированные истории» III - это творческий ресурс, предназначенный для занятых блоггеров / влиятельных лиц / фрилансеров и разносторонних девушек-боссов.Формат: PSDРазрешение файлов: 1080x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0BEC98DDB35B414FA69EC845613DAC76270538
 ```
 
 https://mybot314.ru/tekegram_catalog/

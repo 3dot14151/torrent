@@ -1,4 +1,111 @@
 https://t.me/izofen
+###  Публикация: 1871942   (1069828) от 
+
+Room Arranger 11.0.1.777 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21C7D68202902B0894AA1A51113CF2ABC62D2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871495   (1069717) от 
+
+Room Arranger 11.0.0.776 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14785201BDEE319436CA017D953F4AB7EE1B27A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870876   (1068838) от 
+
+FiberShop Studio Perpetual 3.1.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+FiberShop — это автономный инструмент, специально разработанный для создания высококачественных волос и меха для игр.
+
+Рабочий процесс в FiberShop невероятно быстрый и простой в освоении. Все скучные и трудоемкие задачи выполняются автоматически, и вам остается только работать над своим проектом.
+(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EF3103B11311C98FB61F7F871E5DBEE0C342C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870025   (1068792) от 
+
+Adobe Substance 3D Designer 16.0.1.10989 Portable by 7997 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Substance 3D Designer — это отраслевой стандарт для создания уникальных материалов, который дает вам полный контроль над творческим процессом. Создавайте 3D-материалы, модели, мозаичные текстуры и узоры, среды освещения. Создавайте контент с нуля в обратимой среде на основе узлов или пользуйтесь постоянно расширяющимися возможностями разработки сценариев Adobe (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472F0AB4C9A0B1C12621E2D70BC98291B7D3F22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869778   (1068490) от 
 
 AMS Ландшафтный Дизайн 3D 14.5 [Ru]
@@ -7,7 +114,7 @@ AMS Ландшафтный Дизайн 3D 14.5 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +141,7 @@ Artifact Interactive Garden Planner 3.8.85 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +167,7 @@ Corona Renderer 14 Update 1 (Hotfix 2) for 3ds Max 2018-2027 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -78,6 +185,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867491   (1066978) от 25.04.2026
+
+V-Ray 7.30.02 for 3ds Max 2022-2027 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+V-Ray — мощный инструмент визуализации, нацеленный в первую очередь на фото-реалистичность. Имеет собственные камеры со схожими параметрами как и у настоящих фото-камер. Имеет собственные источники освещения и шейдеры материалов.
+Является одним из основных плагинов для архитектурной визуализации. Под V-ray "заточено" множество готовых 3d моделей и материалов, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04CEF378A1D0F6E6AC13A452D71C4AAE92B18B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867163   (1066805) от 
 
 AMS Мой Дом 3D 5.0 [Ru]
@@ -86,7 +220,7 @@ AMS Мой Дом 3D 5.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +248,7 @@ SketchUp Pro 2026 26.1.256 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +274,7 @@ Agisoft Metashape Professional 2.3.1 Build 22361 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +300,7 @@ Adobe Substance 3D Designer 16.0.0.10849 Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -184,6 +318,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865218   (1065365) от 14.04.2026
+
+Chaos Vantage 3.2.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рендерите самые сложные сцены V-Ray 3D в режиме трассировки лучей в реальном времени. С Chaos® Vantage нет необходимости в трудоемких преобразованиях. Просто перетащите всю сцену V-Ray в Vantage и приступайте к работе. Быстро создавайте высококачественные визуализации или предварительные визуализации для архитектуры, кинопроизводства, автомобилестроения и т. д.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514D52C4192D82A98B973D2A2B7DBA562D2112BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864967   (1064955) от 12.04.2026
 
 Artifact Interactive Garden Planner 3.8.84 [En]
@@ -192,7 +352,7 @@ Artifact Interactive Garden Planner 3.8.84 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +378,7 @@ LuBan 3D 20.03.2026 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +405,7 @@ Agisoft Metashape Pro 2.3.1 Build 22235 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +431,7 @@ AMS Дизайн Интерьера 3D 15.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +457,7 @@ Corona Renderer 14 Update 1 (Hotfix 1) for 3ds Max 2018-2026 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +483,7 @@ Autodesk 3ds Max 2027 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +509,7 @@ AMS Ландшафтный Дизайн 3D 14.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +536,7 @@ Blender 5.1.0 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +564,7 @@ Agisoft Metashape Pro 2.3.1 Build 22201 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -430,7 +590,7 @@ Pepakura Designer 6.1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -456,7 +616,7 @@ Room Arranger 10.3.6.748 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -482,7 +642,7 @@ Room Arranger 10.3.6.748 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -508,7 +668,7 @@ AMS Ландшафтный Дизайн 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -520,162 +680,6 @@ AMS Ландшафтный Дизайн 3D 12.0 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95BC1068E5878991EBFE65E444B11BE52F9F956D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851970   (1055535) от 05.02.2026
-
-Room Arranger 10.3.4.743 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F956EA2ABFCE4E6EFD4FECA1923482D18D53F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849241   (1053426) от 21.01.2026
-
-Room Arranger 10.3.3.741 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82188DD12B5436DD1BF000D19DF9875E22484982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846187   (1051123) от 06.01.2026
-
-Room Arranger 10.3.2.739 [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6420075D81F21D9C763EDA6F838E10C34B3A5BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845326   (1050540) от 31.12.2025
-
-SketchUp Pro 2026 26.1.189 RePack by KpoJIuK [Ru/En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050540.jpg" />
-</div>
-
-
-###  Подробнее
-
-SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество простых (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0023A848DCB243086550179AF49E1CA32E08527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844741   (1050243) от 27.12.2025
-
-AMS Дизайн Интерьера 3D 14.0 [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050243.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3316ED2B90597762278A188CA24522A966BDA41D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844852   (1050177) от 28.12.2025
-
-Дизайн Интерьера 3D 14.0 Repack (& Portable) by elchupacabra [Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050177.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C529AC61890980D82219B06A2D2CCA5EDC68A91D
 ```
 
 https://mybot314.ru/tekegram_catalog/

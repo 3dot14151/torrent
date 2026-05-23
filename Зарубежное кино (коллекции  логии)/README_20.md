@@ -1,3 +1,59 @@
+###  Публикация: 1638685   (247696) от 09.06.2023
+
+Пираты Карибского моря: Пенталогия / Pirates of the Caribbean: Pentology (2003-2017) WEBRip [H.264/1080p] [Open Matte]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь харизматичного авантюриста, капитана Джека Воробья, полная увлекательных приключений, резко меняется, когда его заклятый враг — капитан Барбосса — похищает корабль Джека, Черную Жемчужину, а затем нападает на Порт Ройал и крадет прекрасную дочь губернатора, Элизабет Свонн.
+Друг детства Элизабет, Уилл Тернер, вместе с Джеком возглавляет спасательную экспедицию (   Читать дальше...   )Производство: США, великобритания / Walt DisneyЖанр: фэнтези, боевик, приключенияРежиссер: Гор Вербински, Роб Маршалл, Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Джеффри Раш, Орландо Блум, Кира Найтли, Джек Девенпорт, Джонатан Прайс, Ли Аренберг, Маккензи Крук, Дэмиан О’Хейр, Джиллз НьюПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: русскиеПродолжительность: 02:23:15 / 02:30:39 / 02:48:30 / 02:16:24 / 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130F0AF3C8C843629C6E8C792820A519627CFD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449452   (247114) от 08.07.2023
+
+Кловерфилд / Cloverfield (2008, 2016, 2018) BDRip [H.264] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Прощальную вечеринку уезжающего в Японию Роба прерывает громогласный рык —
+нечто напало на Нью-Йорк, сея панику, разрушения и пожирая людей.
+Армия бессильна против гигантского монстра, Манхэттен объявлен закрытой зоной,
+но где-то неподалеку от Центрального парка в беду попала девушка Роба.Производство: США / Bad Robot, Paramount PicturesЖанр: Ужасы, фантастика, триллер, детективРежиссер: Мэтт Ривз, Дэн Трахтенберг, Джулиус ОнаАктеры: Лиззи Каплан, Джессика Лукас, ТиДжей Миллер, Майкл Сталь-Дэвид, Майк Фогель, Одетт Эннэйбл, Анжул Нигам, Марго Фарли, Тео Росси, Брайан Клагман, Джон Гудман, Мэри Элизабет Уинстэд, Джон Галлахер мл., Дуглас М. Гриффин, Сюзанн Крайер, Брэдли Купер, Сумали Монтано, Фрэнк Моттек, Гугу Эмбата-Ро, Дэвид Ойелоуо, Даниэль Брюль, Джон Ортис, Крис О’Дауд, Аксель Хенни, Чжан (   Читать дальше...   )Перевод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (Full, forced), английские (Full)Продолжительность: 01:24:40 / 01:43:35 / 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F818140D3EDECDAA403D1B3014D21745B43516C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833227   (246231) от 01.11.2025
 
 Фантазм / Phantasm (1978-2016) BDRip [H.265/1080p] [10-bit] [Пенталогия]
@@ -6,7 +62,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -268,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -398,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -503,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -529,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -555,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -581,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -607,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -618,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519DE21C6D1436E70E5261470CB21868D6F61947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648966   (208043) от 25.07.2023
-
-Детские игры / Child's Play (1988-2019) BDRip [H.265/1080p] [10-bit] [Антология]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская франшиза ужасов, основанная на оригинальной серии фильмов, созданных Доном Манчини. Фильмы в основном посвящены Чаки, печально известному серийному убийце, который избегает смерти, выполняя ритуал вуду, чтобы передать свою душу в куклу «Добрый парень». Киносериал первоначально начинался в жанре ужасов с выходом первого фильма «Детские игры», в котором (   Читать дальше...   )Производство: США, Великобритания, Канада, Румыния / United Artists, Universal Pictures, Midwinter Productions Inc., Castel Film Romania, David Kirschner Productions, La Sienega Productions, Rogue Pictures, Universal 1440 Entertainment, Bron Creative, Bron Studios, KatzSmith Productions, Metro-Goldwyn-Mayer (MGM), Oddfellows Entertainment, Orion Pictures, TF1 StudioЖанр: ужасы, триллер, комедияРежиссер: Том Холланд, Джон Лафия, Джек Бендер, Ронни Юй, Дон Манчини, Ларс КлевбергАктеры: Кэтрин Хикс, Крис Сарандон, Алекс Винсент, Дженни Агаттер, Джастин Уэйлин, Перри Ривз, Дженнифер Тилли, Брэд Дуриф, Фиона Дуриф, Даниэль Бисутти, Майкл Терриоль, Гэбриел Бейтман, Обри Плаза, Брайан Тайри Генри, Марк ХэмиллПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, одноголосый профессиональный, авторский, одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:27:07 / 01:23:56 / 01:29:41 / 01:28:44 / 01:27:15 / 01:36:41 / 01:30:56 / 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9A01EFBF18848EAC84943D68007782463C61FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583222   (205973) от 13.10.2022
-
-Тёмный рыцарь / The Dark Knight (2005, 2008, 2012) BDRemux [H.264/1080p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205973.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве юный наследник огромного состояния Брюс Уэйн оказался свидетелем убийства своих родителей, и тогда он решил бороться с преступностью. Спустя годы он отправляется в путешествие по миру, чтобы найти способ восстановить справедливость. Обучение у мудрого наставника боевым искусствам дает ему силу и смелость. Вернувшись в родной город, Уэйн становится Бэтменом (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., Syncopy, DC ComicsЖанр: боевик, приключения, фантастика, драмаРежиссер: Кристофер НоланАктеры: Кристиан Бэйл, Кэти Холмс, Майкл Кейн, Киллиан Мёрфи, Том Уилкинсон, Лиам Нисон, Кэн Ватанабэ, Гари Олдман, Морган Фриман, Рутгер Хауэр, Хит Леджер, Аарон Экхарт, Мэгги Джилленхол, Эрик Робертс, Том Харди, Энн Хэтэуэй, Джозеф Гордон-Левитт, Марион КотийярПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 02:20:03 / 02:32:13 / 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16D9C4E61C1654F424554AAB6D6414713140372
 ```
 
 https://mybot314.ru/tekegram_catalog/

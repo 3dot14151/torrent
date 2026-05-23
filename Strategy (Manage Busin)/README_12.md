@@ -1,3 +1,55 @@
+###  Публикация: 1718080   (58826) от 23.04.2024
+
+Sweet Transit (2022) [Ru/Multi] (1.0.38) Scene Skidrow
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Sweet Transit – это градостроение, где все во многом будет зависеть от системы железнодорожных путей. Ведь только с их помощью можно продавать товары, которые создаются в городке и в обмен завозить новое продовольствие или необходимое жилье. Именно от начальника транспортной компании зависит благосостояние горожан, а также экономика всего города.Тип издания: SceneРазработчик: Ernestas NorvaišasЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07440E101CE9B114DBC0136813D36E72A2E78518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651493   (58747) от 24.04.2024
+
+Lakeburg Legacies (2023) [Multi] (1.1.4.4/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Lakeburg Legacies - это крайне необычный симулятор управления деревней-королевством. А особенность игры заключается в том, что процветание и успех вашего королевства зависит от любви! Любовь - ваш главный ресурс и именно поэтому вы играете роль свахи. Ваша задача создавать эффективный браки, которые станут двигателем развития вашего королевства. Этот социальный симулятор (   Читать дальше...   )Тип издания: LicenseРазработчик: Ishtar GamesЖанр: Стратегия, Симулятор, МенеджментЯзык субтитров: Английский, Немецкий, Французский, КитайскийЯзык интерфейса: Английский, Немецкий, Французский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E4580670C065508EBF6D48096328BDAB90B02A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718435   (58598) от 25.04.2024
 
 Sweet Transit (2022) [Ru/Multi] (1.0.38) Repack FitGirl
@@ -6,7 +58,7 @@ Sweet Transit (2022) [Ru/Multi] (1.0.38) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Diluvian Winds (2023) [Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Ready, Steady, Ship! (2024) [Multi] (1.2.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Bootleg Steamer (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (8410_27382) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Naheulbeuk's Dungeon Master (2023) [Ru/Multi] (1.8) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Divinity Chronicles: Journey to the West (2023) [Multi] (1.14.20b/dlc) Scene Ten
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Undead Inc. (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Echoes of the Plum Grove (2024) [Multi] (1.0.1.0s) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Galacticare (2024) [Ru/Multi] (1.0.3b/dlc) License GOG [Placebo Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Reus 2 (2024) [En] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Creeper World 4 (2020) [En] (2.5.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Thriving City: Song (2024) [Multi] (1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Zet Zillions (2024) [Ru/Multi] (0.9.6-A107) Repack FitGirl [Full-Trash Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Highrise City (2022) [Multi] (20240603/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Sheltered 2 (2021) [Ru/Multi] (1.2.15) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Corpse Keeper (2023) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Thriving City: Song (2024) [Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Repack dixen18 [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Invisible Hand (2021) [En] (1.2.3) License GOG [Deep Pockets Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A03DC771756C58CE3574CDAB73E5D80CA5BA56D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731970   (52407) от 23.06.2024
-
-El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack Wagner
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52407.jpg" />
-</div>
-
-
-###  Подробнее
-
-El Dorado: The Golden City Builder – это увлекательная стратегическая градостроительная игра, которая приглашает вас взять на себя роль лидера и создать могущественную империю на полуострове Юкатан. Ваша цель – превратить маленькое поселение в процветающий город, который завоюет титул Золотого города, обретет могущество и даже уважение богов.Тип издания: RepackРазработчик: Hobo Bunch, GameparicЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95ED1F7526B9B2633A7A8F652945D61ABFFC4C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732243   (52313) от 24.06.2024
-
-El Dorado: The Golden City Builder (2024) [Ru/Multi] (332.1048973) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52313.jpg" />
-</div>
-
-
-###  Подробнее
-
-El Dorado: The Golden City Builder – это увлекательная стратегическая градостроительная игра, которая приглашает вас взять на себя роль лидера и создать могущественную империю на полуострове Юкатан. Ваша цель – превратить маленькое поселение в процветающий город, который завоюет титул Золотого города, обретет могущество и даже уважение богов.Тип издания: RepackРазработчик: Hobo Bunch, GameparicЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9133ADDFCF149A1DE96AF7953DCD18DD1F1E2BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

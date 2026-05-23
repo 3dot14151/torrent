@@ -1,3 +1,86 @@
+###  Публикация: 1625883   (199938) от 12.04.2023
+
+Kalacheva School, Анна Цымбал | Практическая линогравюра (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Линогравюра — один из классических видов ручной тиражной графики высокой печати. Вы вырезаете рисунок на листе линолеума, наносите на него краску и делаете отпечаток этого рисунка на бумаге, ткани или любой другой поверхности.
+
+Свои работы вы можете сделать в тираже. При этом каждый из экземпляров будет авторским и уникальным.
+(   Читать дальше...   )Производство: Kalacheva SchoolЖанр: ЛиногравюраЯзык озвучки: РусскийПродолжительность: 15:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9A180C7528E0E514D7A3760C317DA1CD25811C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626487   (199812) от 14.04.2023
+
+Refactoringui, Adam Watan | Refactoring UI – Complete Package (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как самостоятельно создавать красивые пользовательские интерфейсы, используя конкретные тактики, объясненные с точки зрения разработчика.
+
+Привет! Я Адам Ватан, разработчик полного стека, который раньше плохо разбирался в дизайне. Я много лет дружу со Стивом Шогером, и мы вместе работали над несколькими сторонними проектами — он занимался дизайном пользовательского (   Читать дальше...   )Производство: RefactoringuiЖанр: UI ДизайнЯзык озвучки: АнглийскийПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DD08480BD9CEB137EA29E56502D1C194F2231E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626492   (199769) от 14.04.2023
+
+Designcode, SOURASITH PHOMHOME | UI Design Android Apps in Figma (2023) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Создавайте пользовательские интерфейсы приложений для Android с нуля, используя различные приемы и приемы в Figma.Производство: DesigncodeЖанр: UI ДизайнЯзык озвучки: АнглийскийПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9C5AA13692B711E9FBC7A81D2E4041A408C2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626901   (199768) от 16.04.2023
 
 Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN Sub]
@@ -6,7 +89,7 @@ Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +118,7 @@ The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +144,7 @@ CG Fast Track | Geometry Nodes Boot Camp Vol. 1 (Blender 3.4) (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -88,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -114,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -143,7 +226,7 @@ Udemy, Joakim Tornhill | The Blender Path to Procedural Patterns! (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -170,7 +253,7 @@ Udemy, Joakim Tornhill | The Emitter Particle Course for Blender 2.8 and above (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -197,7 +280,7 @@ Udemy, Joakim Tornhill | Shader Magic in Blender 3.41 and above (2023) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -225,7 +308,7 @@ Udemy, Joakim Tornhill | A Workflow to Create Realistic Material in Blender (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -251,7 +334,7 @@ Udemy, Joakim Tornhill | All About Eevee for Blender 2.8 and above (2020) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -278,7 +361,7 @@ CGcircuit, Tim Van Helsdingen | Aggregation – Rigid body Self Assembly (2021) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -307,7 +390,7 @@ CGcircuit, Radu Cius | Houdini Tutorial Procedural Modeling – Escalator (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -336,7 +419,7 @@ Kalacheva School, Вероника Калачева | Акварель 2.0 (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -364,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -393,7 +476,7 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP 2 (2022) WEB-DL [Без о�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -419,7 +502,7 @@ ivelizar_, Елизавета Иванова | Exterior atmosphere training (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -447,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -503,7 +586,7 @@ Bangbangeducation, Анна Матвеева | Дизайн мобильных �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -529,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -558,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -587,7 +670,7 @@ Kalacheva School, Вероника Калачева | Композиция си�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -616,7 +699,7 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -629,90 +712,6 @@ Enterclass, Мария Хаэт | Рисование карандашом (2023)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F2DF47F8FF330D8B712D5ED7D211E25808D1F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632975   (198526) от 12.05.2023
-
-Ким Воронин | Изнанка дизайна 2.0 (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что за проект:
-Презентация для выступления в Торговой палате
-
-− Покажу все созвоны с клиентом(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 06:54:40Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5002A9A82A434D48A757C627314E0BFC38C3B86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633002   (198520) от 12.05.2023
-
-Сергей Гуров | Серия интенсивов «Игра в типографику» (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия интенсивов «Игра в типографику» была задумана с прицелом на работу с референсам. Эти референсы мы берем из смежных областей дизайна (таких как печатный дизайн, айдентика, моушен, живопись или графика) и используем их как материал для сборки нестандартных решений в проектировании веб-страниц (интерактивный формат).
-
-В этот раз «Игра» будет посвящена Истории (   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 24:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4DE7CCA66B086AC73F97742DE7BEE378B29D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633131   (198444) от 13.05.2023
-
-Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели изучить геометрические ноды, но не знали, с чего начать, или были ошеломлены ими? Мы рассмотрим ВСЕ геометрические ноды и ВСЕ их опции и попутно создадим несколько потрясающих сцен!
-Этот курс структурирован таким образом, что каждое видео знакомит с новым геометрическим нодом. С каждым новым нодом, который мы изучим, мы будем опираться на предыдущие (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, Geometry NodesЯзык озвучки: АнглийскийПродолжительность: 42:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F1AA8043CCE6691B55E57E3B11579ADFCF7C14
 ```
 
 https://mybot314.ru/tekegram_catalog/

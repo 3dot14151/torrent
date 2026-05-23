@@ -1,3 +1,292 @@
+###  Публикация: 1152314   (599576) от 02.05.2022
+
+Ricchi E Poveri - Богатые и Бедные (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Мама Мария · Mamma Maria
+A2 Бедные · Poveri
+A3 Чудесный Вечер · Magnifica Serata
+A4 Недоразумение · Malinteso(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548628   (598193) от 03.05.2022
+
+Triosphere - Studio Albums (3 releases) (2006-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Triosphere — норвежская Power/Progressive Metal группа из Тронхейма, созданная в 2004 году вокалисткой и басисткой Идой Хаукланд и гитаристом Мариусом Сильвером Бергесеном.2006 - Onwards
+2010 - The Road Less Travelled
+2014 - The Heart of the MatterЖанр: Power/Progressive MetalПродолжительность: 02:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039077   (597791) от 31.07.2016
+
+Ленинградский Ансамбль Джазовой Музыки п/у Д. Голощекина - 15 Лет Спустя (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Приятным Звуком
+02. Я Люблю Тебя, Порги
+03. Это Могло Случиться С Тобой
+04. Мне Бы Полюбить Тебя(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58444272C6F14D7C056D84BCD585DA3887E4694F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162379   (597751) от 03.05.2022
+
+Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Любовные Письма На Песке
+02. Звездная Пыль
+03. Они Не Могут Взять Это У Меня
+04. Бернадина(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039176   (597630) от 31.07.2016
+
+Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image|Vinyl-Rip]<Album Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Every Little Thing (3:45)
+ 02. Don't Let Go (3:02)
+ 03. Lift Me Up (3:38)
+ 04. Nobody Home (3:54)(   Читать дальше...   )Жанр: Album RockПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B40376CB55FF08130DE88DC89A60AF3D1DFBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171052   (597590) от 03.05.2022
+
+VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Modjo - Lady (Hear Me Tonight)
+02. Spiller - Groovejet (If This Ain't Love) (Radio Edit)
+03. Billie Piper - Day & Night
+04. Camilla Brinck - Bye Bye forever(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162073   (597588) от 03.05.2022
+
+Argo/ Арго - Discophonia/Дискофония (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 A1
+A2 A2
+A3 A3
+A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172599   (597582) от 03.05.2022
+
+VA - Heavenly Bodies: Original Motion Picture Soundtrack (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Soft Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+A1 Bonnie Pointer - The Best In Me
+A2 Sparks - Breaking Out Of Prison
+A3 The Tubes - Out Of Control
+A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, SoundtrackПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314976   (597581) от 03.05.2022
+
+Middle Of The Road - It's the Middle Of The Road (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Yellow Boomerang
+02. Universal Man
+03. See The Sky(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039325   (597369) от 31.07.2016
+
+Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On Ridin' (3:43)
+02. Flyin' High (3:20)
+03. Roller (4:41)
+04. Free 'n' Easy (3:06)(   Читать дальше...   )Производство: Bronze Records, EMI-Toshiba - WBS-71017Жанр: Hard RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299572   (595897) от 03.05.2019
 
 ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Texas Blues>
@@ -6,7 +295,7 @@ ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +323,7 @@ VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +352,7 @@ Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -92,7 +381,7 @@ VA - Famous Jazz Singers/Знаменитые Джазовые Вокалист�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -121,7 +410,7 @@ VA - Famous Jazz Singers/Знаменитые Джазовые Вокалист�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -208,7 +497,7 @@ Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -237,7 +526,7 @@ VA - Песни На Стихи Андрея Вознесенского (1981) [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +555,7 @@ The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +584,7 @@ Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +613,7 @@ Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,36 +634,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549733   (592844) от 08.05.2022
-
-Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twisted Sister — американская глэм-метал-группа из Нью-Йорка.
-Глэм рок и металл, рваные чулки, тонны макияжа и лак для волос, вот вам формула успеха по канонам шока и песенного бунта. Смешав экстравагантный имидж с традиционным хэви металлом, эти ребята из Нью-Йорка оставили свой кричащий след на молодом поколении 80-х. Да, и как можно забыть бас гитариста бьющего (   Читать дальше...   )1982 - Under The Blade
-1983 - You Can't Stop Rock 'n' Roll
-1984 - Stay Hungry
-1985 - Come Out And PlayЖанр: Heavy Metal/Hard RockПродолжительность: 07:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB7C0E85787712182A6D13CF60A8EE7B11EAAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549888   (592470) от 10.05.2022
 
 Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Death Metal, Progressive Rock>
@@ -383,7 +642,7 @@ Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,64 +663,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549955   (592466) от 10.05.2022
-
-Mastodon - Дискография (15 albums) (2001 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive/Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mastodon — американская метал-группа из Атланты (США), в звучании которой соединились сладж, грув и прогрессив-метал с элементами стоунера. Основана в 2000 году барабанщиком Брэнном Дейлором и гитаристом Биллом Келлихером.2002 - Remission
-2004 - Leviathan
-2006 - Blood Mountain
-2009 - Crack the Skye(   Читать дальше...   )Жанр: Progressive/Sludge MetalПродолжительность: 14:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC2D182522D1529345B5F1C021AED4ACFDCCC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550208   (592446) от 10.05.2022
-
-Sting - Collection (8 Albums) (1985 - 2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sting (настоящее имя — Го́рдон Мэ́ттью То́мас Са́мнер (англ. Gordon Matthew Thomas Sumner); род. 2 октября 1951, Уоллсенд  — британский музыкант-мультиинструменталист, певец и автор песен, актёр, общественный деятель и филантроп. Вокалист группы The Police в 1976—1984 годах. С 1984 года выступает сольно.1985 - The Dream Of The Blue Turtles
-1987 - ...Nothing Like The Sun
-1991 - The Soul Cages
-1993 - Ten Summoner's TalesЖанр: RockПродолжительность: 06:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C49FF41CA21DD68F1C1009453571DDA407F144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551293   (590222) от 15.05.2022
 
 VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансарова, А. Горохов, Э. Хиль) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Pop, Retro>
@@ -470,7 +671,7 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +700,7 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +729,7 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,212 +743,6 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F522A15013992F2B2A0DA733DB978CFAFA2D4E51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551641   (589389) от 17.05.2022
-
-Billy Talent - Studio Albums (7 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Billy Talent — канадская рок-группа. Была сформирована под названием Pezz в Онтарио в 1993 году. Состав группы: Бенджамин Ковалевич, Иэн Ди’Сэй, Джонатан Гэллант и Аарон Соловонюк.1999 - Watoosh! (as Pezz)
-2003 - Billy Talent
-2009 - Billy Talent II
-2009 - Billy Talent IIIЖанр: Punk RockПродолжительность: 05:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEB64DDC9870C87808846C58D77D278B15B4AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809224   (588313) от 31.07.2014
-
-Electric Light Orchestra - Out Of The Blue (1977) 2LP  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588313.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. Standin' In The Rain (4:21)
-C2. Big Wheels (5:08)
-C3. Summer And Lightning (4:15)
-C4. Mr. Blue Sky (5:05)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C2844022BD79A6C25A115CF23B4C1369958FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358302   (585954) от 02.07.2011
-
-The Rolling Stones - Get Yer Ya-Ya's Out! (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock/Rock 'n' Roll/Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_585954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/Rock 'n' Roll/BluesПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358192   (585889) от 02.07.2011
-
-Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Everlasting Love (PWL Remix) [03:58]
- 02.  (I'll Never Be) Maria Magdalena [03:58]
- 03.  Secret Land [04:42]
- 04.  Heaven Can Wait [04:03]
- 05.  Hi! Hi! Hi! [04:10]
- 06.  We'll Be Together [04:09]
- 07.  In the Heat of the Night [05:19]
- 08.  Around My Heart [03:18]
- 09.  Little Girl [03:14]
- 10.  Loreen [04:11]1988Жанр: SynthpopПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552995   (584759) от 23.05.2022
-
-Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Look Back
-A2 The Journey
-A3 It's Easy
-A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041013   (584456) от 07.08.2016
-
-Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk, Soul,  Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584456.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Can't Stop Loving You
-A2 Georgia On My Mind
-A3 Hit The Road Jack
-A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: Funk, Soul,  Rhythm & BluesПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041019   (584429) от 07.08.2016
-
-Группа Стаса Намина - Сюрприз Для Мсье Леграна (1983) Repress 1984 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584429.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Подводный Замок
-А2 Лето Пикассо
-А3 Друг Покинул Этот Мир
-А4 Парафраз На Темы Песен(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,138 @@
 https://t.me/izofen
+###  Публикация: 1871413   (1069777) от 
+
+КВН-2026. Высшая лига. 1/4 финала, игра 1 (2026.05.16) SATRip
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Что такое КВН - это популярные юмористические игры, в которых команды различных коллективов (учебных заведений, вузов, предприятий и т. д.) соревнуются в импровизациях на заданные темы, разыгрывании заранее заготовленных сцен, остроумных ответах на вопросы и т. дТелекомпания: "Первый канал"Жанр: ЮморСубтитры: ОтсутствуютПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACE583E4502514E2AED66312C4F9D8B3504B341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871458   (1069740) от 
+
+КВН-2026. Высшая лига. 1/4 финала. Игра первая (2026) WEBRip [H.264/720p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Первая игра игра одной четвертой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Не беспокоить» (Балашиха); «Error 404» (Москва); Сборная РУДН (Москва); «Это они» (Москва).
+Конкурсы: Приветствие (Визитка), Разминка с жюри, СТЭМ, Музыкальный номер.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46317131A1B90340B691C2E36D17407B08E724FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871457   (1069675) от 
+
+КВН-2026. Высшая лига. 1/4 финала. Игра первая (2026) WEBRip [H.264/1080p]
+
+>>Юмор (ТВ)
+>>КВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Первая игра игра одной четвертой финала сезона 2026 года Высшей лиги КВН.
+Играют команды: «Не беспокоить» (Балашиха); «Error 404» (Москва); Сборная РУДН (Москва); «Это они» (Москва).
+Конкурсы: Приветствие (Визитка), Разминка с жюри, СТЭМ, Музыкальный номер.Телекомпания: "Первый канал"Жанр: ЮморЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4923BDBADEB37CB430873F4930E53223CEF1E016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871316   (1069585) от 
+
+Кстати (2026) WEBRip [H.264/1080p] (сезон 1, выпуск 107)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сто седьмой выпуск шоу «Кстати» с Азаматом Харламовым. Дорох сегодня Александр, а это уже звучит посерьёзнее, чем Денис, пока оставим его. Гостями сто седьмого выпуска стали: обычный семьянин – Влад Череватый; последний раз перед каникулами – Зоя Яровицына; несостоявшаяся следователь по особо важным делам – Анна Уколова. Музыкальная гостья: Сестрёнка.Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Влад Череватый, Анна Уколова, Сестрёнка, Зоя ЯровицынаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190C0DECA1B25D878370FCE7240149E904545912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870178   (1068680) от 
+
+Кстати (2026) WEBRip [H.264/1080p] (сезон 1, выпуск 106)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сто шестой выпуск шоу «Кстати» с Азаматом Харламовым. Дороха наконец-то взяли в ожидаемый блокбастер, такого ведущего пока придержим. Гостями сто шестого выпуска стали: креативный продюсер и вокалистка, которые почему-то играют в кино – Александр Петров и Елизавета Базыкина; возможно, пришли не на то шоу – Яна и Маргарита Кошкины; чемпионы мира по боксу – Всеволод (   Читать дальше...   )Производство: Россия | VK ВидеоЖанр: Ток-шоу, комедия, музыкаРежиссер: Станислав ИльченкоУчастники: Александр Петров и Елизавета Базыкина, Боксёры, Яна и Маргарита Кошкины, Cream SodaЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62382A0E5031C86970C2DE3153DF8A3C44699D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 106030   (1068524) от 
 
 Прожекторперисхилтон. Выпуски с 1 по 100 + Прожекторевровижн. Выпуск 1 и 2 [2008, SATRip, XviD] Мегараздача от knvforall
@@ -7,7 +141,7 @@ https://t.me/izofen
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -548,136 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2646A83DBFFB94DC6D3D13F13511F401D055D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863215   (1063608) от 03.04.2026
-
-Уральские пельмени. Карнавальная мощь (2026.04.03) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что можно представить, если услышать об уральских пельменях. Вкусный и любимый многими продукт, который стал уже традиционным на столе россиян, да и не только. Весёлые парни в мандариновых рубашках не дадут соскучиться и подарят отличное настроение всей семье.Телекомпания: СТСЖанр: ЮморУчастники: Дмитрий Брекоткин, Сергей Ершов, Сергей Исаев, Сергей Калугин, Вячеслав Мясников, Александр Попов, Андрей Рожков, Дмитрий Соколов, Максим Ярица, Илана ЮрьеваСубтитры: ОтсутствуютПродолжительность: 01:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCCAD567F3202B321D1A298B05BA9FD93B5BA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863253   (1063606) от 03.04.2026
-
-Сергей Орлов. Переходный возраст (2026) WEBRip [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Орлов разбирается, что отличает взрослого от подростка: умение платить налоги, вести домашнее хозяйство и не бояться школьных завучей. А ещё он пытается понять, кончается ли когда-нибудь переходный возраст, в котором как будто застряло большинство из нас.Производство: РоссияЖанр: комедия, концертРежиссер: Алексей Новиков, Данила КозловУчастники: Сергей ОрловЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B958CC90677E1F1CD1D6CB806DBD74B151DC5B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863227   (1063589) от 03.04.2026
-
-Камеди Клаб / Комеди Клаб / Comedy Club (2026.04.03) SATRip
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063589.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Comedy Club» был создан в 2005 году командой КВН «Новые армяне», в состав которой входили Артур Джанибекян, Артак Гаспарян, Артур Тумасян, Арташес Саркисян, Гарик Мартиросян и другие. Его идея была задумана ещё в 2001 году, когда Арташес Саркисян, побывав в США, увидел местный «Comedy Club». Временами стали появляться новые участники «Comedy Club», в основном из (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморАктеры: Павел Воля, Гарик Харламов, Тимур Батрутдинов, Александр Ревва, Дмитрий Сорокин, Зураб Матуa, Андрей Аверин, Марина Кравец и др.Субтитры: ОтсутствуютПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD435806A2CD1EC17BA4FB91B2B93C30253ECE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862433   (1063565) от 04.04.2026
-
-Истории большой страны (2026) WEBRip [H.264/1080p] (сезон 3, серии 1-3 из ??) (обновляемая)
-
->>Юмор (ТВ)
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новое комедийное шоу, которое подарит вам бесконечный поток смеха и позитива — Истории большой страны! Знаменитые российские актеры собрались вместе, чтобы представить зрителям серию юмористических скетчей, в которых отражена будничная жизнь обычных людей. От забавных ситуаций на работе до комичных моментов в семейной жизни – каждый эпизод проекта принесет (   Читать дальше...   )Производство: Россия / Комеди Клаб продакшн, NORM ProductionЖанр: ТВ-шоу, комедийное скетч-шоуРежиссер: Алёна КорчагинаУчастники: Мария Кравченко, Максим Лагашкин, Ольга Тумайкина, Алексей Маклаков, Михаил Полицеймако, Станислав Дужников, Алина Алексеева, Георгий Дронов, Татьяна Орлова, Юрий ИцковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B497FCA4D511FFA22502CF6EA280433563F62205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863422   (1063491) от 04.04.2026
-
-Сергей Орлов. Переходный возраст (2026) WEBRip [H.265/2160p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Орлов разбирается, что отличает взрослого от подростка: умение платить налоги, вести домашнее хозяйство и не бояться школьных завучей. А ещё он пытается понять, кончается ли когда-нибудь переходный возраст, в котором как будто застряло большинство из нас.Производство: РоссияЖанр: комедия, концертРежиссер: Алексей Новиков, Данила КозловУчастники: Сергей ОрловЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8197C3F86D5C7C008ACE7B2A7680C055CFFE1726
 ```
 
 https://mybot314.ru/tekegram_catalog/

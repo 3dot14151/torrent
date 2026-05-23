@@ -1,3 +1,57 @@
+###  Публикация: 1460857   (1022204) от 07.04.2021
+
+Чачапойя. Раскрытая тайна погибшей цивилизации / Chachapoya. Solving the Mystery of a Lost Civilisation (2008) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Чачапойя — доколумбова культура, существовавшая в Перу примерно в 900—1470 гг. н. э.
+Находилась на плато на территории современного департамента Амаcонас.
+Жители данной культуры создали множество монументальных каменных памятников: Куэлап, Гран-Пахатен, Лагуна-де-лос-Кондорес и др., а также большое количество саркофагов и мавзолеев в труднодоступных местах.Производство: Великобритания, Nat Geo TelevisionЖанр: Документальный, познавательный, историяРежиссер: Макс СаломонПеревод: Одноголосый  закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E450D3230E9B76B248EB734AED837F23C0FCC1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456556   (1022166) от 07.04.2021
+
+Великие изобретения. / Great Inventions (2020) HDTV [H.264/1080i] (сезон 1, серии 1-5 из 35) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Метрополитен, мосты, история туалета, первая бензиновая машина, и многие другие изобретения человечества в новом документальном цикле: "Great Inventions".Производство: Голландия, Германия, World Media Rights Productions, Doc.station Medienproduktion, Off the Fence, k22 Film & Entertainment, ZDF EnterprisesЖанр: Документальный, познавательный, научно-популярныйРежиссер: Ханна РоджерсПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB198CDC90B0A16DE7197630449DAA6FB7BEE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461331   (1021870) от 09.04.2021
 
 Люди силы (2014-2015) HDTV [H.264/1080i] (выпуски 1-10)
@@ -6,7 +60,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +86,7 @@ BBC. Уродливая красота / Ugly Beauty (2009) DVB
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +113,7 @@ BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +140,7 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +218,7 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +244,7 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +271,7 @@ PBS: Природа. Природа секса / Nature. The Nature of Sex. Sex 
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +297,7 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +375,7 @@ Animal Planet. Неизведанная Мексика / Wild Mexico (2014) HDTV
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +427,7 @@ BBC: Шкала времени. Кто убил Сталина? / Time watch. Wh
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +479,7 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +505,7 @@ Discovery: Последние тайны долины Царей / Valley of the
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +531,7 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +609,7 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -581,7 +635,7 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -607,7 +661,7 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,58 +672,6 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12F17C7DBC5027C305FEBF7C538CA364AD39AFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478738   (1010077) от 20.06.2021
-
-Бурдж-Халифа. Вертикальный город / Burj Khalifa. Dubai's Vertical City (2011) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история самой высокой башни, построенной человеком. Это история рабочих и инженеров, поднявшихся на 800 метров. Это история мужчин и женщин, работающих и живущих внутри здания. Мы проникнем далеко за кулисы: и эта история будет полная блеска и эмоций. Это уникальная история Бурдж-Халифа - самого высокого здания в мире, первого вертикального города.Производство: ОАЭ, GTV DubaiЖанр: Документальный, познавательный, инженерияРежиссер: Бербель ДжексПеревод: Двуголосый закадровый, профессиональный (Видеофильм)Субтитры: Русские, английскиеПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF218A3D2A6546B4CB84C8BF5DE39A727B45647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474936   (1009757) от 22.06.2021
-
-Разрушая границы: научный взгляд на нашу планету / Breaking Boundaries: The Science of Our Planet (2021) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Аттенборо и ученый Йохан Рокстрём исследуют разрушение экосистем Земли и то, как этот кризис можно предотвратить.Производство: США, Silverback FilmsЖанр: Документальный, познавательныйРежиссер: Джон КлейПеревод: Двуголосый закадровый, профессиональный (VSI Moscow)Субтитры: Русские (Forced, Full), английские (Forced, SDH), украинскиеПродолжительность: 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9A01A1CD2B7CE37261F8D93D64A9DC1A26C5F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

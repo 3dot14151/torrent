@@ -1,3 +1,109 @@
+###  Публикация: 1183279   (309055) от 13.11.2017
+
+Крым (2017) WEB-DLRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о любви, вере и чести, о силе духа и настоящей дружбе на фоне реальных событий крымской весны 2014 года.
+
+Судьба свела их в Крыму близ древнего города Мангуп-Кале. Это была любовь с первого взгляда… В непростые дни исторических перемен они должны сохранить свою жизнь и любовь.Производство: РоссияЖанр: Драма, БоевикРежиссер: Алексей ПимановАктеры: Роман Курцын, Евгения Лапова, Павел Крайнов, Павел Трубинер, Борис Щербаков, Елена Котельникова, Геннадий Яковлев, Алексей Комашко, Никита Зверев, Игорь БуяноверПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC369E53874976298A8DBF566DB910C4C7336FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260456   (308815) от 08.11.2018
+
+Сердце мира (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Егор работает ветеринаром на одной из тренировочных станций для охотничьих собак где-то в глуши. Лисы, олени, барсуки, собаки — это его жизнь. Живет он в пристройке рядом с домом хозяина. Лечит зверье, чистит клетки, следит за рабочими, встречает клиентов и их собак. С животными ему проще, чем с людьми. Он берется за любую работу, лишь бы стать своим для хозяина (   Читать дальше...   )Производство: Россия, Литва, Кинокомпания СТВ, Just a momentЖанр: ДрамаРежиссер: Наталия МещаниноваАктеры: Степан Девонин, Дмитрий Поднозов, Яна Сексте, Витя Оводков, Евгений Сытый, Екатерина ВасильеваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A459697D43E400AD1FA5622E27870B6108A8E813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 729150   (308738) от 02.12.2013
+
+Последняя роль Риты (2012) WEB-DLRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рита, известная российская актриса, популярность которой угасает. Молодой бизнесмен Антон, с которым она живёт в гражданском браке, собирается открыть свою киностудию, чтобы дать новое дыхание таланту Риты. Рита решает усыновить мальчика Ваню из детского дома. Это усыновление даёт импульс карьере Риты — её с сыном фотографируют на обложку журнала. Но контакта с Ваней (   Читать дальше...   )Жанр: МелодрамаРежиссер: Анатолий ГригорьевАктеры: Ольга Сумская, Александр Кобзарь0 Наталья Доля, Алексей Богданович, Ольга Волкова, Владимир Машук, Леся Самаева, Дмитрий Суржиков, Любава Грешнова, Галина КорнееваПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C255EFC7B21805B6BAF5ACAC8A6506F452FF77A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 205488   (308464) от 29.11.2014
+
+Война (2002) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Аслан Гугаев, командир отряда чеченских боевиков, отпускает троих пленников: двух русских солдат, сержанта Ивана Ермакова и рядового Кулика — потому что они не контрактники, а призывники, и англичанина Джона Бойла — потому что он должен собрать два миллиона фунтов стерлингов и привезти деньги Гугаеву в качестве выкупа за свою невесту Маргарет. Маргарет остается у (   Читать дальше...   )Производство: Россия, Кинокомпания CTBЖанр: Боевик, Драма, ВоенныйРежиссер: Алексей БалабановАктеры: Алексей Чадов, Иэн Келли, Ингеборга Дапкунайте, Сергей Бодров мл., Эвклид Кюрдзидис, Георгий Гургулия, Владимир Гостюхин, Бен Фостер, Юрий Степанов, Дэвид МакАллистерПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422589   (308339) от 09.11.2020
 
 Ехали два шофера (2001) DVDRip
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_306219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_304706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31057EA9FA6DFD08F0ECE805B09DA62733BA9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846286   (303754) от 01.12.2014
-
-Сын (2014) HDTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко переживая потерю матери, сын отправляется в путь, чтобы разобраться в себе, встретиться с сестрой, давно уехавшей из дома, взглянуть в глаза отцу, бросившему семью… Фильм-притча, фильм-сон, фильм-поэма - о любви и нелюбви между, казалось бы, самыми близкими людьми...Жанр: ДрамаРежиссер: Арсений ГончуковАктеры: Алексей Черных, Вадим Андреев, Елена Тонунц, Оксана Эрдлей, Лидия Омутных, Янина Когут, Валерий Карибьян, Ольга Малахова, Дмитрий КурьяновСубтитры: нетФормат: aviПродолжительность: 01:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B378D114E77AAEB85AB194071FBAF9911824AB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333573   (302963) от 25.10.2019
-
-Сельский детектив. Яблоня раздора (2019) SATRip [H.264] (фильм 1, серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олеся Федосеева – городская девушка со скучной работой и полным штилем в личной жизни. Однажды она узнает, что ее дед Василий подозревается в убийстве соседа, егеря Степана Блинова. Василий живет в деревне и в силу вредного характера не поддерживает никаких отношений ни с дочерью, ни с внучкой. Олеся решает навестить деда, который, доказывая невиновность, распереживался (   Читать дальше...   )Производство: Россия / СилаЖанр: детектив, криминалРежиссер: Сахат ДурсуновАктеры: Олеся Фаттахова, Александр Пашутин, Алексей Демидов, Данила Якушев, Елена Цыплакова, Павел Белозёров, Надежда Бахтина, Наталья Лукеичева, Алексей Овсянников, Анна Сафронова и др.Продолжительность: ~00:46:10+00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B8DC92E5F5AF111A00951E9A31B91F414C862C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261405   (302770) от 11.11.2018
-
-Бугорок Венеры (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302770.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к молодой семейной паре Анне и Андрею приходит сестра мужа Кристина, чтобы познакомить родственников с кандидатом в супруги - Алексеем. Интеллигентного вида мужчина сразу не вписывается в простые жизненные устои будущего шурина. Прямо с порога киногерой начинает делать замечания встретившему его в домашнем халате парню по поводу неправильных речевых выражений, (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драма, комедияРежиссер: Беата ГрушковскаяАктеры: Андрей Переверзев, Инна Плетнёва, Океана ЗубоваСубтитры: ОтсутствуютПродолжительность: 00:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFAE1EAF70FDDD8E95FE88F94038639F03A14EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261258   (302745) от 11.11.2018
-
-Эксперт (2017) WEBRip [H.264] (серии 1-2 из 2)
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшего специалиста в области безопасности Андрея Градова обвиняют в ограблении банка «Бастион», чью систему защиты он недавно проверял. Его заключают под стражу, но Градов сидеть за решеткой не намерен. Вместе с сокамерником Сергеем он сбегает из СИЗО. Попутчик не верит в правоту Андрея и угрожает ему, требуя поделиться украденными деньгами. Градову удается «оторваться» (   Читать дальше...   )Производство: Россия | Киностудия «КИТ», «Эн Джи Продакшн»Жанр: Криминал, мелодрамаРежиссер: Владимир ФатьяновАктеры: Павел Чинарёв, Александра Богданова, Андрей Стоянов, Игорь Лифанов, Тимур Ефременков, Станислав Эрдлей, Александр Кузнецов, Татьяна Шумова, Александр Воробьев, Александр ЧисловСубтитры: Русские (отдельно, в комментариях)Продолжительность: ~00:48:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960FF6EAE9FAA3AE54259C0ADD46DD8355070DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

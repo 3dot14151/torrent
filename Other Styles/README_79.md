@@ -1,3 +1,224 @@
+###  Публикация: 1228250   (637510) от 31.05.2018
+
+Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Cafe
+02. Earth Halo
+03. Evolving the Distance
+04. Passion for Life(   Читать дальше...   )Жанр: New Age, Relax, ChilloutПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519466   (637490) от 06.07.2012
+
+Лала Хоперъ и ансамбль Цыганская кибитка - Душа просит праздника !!! (2010) [MP3|256 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Кай ё не (2:07)
+ 2. Слово (1:07)
+ 3. Костёр в тумане светит (2:16)
+ 4. Нанге цоха (1:48)
+ 5. Красивая (3:36)
+ 6. Небо (3:10)
+ 7. Ночь костёр (3:21)
+ 8. Вольная (2:26)
+ 9. Запрягайте вороных (2:10)
+ 10. Только раз (3:31)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F345EF15F82A2C0A5A1EB26EE8A9C4535B88645A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146089   (637317) от 12.06.2015
+
+Буготак - Колёса должны вращаться (2009) [MP3|VBR~207 kbps]<сибирский этно-рок>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Бас барчызы (1:22)
+02. Всё чо схочешь (3:54)
+03. Мы сибиряки (3:52)
+04. Молодой шаман возвращается домой после окончания мединститута (3:36)(   Читать дальше...   )Жанр: сибирский этно-рокПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907183   (637313) от 12.06.2015
+
+Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HBO Series) Season 5 (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:46)
+02. Blood of the Dragon (01:34)
+03. House of Black and White (05:09)
+04. Jaws of the Viper (02:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519464   (637218) от 06.07.2012
+
+Людмила Гурченко - Песни военных лет (1984) [MP3|320 кб/с]<Военная песня>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Где же вы теперь, друзья-однополчане (1:35)
+ 2. Казак уходил на войну (0:59)
+ 3. Прощайте, скалистые горы (0:39)
+ 4. Заветный камень (0:58)
+ 5. Ой, туманы мои, растуманы (1:07)
+ 6. Дороги (1:04)
+ 7. Моя любимая (2:12)
+ 8. Кто сказал, что надо бросить песню на войне (0:43)
+ 9. В лесу прифронтовом (1:15)
+ 10. Вечер на рейде (1:02)(   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BCDB6576A7FF78B17E9812FC98BFFFDA172F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142907   (637061) от 17.06.2017
+
+Хор братии Спасо-Преображенского Валаамского монастыря - Северный Афон (1999) [MP3|320 Kbps] <Песнопения>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Благовест / Агни Парфене (прп. Нектарий Аэгинский)
+02. Господи воззвах, глас 1 - Византийский распев
+03. Догматик, глас 1 - Византийский распев
+04. Возбранной Воеводе, глас 8 - Византийский распев(   Читать дальше...   )Жанр: ПеснопенияПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16AC08196C6D2D69D89A65D6432DBAA65E18C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519433   (636910) от 06.07.2012
+
+Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Truth Of Touch
+02. Vertigo
+03. The End Of August
+04. The Rain Must Fall
+05. Felitsa
+06. Voyage
+07. Nightingale
+08. Ode To Humanity
+09. Niki Nana
+10. One Man's DreamЖанр: New AgeПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033760   (636142) от 12.07.2016
 
 Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +227,7 @@ Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +253,7 @@ George Winston - Night Divides The Day - The Music Of The Doors (2002) [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +282,7 @@ Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +311,7 @@ Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, Ho
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +340,7 @@ Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Kr
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +369,7 @@ Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +398,7 @@ VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу пе�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -212,7 +433,7 @@ Metafora - Flores Alvarez (2012) [MP3|320 кб/с]<instrumental metal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +468,7 @@ VA - What are you thinking about soldier / О чем задумался, слу�
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -282,7 +503,7 @@ VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -317,7 +538,7 @@ VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +567,7 @@ Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_635350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +602,7 @@ VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk 
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -416,7 +637,7 @@ VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-пе
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +672,7 @@ Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +701,7 @@ The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +730,7 @@ VA - Legends (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +759,7 @@ Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +788,7 @@ Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,206 +802,6 @@ Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D233031FD971BC6E7AC4F408836CDDACF2AEEE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228342   (633916) от 02.06.2018
-
-VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 La Jose - La Ruta
-02 Vasco Hernandez - Cal y Arena
-03 Los Alhama - Gitana
-04 Thomas Koch - Armonia(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DFC029A9EFF84D67003FB0D1570366CDAC589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293964   (633610) от 05.04.2019
-
-Piano Peace - Melancholy Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Melancholia
-02 Silent Woods
-03 Wonders
-04 The Darkness(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFC5B41D8CA4C68CCF235781A34410FF10C83D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542547   (633564) от 09.04.2022
-
-VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <Classical, Folk, World, Country, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnaldo Rayol & Charlotte Church - Tormento d' amore.
-02. Jose Augusto - 'O sole mio!.
-03. Toquinho - Comme facette mammeta.
-04. Emlio Santiago - La signora di trent' anni fa.(   Читать дальше...   )Жанр: Classical, Folk, World, Country, Stage & ScreenПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFFF95ED63B2D1F6CAD4E6FC1DA69FFD783EC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143627   (633024) от 19.06.2017
-
-Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .cue] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andalu (5:32)
-02. Quiver (5:12)
-03. Field Of Tears (3:13)
-04. Eros (5:35)(   Читать дальше...   )Жанр: New Age, Electronic |Продолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5BDDCC3E4081008AC38896F2E3D9BC6C6DF6D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034563   (632438) от 14.07.2016
-
-Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisters [00:04:46]
-02. Free At Last [00:05:18]
-03. Butterfly [00:05:07]
-04. Relax and Enjoy [00:04:54](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BA070049B746FE8889B3A922E010680B699A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 349866   (632031) от 12.06.2011
-
-Steve Grossman - Standards (1985) [MP3|224 kbps]<Instrumental,Saxophone Jazz>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental,Saxophone JazzПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F811CA289070C9D33F4287F64E1462F5CA5C648
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143890   (631485) от 20.06.2017
-
-John Denver - The Real... John Denver (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Rocky Mountain High
-02. Leaving On A Jet Plane
-03. Rhymes And Reasons(   Читать дальше...   )Жанр: CountryПродолжительность: 03:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114ADBEC23D15614F3CCBA115358CD22248A2C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

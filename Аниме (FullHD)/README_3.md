@@ -1,3 +1,55 @@
+###  Публикация: 1446085   (1024859) от 23.03.2021
+
+Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия ведьмы: Путешествие Элейны [2020, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ведьма по имени Элейна странствует, посещает самые разные места и встречает разных людей. Иногда весёлая, иногда фантастическая, иногда даже немного мрачная — это история Элейны и её долгого путешествия.Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26141DD9BC9DFEB47A1FCE990E3A0465D78251B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458482   (1023831) от 29.03.2021
+
+Mahou Shoujo Lyrical Nanoha The Movie 1st | Magical Girl Lyrical Nanoha The Movie 1st | Лиричная волшебница Наноха (фильм первый) [2010, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если твой город, весь твой мир внезапно затянуло в орбиту амбиций, интриг и политических игр неведомых, но явно высших сил? Для 9-летней Нанохи Такамати из тихого городка Уминари ответ ясен: надо драться, а что дальше – бой покажет! Симпатичная рыжая девочка, выросшая в семье мастеров меча и кулинарии, вовсе не растерялась, когда на голову в прямом смысле (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, махо-сёдзёРежиссер: Кусакава КэйдзоПеревод: Hunk & ShinyaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 130 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A5D311C655839E6F3713797B8C2FBDE9FD20C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458483   (1023821) от 29.03.2021
 
 Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебница Наноха (фильм второй) [2012, Movie] BDRip 1080p raw
@@ -6,7 +58,7 @@ Mahou Shoujo Lyrical Nanoha The Movie 2nd A's | Лиричная волшебн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Ата
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Kaitou Saint Tail | Mysterious Thief Saint Tail | Таинственная гр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Romeo no Aoi Sora | Romeo's Blue Skies | Голубые небеса Ромео 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Cutie Honey Universe | Cutey Honey Universe | Вселенная Милашки 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +558,7 @@ Date a Bullet | Рандеву с пулей [2020, Movie, 2 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +584,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Spring Song | Судьба: Ночь
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Himouto! Umaru-chan R | Beautiful Little Sister! Umaru-chan R | Двулична
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Boku no Kanojo ga Majime Sugiru Shobitch na Ken | My Girlfriend is Shobitch | М
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Sanzoku no Musume Ronja | Ronja, the Robber's Daughter | Рони, дочь ра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,58 +674,6 @@ Sanzoku no Musume Ronja | Ronja, the Robber's Daughter | Рони, дочь ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE275451F54E1FB116418BB4F451F7D992B116DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095801   (1020347) от 18.04.2021
-
-Морская школа | High School Fleet | Haifuri [2016, TV, 12 эп. + 2 OVA + Movie] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в нашем светлом будущем, где из-за движения литосферных плит и прочих тектонических процессов под водой оказались многие города и даже страны. Чтобы защищать новые прибрежные поселения и охранять моря, было сформировано специальное подразделение, получившее название «Лазурные Русалки» и состоящее почему-то исключительно из девушек. Означенных (   Читать дальше...   )Производство: студия Production IMSЖанр: приключенияРежиссер: Нобута ЮПеревод: Timecraft (TV); SovetRomantica (OVA); Unknown (Movie)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 2 OVA по 25 мин.; 105 мин. - фильм
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9A5BA268B06868DC57DA6DF270A075E724BF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432851   (1019898) от 21.04.2021
-
-Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School: Visitor Arc | Непутевый ученик в школе магии [ТВ-2] [2020, TV, 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019898.jpg" />
-</div>
-
-
-###  Подробнее
-
-31 октября 2095 года. Из-за воздействия неизвестного стратегического заклинания с лица земли исчез военный город на южном окончании Корейского полуострова и целый флот. Позже этот день назовут «Раскалённым Хэллоуином», а весь мир вздрогнет, осознав, что на свет появился ещё один маг стратегического назначения. Тут и магическое подразделение Североамериканских Соединённых (   Читать дальше...   )Производство: Студия 8bit / エイトビットЖанр: приключенияРежиссер: Ёсида РисакоПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C540FD292BD94636CC5F576DE5517E22008CCB64
 ```
 
 https://mybot314.ru/tekegram_catalog/

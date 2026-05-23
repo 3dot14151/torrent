@@ -1,3 +1,206 @@
+###  Публикация: 1617826   (250232) от 08.03.2023
+
+VA - Хорошо сидим ! Песни русского застолья (1996) [MP3|320 Kbps] <Folk> [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Коробейники
+02. Ой, цветет калина
+03. Дождливым вечером
+04. Ромашки спрятались(   Читать дальше...   )Жанр: FolkПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD04C0DFAACD4BF7C6293A13EC044F7482B7F3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617970   (250109) от 09.03.2023
+
+VA - Enigma-Forest-Transit 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Slavik... Kemmler - Indian Spirit
+02. Deep Forest - Media Luna
+03. Sacred Earth Drums - Prayer for the Four Directions
+04. Anugama - Tropical Morning(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241A4122FB6441EC576ACE3A77736A1A7BCECBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618146   (250082) от 10.03.2023
+
+Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [FLAC 2.0|48/24|WEB-DL|tracks] <Folk, Medieval>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon (25th Anniversary New Mix)
+2. The Clock Ticks On (25th Anniversary New Mix)
+3. Be Mine Tonight (25th Anniversary New Mix)
+4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBD45CA8565D5BC88BA6C8664D89E76115DC330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618311   (249958) от 12.03.2023
+
+VA - Lilja 4-ever OST (2002) [FLAC|Lossless|tracks + .cue] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01 - Rammstein - Mein Herz Brennt (Film-remix) 01:52
+02 - Via Gra - Bomba 3:27
+03 - Fläskkvartetten - O Virtus Sapientie 4:49
+04 - Nathan Larson - The Bridge 1:19(   Читать дальше...   )Жанр: OSTПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618732   (249939) от 12.03.2023
+
+VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Nostradamus - The Whisper of an Angel
+02. Delerium - Incantation
+03. Praise - Only You
+04. Robbie Robertson & The Re Road Ensemble - Mahk Ichi(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618727   (249908) от 12.03.2023
+
+Drayton Farley - Twenty On High (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Stop the Clock (3:10)
+02. Norfolk Blues (3:34)
+03. Wasted Youth (3:23)
+04. Above My Head (4:42)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760BCC75D56CDDABB4974C7AD8B5440E53100CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618620   (249642) от 16.03.2023
+
+VA - Enigma-Forest-Transit 9 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Gregorian - Whatcha Gonna Do
+02. Oliver Shanti & Friends - Sangha's Love for Amitabha
+03. Osamu Kitajima - Blue Fire
+04. Ghostland - Guide me God(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F241346423613248E9BC1F9E896486735B30F27B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619496   (249639) от 16.03.2023
 
 Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
@@ -6,7 +209,7 @@ Delerium - Signs (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Enigma-Forest-Transit 12 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Fausto Papetti - Somethin' Saxy (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Inst
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Fausto Papetti - I Remember (1968) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Francisco Garcia - Romantic Guitar Hits (3CD) (1993) [MP3|320 кб/с]<Instrumen
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -157,7 +360,7 @@ Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +395,7 @@ Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|1
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -227,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -262,7 +465,7 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +500,7 @@ Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, N
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -329,7 +532,7 @@ Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -360,7 +563,7 @@ Uncle Noking - Время историй (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -389,7 +592,7 @@ Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -418,7 +621,7 @@ VA - Mystera III (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -447,7 +650,7 @@ VA - Mystera (1998) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -476,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -505,7 +708,7 @@ Enigma - The Cross Of Changes (1993) [OGG Vorbis|630 Kbps] <New Age, Downtempo, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -534,7 +737,7 @@ Japanese Relaxation and Meditation - Reiki Japanese Meditation: Remove All Energ
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -563,7 +766,7 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -577,209 +780,6 @@ Frantz Amathy - In the Presence of Angels (2008) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B51092B26DC3146F6F80C8AE13235C75587403AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623777   (242996) от 04.04.2023
-
-Restless Heart - Greatest Hits (1998) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No End To This Road  [03:23]
-02. Let the Heartache Ride  [03:38]
-03. (Back to the) Heartbreak Kid  [03:51]
-04. That Rock Won't Roll  [03:30](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE71D2DB856B6799E8A75F5B9DB5F411DCAA3880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359955   (242786) от 15.02.2020
-
-VA - Moods: A World Of Emotions (2014) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New Age, Modern Classical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clannad - Theme From Harry's Game (2:30)
-02. Enigma - Return To Innocence (4:09)
-03. Mike Oldfield - Tubular Bells (4:16)
-04. Ennio Morricone & His Orchestra - Chi Mai (5:07)(   Читать дальше...   )Жанр: New Age, Modern Classical, InstrumentalПродолжительность: 02:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE657B56AE25E4C9E354515B8637D40E5E1E251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615159   (242782) от 25.02.2023
-
-Tanzwut - Silberne Hochzeit (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Neue Deutsche Harte, Folk Metal, Industrial Metal>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Labyrinth (04:36)
-02. Ihr wolltet Spass (03:41)
-03. Meer (05:02)
-04. Was soll der Teufel im Paradies (04:21)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Folk Metal, Industrial MetalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C4E84DB129BD9D42065EE252044169333985E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541035   (242694) от 03.04.2022
-
-Hush Money - Industry Standard (2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over and Over
-02. You're Gone
-03. Starfish Blues (Bottom of the Sea)
-04. Open up Your Mind(   Читать дальше...   )Жанр: Modern Hard Rock, Southern RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62800AE88428CE9CE7F0846DBF83D81CFE801BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362591   (242474) от 24.02.2020
-
-Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242474.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:07| 01. Bad News
-|02:02| 02. Revelation
-|01:03| 03. SOS
-|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB4666B1A660480C134C899FB351B0A0914EA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362592   (242458) от 24.02.2020
-
-Rob (Robin Coudert) - Seuls / Одни (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242458.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:07| 01. Bad News
-|02:02| 02. Revelation
-|01:03| 03. SOS
-|00:37| 04. Diner(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C375E76EEEA42984F6E8FA890591070FA2B07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624083   (242316) от 05.04.2023
-
-Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Country, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acoustic Country Music [03:07]
-02. Country Chillout [04:33]
-03. Mellow Country [03:59]
-04. Heart of Country [03:54](   Читать дальше...   )Жанр: Country, InstrumentalПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A755E11C4DE7D56C531FB1EC0B20E4F7D2A574D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

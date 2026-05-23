@@ -1,3 +1,82 @@
+###  Публикация: 1603142   (1045808) от 08.01.2023
+
+MobileSheets Music Viewer v3.6.8 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+MobileSheets - это лучшая программа для просмотра нот для планшетов Android. Установите эту пробную версию, чтобы избавиться от необходимости таскать с собой книги и папки, а также получить доступ к любой партитуре в вашей библиотеке за секунды. Он также имеет ряд мощных функций для музыкантов, в том числе:Тип издания: FullРелиз состоялся: 07.01.2023Разработчик: ZubersoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7019177FEE67B06D6080EF88DE796DB4ADCB770
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604675   (1045271) от 14.01.2023
+
+SUXOV v2.2.4 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для постобработки фотографий и видеороликов. Немало мощных фильтров. Имитация пыли. Возможность менять экспозициию и насыщенность.Тип издания: ProРелиз состоялся: 13.01.2023Разработчик: Sergey SukhovПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC788686908137C31F1171C0E5FD999377AEB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 672425   (1044176) от 24.01.2023
+
+Мобильный электрик v5.0 [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Программа предназначена для электрических расчетов, которые используются в работе электрика и домашних мастеров. Возможность сохранения результата расчета сечения в текстовом формате,с последующим просмотром.
+По каждому расчету (кроме законов Ома) дана отдельная справка.Тип издания: Pro (с Маркета)Релиз состоялся: 29.12.2022Разработчик: Анатолий ТарасенкоПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAC1603D5D568E5B7BB4445414798BDCE669C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372430   (1043385) от 01.02.2023
 
 Флорист-X v1.8.165 [Ru]
@@ -6,7 +85,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +164,7 @@ Solar System Scope v3.2.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +190,7 @@ Free Guitar Tuner v4.0.0 Premium [En] - Fender Tune
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +216,7 @@ MobiDic Guitar Chords v2.6 Pro [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +268,7 @@ Folio v3.6.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +294,7 @@ GnaCAD v2.8.48 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +373,7 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +428,7 @@ VPN Russia - VPN сервера в России 1.158 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +454,7 @@ Bike Computer v1.8.4.2 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +506,7 @@ AGAMA Car Launcher v2.7.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +532,7 @@ AI Translate v3.1.1 Premium [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -482,7 +561,7 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +588,7 @@ ICQ New Мессенджер v9.20.1(824739) [Ru/Multi] - Общение, чат
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +614,7 @@ Tody v1.9.4 Premium [Ru] - уборка по-умному
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +668,7 @@ Weather XL PRO v1.4.7.4 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,86 +679,6 @@ Weather XL PRO - погодное приложение, что по факту �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613149   (1039831) от 17.02.2023
-
-Медпомощь При ДТП v1.1.7 [Ru/Ua]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение представляет собой пособие по оказанию экстренной медицинской помощи при ДТП. Содержит в себе алгоритм действий в первые минуты после аварии, особенности оказания первой помощи в тяжелых условиях, а также:Тип издания: ProРелиз состоялся: 12.08.2022Разработчик: Monolith publisherПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2E28D2E01E7B84D34BF42E176B3511B83BB237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439510   (1039779) от 13.01.2021
-
-Славяно-Арийский Календарь v31 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний Славяно-Арийский Календарь-Часы (Коляды Дар) с конвертером: нумерология, славянский гороскоп и многое другое.
-Гой еси! Представляем Вашему вниманию приложение Славяно-Арийский Календарь (Коляды Дар, Даарийский Круголет Числобога) - древний календарь наших предков староверов.
-Календарь-Часы содержит конвертер времени и настройки, интерфейс календаря кликабельный. (   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 21 сентября 2020 г.Разработчик: VodiaПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439713   (1039500) от 14.01.2021
-
-Дорожные Знаки ПДД v3.1.0 [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный тренажер, который поможет вам, за несколько дней выучить все знаки дорожного движения России 2021 года. Приложение содержит 280 авторских вопросов, разбитых на 14 билетов. Изучайте знаки дорожного движения РФ в метро или очередях. Отсутствие интернет соединения не критично. Содержит все самые последние нововведения прошедшего 2020 года. Удачи на дорогах! (   Читать дальше...   )Тип издания: Пиратка (AdFree - без рекламы)Релиз состоялся: 02.01.2021Разработчик: Oleg BarkovПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8B76124AFF47628FF33B9A6F9251E9E6E16398
 ```
 
 https://mybot314.ru/tekegram_catalog/

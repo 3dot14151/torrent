@@ -1,3 +1,119 @@
+###  Публикация: 1722770   (56724) от 13.05.2024
+
+Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Дарю это собрание клипов легендарного дуэта, всем кто любит музыку 80х. Сделал всё что смог, из того материала, который нашёл для реставрации, в приемлемом качестве. Творчество Modern Talking, приятно и смотреть и слушать. Чтобы понять гениальность этой музыки, рекомендую послушать их альбомы 80х, в формате FLAC, в хороших наушниках, с нормальным усилителем. Откроете (   Читать дальше...   )00. Intro
+01. Atlantis Is Calling (S.O.S. For Love)
+02. You're My Heart, You're My Soul
+03. Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, DiscoКачество: WEBRipПродолжительность: 03:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91810CD76CDF6A4DBC7E0DD789EB5E9FB3049C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722538   (56653) от 13.05.2024
+
+Emma Shapplin (1997-1999) DVDRip [MPEG2]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эмма Шапплин (настоящее имя - Кристель Мадлен Жолитон) – французская певица, композитор и продюсер, выступающая в жанре классического кроссовера.
+
+В раздаче представлены видеоклипы с официальных изданий
+Emma Shapplin - The Concert In Caesarea 2003 DVD5(   Читать дальше...   )01 Emma Shapplin - Cuor Senza Sangue 1997 (DVD5)
+02 Emma Shapplin - Spente Le Stelle 1997 (DVD5)
+03 Emma Shapplin - Discovering Yourself 1997 (DVD5)
+04 Emma Shapplin - Cuor Senza Sangue (The Concert In Caesarea Israel) 1999(   Читать дальше...   )Жанр: Classical Crossover, Neoclassica
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC56229FCD4EF7FFCD01ED281838421BA1585B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723202   (56499) от 15.05.2024
+
+Modern Talking - Video Collection (2024) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Дарю это собрание клипов легендарного дуэта, всем кто любит музыку 80х. Сделал всё что смог, из того материала, который нашёл для реставрации, в приемлемом качестве. Творчество Modern Talking, приятно и смотреть и слушать. Чтобы понять гениальность этой музыки, рекомендую послушать их альбомы 80х, в формате FLAC, в хороших наушниках, с нормальным усилителем. Откроете (   Читать дальше...   )00. Intro
+01. Atlantis Is Calling (S.O.S. For Love)
+02. You're My Heart, You're My Soul
+03. Cheri Cheri Lady(   Читать дальше...   )Жанр: Pop, DiscoКачество: WEBRipПродолжительность: 03:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CF46D233D9DA3AF063DE3812519ADA0210AFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649908   (55436) от 25.05.2024
+
+Bomfunk MC's - Video collection (1998-2019) DVDRip, TVRip, WEBRip [H.264/1080p] [Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cборник видеоклипов финской музыкальной группы, пик популярности которой пришёлся на вторую половину 90-ых и первую половину "нулевых".Жанр: Electronic breakbeat, Freestyle, Hip-HopРежиссер: Раймонд Эбанкс, Яакко СаловаараАктеры: Рэймонд Ибэнкс, Исмо Лаппалайнен, Яакко СаловаараПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8B082789C0A32573B6E0FE1712DEB7A1687B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 241116   (51554) от 30.06.2024
 
 Chris Isaak  "BEST OF" (2006) DVD5
@@ -6,7 +122,7 @@ Chris Isaak  "BEST OF" (2006) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +151,7 @@ ZZ Top: Greatest Hits (2004) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +206,7 @@ Shocking Blue - Greatest Hits Around the World (2004) DVD-5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +232,7 @@ Status Quo - "XS All Areas" (2004) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +262,7 @@ Cinderella / Cinderella Rocked, Wired & Bluesed The Greatest Video Hits (2005) D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -175,7 +291,7 @@ Genesis - The Video Show 2004 DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -204,7 +320,7 @@ W.A.S.P. / 1993 - First Blood... Last Visions... (2007) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -233,7 +349,7 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -262,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -288,7 +404,7 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -314,7 +430,7 @@ Metallica - The Videos 1989-2004 (2006) DVD-9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -343,7 +459,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -369,7 +485,7 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +514,7 @@ ABBA - Super Troupers (Ultimate Edition) (2004) [2xDVD5, DVD9]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +569,7 @@ Bjork / Greatest Hits: Volumen 1993-2003 (2003) DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +598,7 @@ Paul Van Dyk. Video collection (1994 - 2024) DVDRip, WEBRip [H.264/1080p] [handm
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +654,7 @@ Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,7 +680,7 @@ Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K,
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,7 +706,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -601,110 +717,6 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D012F94C0EFCE944E31A46024A0CAC4F3C9D64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764202   (35025) от 06.12.2024
-
-Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35025.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Roar» (с англ. — «Рёв») — песня, записанная американской певицей Кэти Перри для её четвёртого студийного альбома Prism (2013). Клип был выпущен 5 сентября 2013 года, режиссерами выступили Грейди Холл и Марк Кудси, а съемки проходили в Дендрарии и Ботаническом саду округа Лос-Анджелес.Жанр: Пауэр-попПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF61D44BCD14524494E8EBC647D2EF05D0F59A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764205   (35020) от 06.12.2024
-
-will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35020.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Scream & Shout» — песня американского рэпера will.i.am, записанная при участии Бритни Спирс и выпущенная 20 ноября 2012 года в качестве третьего сингла из альбома #willpower. Премьера клипа на песню «Scream & Shout» состоялась в США во время прямого эфира шоу The X Factor 28 ноября 2012 года и была доступна для просмотра на Vevo сразу после трансляции шоу (   Читать дальше...   )Жанр: Данс-попПродолжительность: 00:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4152ED94568DC19247109C53A573E7A3070D6AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764199   (35007) от 06.12.2024
-
-Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35007.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Godzilla» — песня американского рэпера Эминема при участии американского рэпера Juice WRLD из одиннадцатого студийного альбома Эминема Music to Be Murdered By (2020). Песня является первым посмертным релизом Juice WRLD после его смерти в декабре 2019 года. 6 марта 2020 года Эминем выпустил фрагмент музыкального клипа в сотрудничестве с Lyrical Lemonade. Музыкальный (   Читать дальше...   )Жанр: Хардкор-хип-хоп, хорроркорПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315856E3788C608FE20AF8619EA266DC4585FD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764198   (35005) от 06.12.2024
-
-Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35005.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Berzerk» (c англ. «Берсерк») — песня, которую написал американский рэпер Эминем, выпустил в качестве первого сингла из своего восьмого студийного альбома The Marshall Mathers LP 2. В начале ролика зритель видит стоящий на крыше многоэтажного дома бумбокс с лежащей на нём кассетой. Дом стоит в окружении более высоких. Далее к бумбоксу подходит Eminem и наклонившись (   Читать дальше...   )Жанр: рэп-рокПродолжительность: 00:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A743CECBCC602B01B0D3D40E1F0BA08A307357
 ```
 
 https://mybot314.ru/tekegram_catalog/

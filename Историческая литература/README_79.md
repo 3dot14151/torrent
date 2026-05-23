@@ -1,3 +1,86 @@
+###  Публикация: 956644   (329399) от 15.11.2015
+
+И. В. Сталин | Стихи. Переписка с матерью и родными (2005) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+И.В.Сталин (Джугашвили) глубоко разбирался в искусстве и придавал ему большое значение.
+Во время учебы в Тифлисской духовной семинарии юный Иосиф Джугашвили написал несколько стихотворений, шесть из которых были тогда же опубликованы в газетах.
+Первое стихотворение 16-летнего И.Джугашвили «Утро» было опубликовано в № 123 за 1895 год издававшейся известным деятелем (   Читать дальше...   )Жанр: Биографии российских знаменитостейФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2E50553C2BE85B6B95C04F3449AC1CF28C049D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956608   (329306) от 15.11.2015
+
+Алексей Исаев и др. | Мифы Великой Отечественной [сборник] (2008) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В первые дни войны Сталин находился в полной прострации.
+В 1941 году вермахт «гнал Красную Армию до самой Москвы».
+Гитлеровские военачальники на голову превосходили полководцев Сталина.
+И вообще, «сдались бы мы немцам в 41-м — пили бы сейчас «Баварское»!».(   Читать дальше...   )Жанр: История войнФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2169CFB2E61E9D5C2A42AC68A47105F819955CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956846   (328442) от 16.11.2015
+
+Александр Горбунов | Анатолий Тарасов (2015) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+С именем Анатолия Владимировича Тарасова (1918-1995) связана эпоха грандиозных побед хоккейной сборной СССР и хоккейного клуба ЦСКА в 1960-е — начале 1970-х годов. Первым из европейцев и первым тренером вообще он был принят в 1974 году в хоккейный Зал славы в Торонто — а это высшая честь в хоккейном мире, которой удостаивались немногие, особенно в те годы. В то же (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25809A5120929A9BF8F8CFFB277748E7DB40B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957209   (328340) от 16.11.2015
 
 Энн Эпплбаум | ГУЛАГ (2015) [FB2]
@@ -6,7 +89,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,87 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E62B3330F305630996BA73154F0FC6A6C8609F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260213   (311839) от 07.11.2018
-
-Ян Мортимер | Елизаветинская Англия. Путеводитель путешественника во времени (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что машина времени перенесла вас во времена Елизаветы I…
-Что вы видите? Как одеваетесь? Как зарабатываете на жизнь? Сколько вам платят? Что вы едите? Где живете?
-Автор книга, доктор исторических наук Ян Мортимер, раз и навсегда изменит ваш взгляд на средневековую Англию, показав, что историю можно изучить, окунувшись в нее и увидев все своими глазами. (   Читать дальше...   )Жанр: История, КультурологияПеревод: Андрей ЗахаровФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC623C75DE53A328D0726DEE03B207DC61BC7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260204   (311838) от 07.11.2018
-
-Ян Мортимер | Средневековая Англия. Путеводитель путешественника во времени (2015) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошлое - другой мир. И эта книга - ваш путеводитель. Представьте, что машина времени перенесла вас в четырнадцатый век… Что вы видите? Как одеваетесь? Как зарабатываете на жизнь? Сколько вам платят? Что вы едите? И где живете?
-Автор книг, доктор исторических наук Ян Мортимер, раз и навсегда изменит ваш взгляд на средневековую Англию, показав, что историю можно изучить, (   Читать дальше...   )Жанр: История, КультурологияПеревод: Андрей ЗахаровФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E996E0B89165A36F4E5FC3A7D29F6D8C63E2FC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422425   (310509) от 08.11.2020
-
-Сергей Зотов | История алхимии. Путешествие философского камня из бронзового века в атомный (2020) [EPUB]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно алхимия ассоциируется с изображениями колб, печей, лабораторий или корня мандрагоры. Но вселенная златодельческой иконографии гораздо шире: она богата символами и аллегориями, связанными с обычаями и религиями разных культур. Для того, чтобы увидеть в загадочных миниатюрах настоящий мир прошлого, мы совершим увлекательное путешествие по Древнему Китаю, таинственной (   Читать дальше...   )Жанр: Культурология, Научно-популярная литература, Популярно об историиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68FB4224699DA3CA744FDEFE4D906E90241C782
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1490942   (915283) от 22.08.2021
+
+LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Фото и Видео (обновляемая)
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Спрятать фото? Просто и легко! Спрятать видео? Ещё проще!
+Скачайте фото сейф LOCKED и присоединитесь к людям, которые действительно заботятся о своей приватности и безопасности! 😎
+Спрятать фото и видео поможет секретный альбом LOCKED! Скройте и защитите свои фотографии, видео и другие личные файлы в секретной скрытой папке. Теперь они в самом безопасном хранилище (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 20.09.2020Разработчик: Privacy GeeksПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7390C582FD65D3C3AA8FC476A58F6B25273E6561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089973   (915270) от 26.01.2017
+
+Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Программа Diaro предназначена для фиксации ваших действий, мыслей и идей в течение дня, а также для синхронизации данных между всеми устройствами. Это позволит вам создать ваш личный дневник / ежедневник и вести ваши заметки в виде простого списка или по дням календаря.
+Через кнопку «Поиск» вы можете найти записи по любому ключевому слову в названии или тексте, а (   Читать дальше...   )Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 26.01.2017Разработчик: Pixel Crater Ltd.Поддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23DEB5AB7BF8DA73590D395814E5E44956CB65C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367358   (915229) от 16.03.2020
+
+Sci-Fi Launcher Pro v2.8.8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Sci-Fi Launcher Pro позволит вам почувствовать себя самым настоящим профессиональным хакером. Множество встроенных команд и настроек обеспечат вам доступ ко многим возможностям. Мгновенно найти нужное приложение или контакт телефона поможет тема Aris. Можно не только находить, но и удалять, перемещать, читать информацию о приложении, контакте, отключать поиск, добавлять (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.03.2020Разработчик: Aris Open UniverseПоддерживаемая ОС: Android 4.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367225   (915226) от 16.03.2020
 
 SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
@@ -6,7 +87,7 @@ SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +114,7 @@ LIMBO v1.18 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +140,7 @@ ipTView v1.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +166,7 @@ iGO Primo NextGen 9.18.27.682862 pongo skin [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +192,7 @@ Hola Premium VPN Proxy v1.165.475 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +244,7 @@ Piano Companion PRO: аккорды v1.8.3.2 + v6.29.315 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +296,7 @@ YoWindow Weather 2.16.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +322,7 @@ Very Little Nightmares 1.1.4 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +377,7 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +403,7 @@ Garmin TOPO U.S. 100K 5.0 [Карта] (Garmin)
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -349,7 +430,7 @@ SD Card Test Pro 1.8.5 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +483,7 @@ Deezer 6.1.22.49 MOD [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Всё для детей и родителей для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -457,7 +538,7 @@ VivaCut v2.5.4 [Ru/Multi] - видеоредактор (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +564,7 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -509,7 +590,7 @@ Group Ringtone 1.0.9 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -535,7 +616,7 @@ Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -561,7 +642,7 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +668,7 @@ Garmin: City Navigator Middle East and North Africa 2017.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -598,86 +679,6 @@ Garmin: City Navigator Middle East and North Africa 2017.20 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A913AB5A944B684055A0619461FE96B6C999371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602339   (898001) от 26.03.2020
-
-Blackmart 2020.1.7 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как можно понять по названию, Blackmart — это «черный рынок». Визуально программа отличается от оригинального Play Market, однако очень похожа интуитивностью пользования и функционалом. Здесь можно найти огромную базу данных платных программ и игр, официально представленные на оригинальном маркете, но здесь их можно скачать бесплатно — цены перечеркнуты. Поиском (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 26.02.2020Разработчик: BlackmartПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D430A9E06447E1A40BAD34F064233153548D58D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100889   (897167) от 05.02.2017
-
-Ancleaner Pro, Android cleaner 3.30 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хочешь, чтоб твой мобильный всегда был быстрым, а его содержимое - упорядоченным? С "Ancleaner для Android" это возможно. Очисти свой телефон, освободи его память, переупорядочь файлы в системе, оптимизируй свой гаджет. Всего одним кликом! И спустя всего одно мгновение ты заметишь, как производительнее стала система.Тип издания: ПираткаРелиз состоялся: 05.02.17Разработчик: Serial MMF SoftwareПоддерживаемая ОС: Android. 2.3.3Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E801294E6DA5F2336CB5F090AF75BE784019DDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468848   (897099) от 02.09.2021
-
-CountThings from Photos v3.23.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Считайте элементы из фотографий с вашим мобильным устройством.
-Приложение Count Things from Photos помогает компаниям автоматизировать подсчет. Откройте приложение, выберите правильный Шаблон Подсчета для ваших элементов, сделайте снимок и посчитайте. Если у нас нет шаблона подсчета для ваших нужд, дайте нам знать, и мы сможем создать его.
-Наши клиенты используют (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 30 августа 2021 г.Разработчик: Dynamic Ventures, Inc. d/b/a CountThingsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EC453A02AAE5C6D418820F34DB6E51EC595533
 ```
 
 https://mybot314.ru/tekegram_catalog/

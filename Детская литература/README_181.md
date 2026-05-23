@@ -1,110 +1,3 @@
-###  Публикация: 1435015   (148466) от 26.12.2020
-
-Юлия Евграфова | Щенок Питер и Несгрызаемая Кость (2016) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающие приключения отважного щенка Питера, потерявшего своих хозяев!
-Маленького Питера ждут весёлые приключения и суровые испытания, но когда рядом верные друзья – дворняжки Филя и Ласка, которые всегда поделятся косточкой, защитят от роя пчёл и банды помоечных псов, – то можно преодолеть все невзгоды.
-Сможет ли Питер – Самый Лучший На Свете – найти волшебную (   Читать дальше...   )Жанр: Детская литература/Сказки народов мираФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8568111EF3C30843E0E0C6A06F5C820286AE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271777   (148454) от 24.12.2018
-
-Г.П. Коршунов (ред.) | Герои мифов и легенд Беларуси (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148454.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой энциклопедии собраны герои мифов и легенд Беларуси. Из неё ты узнаешь много интересного о мифических существах родной страны. Они добрые и иногда любят пакостить людям ради развлечения. С давних времён белорусы обращались к ним за помощью у себя в доме, в поле и в лесу.
-Куда пропадают вещи в квартире? Почему нельзя кричать и ругаться, когда моешься в бане? (   Читать дальше...   )Жанр: Энциклопедии для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBDA31A5822AC2AD5FB615643A9F7F1AF1A940C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434987   (148451) от 26.12.2020
-
-Зана Фрайон | Дом монстров. Тот, кто летит по пятам. Книга 4 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступил второй год обучения! Джаспер и его друзья знают – их ждут новые приключения. И те не заставляют себя ждать: в школу прилетает целый рой кошмарных монстров-жуков! И всё бы ничего (учителя в «Доме монстров» встречаются и пострашнее), но вот только Джасперу ни в коем случае нельзя охотиться на этих тварей. И всё потому, что Джаспер – заговорённый (он и сам (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Екатерина ПетроваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459EE3A39B2BC535102A66CFF9A113D1D900819C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434970   (148446) от 26.12.2020
-
-Зана Фрайон | Дом монстров. Тот, кто ждёт в глубине. Книга 3 (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148446.jpg" />
-</div>
-
-
-###  Подробнее
-
-В школе «Дом монстров» время экзаменов! Джаспер и его друзья справились с первым испытанием (точнее, провалили его чуть менее позорно, чем остальные), и теперь их ждёт главное: настоящая охота! На настоящего дикого монстра в настоящем лесном озере. Ах да, этот монстр любит по вечерам нападать на купающихся… И Джаспер пока ещё не решил, что хуже: провалить экзамен (   Читать дальше...   )Жанр: Детская литература/Фантастика/ПриключенияПеревод: Екатерина ПетроваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E42CC1D9ECC022A76B3D7EB43E62327DD6A51D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435021   (148432) от 26.12.2020
 
 Галина Шалаева | Большая новогодняя книга (2010) [PDF]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -486,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -513,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -648,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -674,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -686,6 +579,115 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCE1BE8EB124290BF61252ED5D0210D740FD14CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272230   (145834) от 26.12.2018
+
+Божена Немцова | Серебряная книга сказок (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«У одного бедного крестьянина не было детей. Сколько раз он своей жене говаривал:
+– Послал бы нам Бог ребёночка, стал бы он мне на старости лет утешением, а моему убогому хозяйству наследником!
+И наконец принесла ему жена сына.
+Исполнилось мальчишке всего три дня, а мать его уже и прокормить не может, сколько ни даст – всё мало. Стала кашу варить, а сын три миски (   Читать дальше...   )Жанр: СказкиПеревод: Вера ПетроваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C36D2A623400EC3010C922CACDEEDA4B2C5DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272196   (145759) от 26.12.2018
+
+Божена Немцова | Золотая книга сказок (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Было у отца три сына: старший Мартин, средний Матей и меньшой – Михал.
+Подросли сыновья, ладными парнями стали, а старик вдруг захворал, вот-вот богу душу отдаст. Позвал он к себе детей, говорит:
+– Не нажил я, сыночки, никакого богатства. Оставляю вам хату, кота с петухом да острую косу. Живите все вместе в родном доме дружно, а остальное меж собой разделите по (   Читать дальше...   )Жанр: СказкиПеревод: Вера ПетроваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109CB105B8C9287D57FB2E92F6C0439401325018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348222   (145319) от 27.12.2019
+
+Надежда Тэффи | Рождественские сказки (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Окунуться назад в прошлое? Да легко! А поведёт нас туда писательница Надежда Тэффи. Она написала много трогательных историй про девчонок и мальчишек, которые жили в начале XX века. Они и знать не знали, что такое планшет и телевизор, но не скучали, а предавались зимним забавам: играли в снежки, катались на санках, собирались у новогодних ёлок, ожидая волшебства и, (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92ECE099DDF325F248FA44F227F14EA75F962A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348403   (145315) от 27.12.2019
+
+Александр Ткаченко | История новогодней ёлки (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Были времена, когда было принято крепить ёлку к потолку верхушкой вниз, а когда-то её украшали только сладости и фрукты. Откуда пошёл обычай привозить детям ёлку и водить вокруг неё хороводы? Как праздновали Новый год и Рождество в России петровских времён? Какие необычные ёлки можно увидеть в разных странах? Эта книга полна удивительных фактов и интересных историй.Жанр: Сказки для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4734851640DE9DD43AB58F715DB2CE6D5B9B9A4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

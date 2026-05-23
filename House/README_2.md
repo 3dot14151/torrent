@@ -1,3 +1,90 @@
+###  Публикация: 1611153   (1041652) от 10.02.2023
+
+VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech House, Deep Groove>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Beatz Maneuva - Glory
+02. D.D.Project - Get Funky Reloaded
+03. Mark Lahsen - Hello, Sorry
+04. Fabs# - Savanna (Dice Remix)(   Читать дальше...   )Жанр: Soulful, Tech House, Deep GrooveПродолжительность: 01:58:40 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88F53AFDD06BD090391EE9E15882A466FA5689D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611150   (1041420) от 11.02.2023
+
+VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. David Penn - Yeah Yeah (Original Mix) (6:22)
+02. Federico Scavo & Moya - Set Me On Fire (Extended Mix) (5:55)
+03. Claptone feat. George Kranz - The Drums (Din Daa Daa) (Dennis Cruz Extended Remix) (6:52)
+04. Milk & Sugar - Riding High (CASSIMM Extended Remix) (5:52)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82545D48258EECD1EB3A7533CD6C1BEF0792CE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439227   (1040111) от 12.01.2021
+
+VA - Ultra Jogging Platinum Hits 2021 Fitness Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Morgana - Aftertaste (Fitness Version 128 Bpm) (04:35)
+02. Lawrence - Cool Again (Fitness Version 128 Bpm) (04:33)
+03. Gloriana - Whoppa (Fitness Version 128 Bpm) (04:35)
+04. D'Mixmasters - Secrets (Fitness Version 128 Bpm) (04:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E5464832EA71CCA9C8117792B9D159BB435257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439828   (1039286) от 15.01.2021
 
 VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, Disco>
@@ -6,7 +93,7 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Best Jogging Remixes 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Deep House On The Beach (2023) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Miami House Week 2023 (2023) [MP3|320 Kbps] <House, Deep House, Dance, Club
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ VA - Ballaton Nightlife (2023) [MP3|320 Kbps] <Deep-House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Alternative EDM Party 2023 (2023) [MP3|320 Kbps] <Dance, Electronic, Club, 
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - By the Way...Sounds Good, Size Two (2023) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ VA - Deep House Summer Hits (2023) [MP3|320 Kbps] <House, Deep House, Dance, Clu
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - Training Motivation 2021 [MP3|320 Kbps] <House, Dance, Pop>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electr
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - House Clubhits Megamix 2023 (2023) [MP3|320 Kbps] <Dance, Club, House>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +615,7 @@ VA - Thumbs Up For Cardio Dance 2021 Workout Compilation (2021) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +644,7 @@ VA - Future Trance - Rave Classics (2023) [MP3|320 Kbps] <Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +673,7 @@ VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House,
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Cafe De Anatolia - Desert Rose (2023) [MP3|320 Kbps] <Organic House, Progre
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -644,7 +731,7 @@ VA - Pure Aerobic Hits 2021 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -658,93 +745,6 @@ VA - Pure Aerobic Hits 2021 [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE674F6FFE426D8EAAE51C3DCFDB9F2589A2B2FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456359   (1025095) от 22.03.2021
-
-VA - Electro Workout 2021: Motivation Training Music [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz - Tom's Diner (Original Mix) (02:25)
-02. Stephan F - New Spirit (Original Mix) (02:59)
-03. Turbotronic - Love Me (Original Mix) (03:13)
-04. MaxRiven - Kernkraft 400 (Original Mix) (02:45)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811476F279EC0D19996D332232A8174DC85CA218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469200   (1016430) от 12.05.2021
-
-VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz & Jdx - Transcendence
-02. Ran-D & Leprince - Fight Fire With Fire (Radio Edit)
-03. Killshot - Horrorshow (Radio Edit)
-04. Adaro & Kronos & Nikki Milou - The Life (Radio Edit)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4986899E54F8533D378130D050AD7B0BEF0F5DE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469204   (1016417) от 12.05.2021
-
-VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN feat. Lanie Gardner - Dreams
-02. Dimitri Vegas & Like Mike & Scooter - We Love Hardcore (Extended Mix)
-03. Mike Candys - Sky (Original Club Mix)
-04. Steve Aoki & Ben Nicky feat. Spyro & Maikki - Like It Like That (Extended Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 06:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868F21F316820F6075C44715181F10F30B558C69
 ```
 
 https://mybot314.ru/tekegram_catalog/

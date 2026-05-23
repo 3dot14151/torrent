@@ -1,3 +1,55 @@
+###  Публикация: 1138896   (661837) от 31.05.2017
+
+The Long Journey Home (2017) [Ru/Multi] (1.17.14643) Repack Other s
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В галактике миллионы миров. Но лишь один из них — твой дом. Мы собирались совершить короткий испытательный полет до альфы Центавра и обратно. Но первый в мире экспериментальный гипердвигатель вышел из строя. Израненная, неподготовленная к такому команда застряла на другом конце вселенной на разваливающемся на куски корабле в полной изоляции от остального человечества. (   Читать дальше...   )Тип издания: RepackРазработчик: Daedalic Studio WestЖанр: Adventure, RPG, Strategy, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D23F17630E798DB822D4ED92A1F866A1440A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140140   (657532) от 04.06.2017
+
+Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Задыхаясь, трясясь от страха, ты закрываешь за собой воздушный шлюз убежища. Тебе бы не хотелось выходить наружу, но ты выходишь. Хотя проще было бы сдаться. Но ты не поддаешься. Трудностям, голоду, жажде. Страху. Ты напоминаешь себе, что вы еще живы. Для чего все это. А потом слышишь это... "Папа, ты вернулся!" Лицо твоей жены светлеет, когда вы открываете (   Читать дальше...   )Тип издания: RepackРазработчик: Unicube, Team 17 Digital LtdЖанр: Strategy (Manage, Busin., Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5640120E1186862887231A4C823BCEB9C1EEAEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 513858   (654403) от 27.06.2012
 
 Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
@@ -6,7 +58,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Tropico 6 (2019) [Ru/Multi] (1.0/dlc) License PLAZA [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Planet Coaster (2016) [Ru/En] (1.6.2/dlc) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pathway (2019) [Multi] (1.4.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Tropico 6 (2019) [Ru/En] (96607/dlc) Repack R.G. Механики [El Prez Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Constructor (2017) [Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Pro Cycling Manager 2013 (2013) [Multi] License CPY
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Lethis - Path of Progress (2015) [Ru/Multi] (1.4.0 fix 8487) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ RESCUE 2: Everyday Heroes (2015) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Urban Empire (2017) [Ru/Multi] (1.2.1.3.12587/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Villagers (2016) [Ru/Multi] (1.100) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Pathway (2019) [En/Ge/Fr] (1.0.5) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +424,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Beholder 3 (2022) [Ru/Multi] (1.0.9_99) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.2.18.9/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Rise of Industry (2019) [Ru/Multi] (1.0.0.0205A) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Hospital Tycoon / Больничный магнат [En/Ru] (P) 2007
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ Banished (2014) [En] (1.0.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ Despotism 3k (2018) [Ru/En] (1.2.6) Repack Fenias2011
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ The Guild 2: Renaissance [En] (RePack) 2010 | Ultra
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -607,7 +659,7 @@ RollerCoaster Tycoon World (2016) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Delu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,62 +670,6 @@ RollerCoaster Tycoon World™ - это современное воплощени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:850C0C8EFEACEE01CBE848652840C5D52D428B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153226   (559094) от 26.07.2017
-
-Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постройте новый дом для человечества в колонии Эйвен. Откройте для себя Эйвен Прайм - чужую планету, где есть пустыни, тундра и джунгли, расположенную на расстоянии многих световых лет от Земли. Колония Эйвен ставит вас во главе первого поселения людей, находящегося за пределами Солнечной системы, где вам предстоит построить маленькие колонии в обширные крупные города, (   Читать дальше...   )Тип издания: RepackРазработчик: Mothership Entertainment LLCЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5D68DE696B3B6AABF55B6B954E7E4D3AECF2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364541   (559007) от 19.07.2011
-
-Traffic Manager / Verkehrsplaner: Die Simulation [Ge\En] (L) 2011
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это немецкая версия игры с патчем и переводом на английский. Существует также европейская локализация, но найти ее пока нельзя.
-
-Вы смогли бы спроектировать и управлять транспортной системой целого города?
-Никому не нравятся пробки, смог, неадекватный общественный транспорт. Теперь управлять всем этим придется Вам. Вы должны планировать, создавать и поддерживать дорожную сеть города. Синхронизируйте светофоры, создавайте автобусные и трамвайные маршруты. Регулируйте режимы движения на дорогах для достижения оптимального транспортного потока. Нанимайте рабочих, покупайте строительную технику (около 20 различных единиц), чтобы поддержать и расширять дорожную сеть.
-Оказывая эффективные и удобные услуги наземного транспорта, Вы должны убедить все больше людей пересаживаться на автобусы и трамваи, устраняя пробки. Боритесь со смогом, учитывайте особенности времени года, заботьтесь об обслуживании существующих дорог. Синхронизируйте светофоры и создайте зеленые волны, чтобы обеспечить непрерывное движение транспорта. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Strategy (Manage/Busin. / Real-time)Язык интерфейса: Немецкий, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1F257E5AE72B8C4BED9E2AF112E2243DD40420
 ```
 
 https://mybot314.ru/tekegram_catalog/

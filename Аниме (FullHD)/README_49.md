@@ -1,3 +1,55 @@
+###  Публикация: 1427817   (182020) от 29.11.2020
+
+Mugen no Juunin: Immortal | Blade of the Immortal | Клинок бессмертного [2019, Web, 24 из 24] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Мандзи — убийца ста самураев и бессмертный мечник, уставший от своего проклятия. После гибели собственной сестры он делает 800-летней монахине, запустившей в его тело не позволяющих расстаться с жизнью «кровяных червей», предложение: дабы искупить грехи, он обещает убить на своём пути тысячу злодеев. И как только клятва будет исполнена, Мандзи вернётся его смертность, (   Читать дальше...   )Производство: Liden Films / ライデンフィルム, Graphinica / グラフィニカЖанр: приключения, самурайский боевикРежиссер: Хамасаки ХиросиПеревод: EVGENION820, ThirTeenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05247BF3A6C3992ECC39EF18C3F64BDA9FD73865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427877   (180642) от 01.12.2020
+
+Hatsukoi Monster | First Love Monster | Моя первая любовь - монстр [2016, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Никайдо Кахо — любимая дочь богатых родителей, умница, красавица, которой все всегда старались угодить. Однако безоблачное существование нарушается в первый же день в новой старшей школе: у ворот общежития Кахо почти сбивает грузовик, и только внезапное появление неизвестного парня спасает девушке жизнь. Ну как тут не влюбиться? Покоренная такой самоотверженностью, (   Читать дальше...   )Производство: Studio Deen / スタジオディーンЖанр: комедия, романтикаРежиссер: Инагаки ТакаюкиПеревод: YakuSub Studio (Nika_Elrik, SeshaRim, Nagaki)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12EF0E16A137176C12FBA510267F3B4A3555FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593545   (180422) от 27.11.2022
 
 Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца богов [2021, Movie] BDRip 1080p 10-bit raw
@@ -6,7 +58,7 @@ Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца бого�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Makai Ouji: Devils and Realist | Принц Преисподней: Демоны
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Grand Blue / Grand Blue Dreaming / Необъятный океан [2018, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Obsolete | Устаревший [2019, ONA, 6 эп.] WEB-DL 2160p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Urara Meirochou / Город предсказательниц [2017, TV, 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +241,7 @@ Jashin-chan Dropkick Dash | Dropkick on My Devil!! Dash | Дропкик зло�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | I`m the Villainess, So I`m 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +503,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +530,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Nami yo Kiite Kure | Wave, Listen to Me! | Волна, слушай меня! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Nagagutsu Sanjuushi | Return of Pero | Кот в сапогах на Диком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Nagagutsu o Haita Neko | The Wonderful World of Puss 'n Boots | Кот в сап
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Nagagutsu o Haita Neko: 80 Nichikan Sekai Isshuu | Puss 'n Boots: Travels Around
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +660,7 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,59 +672,6 @@ Eiga K-On! / Кэйон! (фильм) [2011, MV] BDrip 1080p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184E1070FD6642699F5DCC2E2351FF9A998C1AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432996   (161953) от 19.12.2020
-
-Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гостиницы Юраги [2018, TV, 12 + 3 из 4 OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фуюдзора Когараси — бедствующий экстрасенс, в которого заселился злой дух. В поисках дешёвого жилья он приходит в Юраги, гостиницу на горячих источниках с загадочным прошлым, и знакомится с её обитателями — толпой своенравных девушек. Первая из них — призрак гостиницы Юна, которая не может уйти в мир иной. Несмотря на протесты девушек, Когараси всё же остаётся жить (   Читать дальше...   )Производство: Студия Xebec / ジーベックЖанр: комедия, романтика, фэнтези, эттиРежиссер: Нагасава ЦуёсиПеревод: AniLibria; Gerale (OVA)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 4 OVA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DB81D9A33A64575CDFE64FAAB4FEC60D1F63F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433458   (161176) от 20.12.2020
-
-Tsurezure Children | Tsuredure Children | Малолетние бездельники [2017, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аниме «о тех, кто не может сказать „я люблю тебя“».
-По сути, набор комедийных историй о любви между школьниками.Производство: Студия Studio Gokumi / Studio五組Жанр: романтика, комедияРежиссер: Канэко ХиракуПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C31D92FA656B6503941283708C3230F5B61B88
 ```
 
 https://mybot314.ru/tekegram_catalog/

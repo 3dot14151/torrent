@@ -1,3 +1,55 @@
+###  Публикация: 1488877   (1001429) от 13.08.2021
+
+Natsume Yuujinchou: Ishi Okoshi to Ayashiki Raihousha | Тетрадь дружбы Нацумэ: Пробуждение камня и подозрительный посетитель [2021, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В первой части фильма Нацумэ, разыскивая своего сэнсея, почему-то убежавшего из дома (впрочем, все коты очень своевольны), встречает маленького ёкая и помогает ему исполнить его долг – пробудить духа, покоящегося в скрытом каменном святилище. Задача осложняется тем, что по пути встречается немало конкурентов, желающих добраться до каменного святилища первыми, и среди (   Читать дальше...   )Производство: Студия Shuka / 朱夏Жанр: приключения, фэнтезиРежиссер: Омори ТакахироПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 55 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956B6E34169CE1D68F4E65B1E8FC355BA29C15BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488808   (1001366) от 13.08.2021
+
+Shin Evangelion Gekijouban:|| | Evangelion: 3.0+1.0 Thrice Upon a Time | Евангелион 3.0+1.0 [2021, Movie] WEBRip 816p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Синдзи Икари все еще дрейфует после того, как потерял волю к жизни, но место, куда он прибыл, учит его, что значит надеяться. Наконец, проект «Инструментальность» приводится в движение, и Вилле делает последний изнурительный бой, чтобы предотвратить Окончательный удар. Четвертый и последний фильм в рeмейке аниме-сериала Neon Genesis Evangelion.Производство: Студия Studio Khara / スタジオカラーЖанр: приключения, фантастикаРежиссер: Анно ХидэакиПеревод: официальныйЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 155 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A70E9749BF88006AC3B696EF405C3C109F30C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598188   (1000176) от 03.01.2013
 
 Kimi to Boku. 2nd Season / You and Me 2 / Ты и я. 2 [2012, TV, 13] BDrip 1080p raw
@@ -6,7 +58,7 @@ Kimi to Boku. 2nd Season / You and Me 2 / Ты и я. 2 [2012, TV, 13] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Interstella 5555 / Интерстелла 5555 [2003, MV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Hellsing: The Dawn / Hellsing: The Dawn / Хеллсинг: Начало [2011-2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Gamba no Bouken | Adventure of Gamba | Приключения Гамбы [1975, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Higurashi no Naku Koro ni Rei / Когда плачут цикады ОВА [200
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ Fate/Prototype / Судьба:Прототип [2011, OVA] BDrip 1080р raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +216,7 @@ Slayers OVA / Рубаки ОВА [1996-1999, OVA, 6] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Slayers Movie / Рубаки Фильмы [1995-2001, Movie, 5] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Arete Hime | Arite Hime | The Adventure of Princess Arete | Принцесса �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Roujin Z | Old Person Z | Старик Зет [1991, Movie] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Kannagi: Crazy Shrine Maidens / Хранительницы: веселые де�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Bishoujo Senshi Sailor Moon Super S: Sailor 9 Senshi Shuuketsu! Black Dream Hole
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito | Pretty Soldier Sailor Mo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Bishoujo Senshi Sailor Moon Gaiden: Ami-chan no Hatsukoi | Pretty Soldier Sailor
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ Bishoujo Senshi Sailor Moon Super S Special | Pretty Soldier Sailor Moon Super S
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Bishoujo Senshi Sailor Moon S | Pretty Soldier Sailor Moon S | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +479,7 @@ Bishoujo Senshi Sailor Moon Super S | Pretty Soldier Sailor Moon Super S | Кр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Bishoujo Senshi Sailor Moon R | Pretty Soldier Sailor Moon R | Красавиц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +533,7 @@ Bishoujo Senshi Sailor Moon Sailor Stars | Pretty Soldier Sailor Moon Sailor Sta
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Bishoujo Senshi Sailor Moon Crystal Season III | Pretty Soldier Sailor Moon Crys
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Big Order / Приказ свыше [2015, OVA, 1] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -560,7 +612,7 @@ Chaos;Head / Хаос;Вершина [2008, TV, 12] BDrip Hi10p 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -588,7 +640,7 @@ Zetsumetsu Kigu Shoujo: Amazing Twins | Разрушительные опасн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -614,7 +666,7 @@ Gingitsune: Messenger Fox of the Gods | Серебряный Лис [2013, TV, 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -625,58 +677,6 @@ Gingitsune: Messenger Fox of the Gods | Серебряный Лис [2013, TV, 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0D25308E8D5F78A9BCBB47472B8FB977712E0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971379   (983087) от 05.01.2016
-
-Hibike! Euphonium | Sound! Euphonium | Играй, Эуфониум! [ТВ-1] [2015, TV, 13 + 8SP] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Духовой оркестр Северной старшей школы городка Удзи переживает не лучшие времена. Выпускники, составляющие основу, утратили огонек, ребят второго года совсем мало, о конкурсах пришлось забыть. Надежда пришла в виде нового учителя музыки – молодого, но уже известного в нужных кругах Нобору Таки, и, конечно, вместе с новичками – ведь рядом Киото, культурная столица (   Читать дальше...   )Жанр: повседневность, музыкальныйРежиссер: Исихара Тацуя / Ishihara Tatsuya / 石原立也Продолжительность: 13 серии по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59DB7D99E5B90B768F5FC35EA642785C5CF9E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943484   (982799) от 05.01.2016
-
-Grisaia no Rakuen | The Eden of Grisaia | Рай Грисайи [2015, TV, 10 эп. + 5 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Будь 17-летний Юдзи Кадзами чуть осторожнее - и мы вместе с обитательницами академии Михама так и не узнали бы историю его жизни, в которой хватает материала на полдюжины авантюрных романов. Гениальная старшая сестра Кадзуки, знатный террорист Осло и просто хорошая женщина по имени Асако выковывали из парня совершенное оружие – но, похоже, купаясь в крови, клинок (   Читать дальше...   )Производство: 8bitЖанр: романтика, комедия, драма, триллерРежиссер: Танака МотокиПеревод: TimecraftЯзык субтитров: Русский (отключаемый)Продолжительность: 10 серий по 24 минуты + 5 спешиалов по 5 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1980AE252FDB395BDA86D7E6F3BF497E9D430050
 ```
 
 https://mybot314.ru/tekegram_catalog/

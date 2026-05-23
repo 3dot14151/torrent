@@ -1,3 +1,29 @@
+###  Публикация: 1265717   (272718) от 29.11.2018
+
+Need for Speed Most Wanted (2012) [Ru] (1.5.0.0/dlc) Repack xatab [Limited Edition]
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed: Most Wanted – безумные гонки по огромному открытому городу, полному как уличных гонщиков, так и полицейских. При этом обновленный Autolog позволяет легко отслеживать все действия (заезды, прыжки на трамплинах, проезды на огромных скоростях мимо камер и т.д.) ваших друзей и сравнивать их со своими достижениями.Тип издания: RepackРазработчик: Criterion GamesЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173283ABC46A9D9BB306B197281DB796DD9DD9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 274544   (272167) от 24.12.2010
 
 Полный привод: Трофи «Мурманск–Владивосток 2» [Ru] (RePack) 2010 | R.G. Catalyst
@@ -6,7 +32,7 @@
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +59,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +85,7 @@ RIDE 3 (2018) [Multi] (1.0/dlc) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -85,7 +111,7 @@ Re-Volt [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -114,7 +140,7 @@ Toyland Racing / Игрушечные гонки [Ru] (L) 1998
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -140,7 +166,7 @@ Drift Zone (2017) [Multi] (1.0) License PLAZA
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -166,7 +192,7 @@ Burnout Paradise (2009) [Ru/En] (1.1.0.0/dlc) Repack R.G. Origami [The Ultimate 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +218,7 @@ Project CARS 2 (2017) [Ru/Multi] (1.3.0.0/dlc) License RELOADED [Deluxe Edition]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -244,7 +270,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -270,7 +296,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +322,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -322,7 +348,7 @@ Formula Legends (2025) [Multi] (1.0.8/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +374,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Scene voic
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +400,7 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Wan
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +426,7 @@ CarX Street (2024) [Ru/Multi] (1.9.1/dlc) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +452,7 @@ Quarantine Антология [En] (RePack) 1994-1996 | RG Games (Pilotus)
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +478,7 @@ Burnout Paradise: The Ultimate Box / Russian Vanity [Ru] (RePack/Mod/1.1/1.4) 20
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +504,7 @@ Rally Championship 2000 [Ru] (L) 1999
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +531,7 @@ Gripper (2023) [Ru/Multi] (1.0.1) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -531,7 +557,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.9.0/dlc) Repack DjDI
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +583,7 @@ Forza Horizon 4 (2018) [Ru/Multi] (1.476.99.0/dlc) Repack DjDI [Ultimate Edition
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -583,7 +609,7 @@ Joyride (2022) [Ru/Multi] (2023.5.1/dlc) Scene Tinyiso
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -609,7 +635,7 @@ Wreckfest (2018) [Ru/Multi] (Build 16986367/dlc) Repack Other s [Complete Editio
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_252287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -635,7 +661,7 @@ Need for Speed: Heat (2019) [Ru/Multi] (1.0.60.7040/dlc) Repack Other s [Deluxe 
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -646,32 +672,6 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0404DE8BBFDECCAC979230CE1AA95A03EB71C237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835427   (250879) от 06.11.2025
-
-Need for Speed: Heat (2019) [Ru/En] (1.0.60.7040/dlc) Repack Decepticon [Deluxe Edition]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed Heat - это гоночная игра в открытом мире, где игроки участвуют в уличных гонках в вымышленном городе Палм-Сити. Игровой процесс разделен на дневные и ночные события: днем можно зарабатывать деньги, участвуя в легальных гонках, а ночью - зарабатывать репутацию (шанс), но при этом сталкиваться с полицейскими, которые становятся все более агрессивными. (   Читать дальше...   )Тип издания: RepackРазработчик: Ghost GamesЖанр: Приключенческие игры, Гонки, СпортЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CEBBDC6F01EA67EE364BAF99C2F0C5A8E8DCB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

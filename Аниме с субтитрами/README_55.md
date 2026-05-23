@@ -1,3 +1,107 @@
+###  Публикация: 1540727   (650582) от 31.03.2022
+
+Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [2021, TV, 26 из 26] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2020 год по солнечному календарю. Жуткие чудовища — Иные — напали на человечество и стали его пожирать. Чтобы справиться со страшным противником, была создана Группа подавления Иных. Некогда эта группа спасла и психокинетика Юито, поэтому он решается пройти сложные тренировки и вступить в ряды защитников Земли! Сюда же по специальному приглашению попадает прирождённый (   Читать дальше...   )Производство: SunriseЖанр: Приключения, фантастикаРежиссер: Нисимура ХироюкиСубтитры: Русские, АнглийскиеПродолжительность: 26 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FD8CD3F3D4C17E87F03D283916C19525308DBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538961   (650578) от 31.03.2022
+
+Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 из 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Шато Дэнкуорт и Сон Лянха. Охотница за головами и убийца. Что связывает этих двоих? Встреча на одном из заданий? Или нечто большее? Мужчина явно в ней заинтересован, но почему? Очень много вопросов, на которые нет ответа.Производство: PlatinumvisionЖанр: Боевик, романтика, дзёсэйРежиссер: Оба ХидэакиСубтитры: Русские, АнглийскиеПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAAC0AAC8FFF151D7A23C7A72618FBA4B9BF440D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291722   (650386) от 27.03.2019
+
+Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История рассказывает о пятнадцатилетней старшекласснице Каоруко Моэте, создающей мангу под псевдонимом Хаос. После того как она оказывается в самом низу таблицы читательских рейтингов журнала, редактор советует ей переехать в особое женское общежитие, созданное исключительно для авторов манги. Там Каоруко встречается с тремя другими девушками: автором сёдзё-манги (   Читать дальше...   )Жанр: комедия, повседневность.Режиссер: Токумото ЁсинобуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50053E39829FC4E63CF087A1A22A0F8B511C55AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291889   (650378) от 27.03.2019
+
+Revisions | Ревизия [2019, ONA, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дайсуке Додзима — ученик второго класса старшей школы, который в детстве пережил похищение. Вместе со своими друзьями Гаем, Лю, Маримари и Кейске он оказался в центре загадочного феномена, получившего название Дрейф Щибуи, в результате коего центральная часть токийского района Щибуя перенеслась на 300 лет в будущее, оказавшись посреди пустошей и леса, выросшего на (   Читать дальше...   )Производство: студия Shirogumi Inc. / 白組Жанр: фантастика, мехаРежиссер: Танигути ГороПеревод: Netflix; RisensTeamЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA14A676288C1BE6D3B61EA81EAEC691C3C74DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280388   (650253) от 27.03.2019
 
 Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special, 2 эп.] WEB-DL 1080p raw
@@ -6,7 +110,7 @@ Persona 5 the Animation (2018) | Персона 5 (спэшл 2) [2018, Special,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Pastel Memories | Пастельные воспоминания [2019, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Jujutsu Kaisen | Магическая битва [2021, TV, 24 из 24] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Futsal Boys!!!!! | Футзалисты [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Manaria Friends | Mysteria Friends | Друзья из Манарии [2019, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Lupin Sansei: Part 6 | Lupin the Third Part 6 | Люпен III: Часть VI [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Usakame / Узакаме [2016, TV, 12] WEB-DLRip 720p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Virtual-san wa Miteiru | Virtualsan Looking | Виртуальный просм�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Majo demo Steady | Волшебная невеста [1986, OVA] LDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Doukyonin wa Hiza, Tokidoki, Atama no Ue. | Мой сосед у меня на �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Free! Eternal Summer / Вольный! Вечное лето [2014, TV, 13 + 1sp
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +476,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +502,7 @@ Bishoujo Senshi Sera Mun Kurisutaru Season III / Прекрасная воите
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +528,7 @@ Sansha Sanyou / Трилистник [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +554,7 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +580,7 @@ Mahou Shoujo Tokushusen Asuka | Magical Girl Spec-Ops Asuka | Девочки-в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +606,7 @@ Domestic na Kanojo | Domestic Girlfriend | Домашняя девушка | Д�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +632,7 @@ Boogiepop wa Warawanai | Boogiepop and Others | Бугипоп никогда н
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +658,7 @@ Saint Oniisan / Saint Young Men / Юность Святого [2012, OVA, 2 ep.]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,112 +670,6 @@ Saint Oniisan / Saint Young Men / Юность Святого [2012, OVA, 2 ep.]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04256997D661DE2B5605897FA70E5179F09E0197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501763   (643045) от 03.07.2012
-
-Lupin the Third: Mine Fujiko to Iu Onna / Lupin the Third: The Woman Called Fujiko Mine / Люпен III: Женщина по имени Фудзико Минэ [2012, TV, 13 ep.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже десятки лет на экране действует дружная команда Люпена Третьего, за которой упорно, но безуспешно гоняется инспектор Дзэнигата. Люпен все так же изящен и креативен, Дзигэн молчалив и меток, за Гоэмона говорит его меч, а блистательная Фудзико вертится вокруг, то помогая, то продавая всех оптом и в розницу. Меняются только «девушки в беде», а главная пятерка застыла во времени, словно статуя Будды. Но всегда ли было так? Ведь когда-то герои были чуть моложе и работали порознь, а потом их свела судьба. Судьба в образе женщины!
-
-Новый сериал переносит нас в раннюю историю Люпена и его компании. Молодой, но уже знаменитый вор в зеленом пиджаке давно устал от обычных краж и теперь ищет нечто новое, какое-то чудо, что избавит его от тягучей тоски повседневности. Во время рискованного визита на остров тоталитарной секты герой встречается с Фудзико Минэ – красивой, расчетливой и абсолютно беспринципной коллегой, одной из немногих женщин, что могут бросить вызов самому Люпену. Встреча оказалась судьбоносной и гарантировала (   Читать дальше...   )Жанр: приключенияПродолжительность: (13 эп.), 25 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541745   (642723) от 04.04.2022
-
-100-man no Inochi no Ue ni Ore wa Tatte Iru | I'm Standing on a Million Lives | Я стою на миллионе трупов [2020, TV, 24 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёцуя - простой школьник, которому ничего не интересно в жизни, кроме как играть дома в игры. Каждый день он стремился поскорее уйти и заняться любимым делом. Однако однажды, задержавшись на дежурстве, парень вдруг оказался в каком-то ином мире. Впрочем, новая реальность сильно напоминает игру.Производство: Студия Maho FilmЖанр: приключения, фэнтезиРежиссер: Хабара КумикоПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFF64FD4B48B2E3CC4AA9E6ADDAF7CB79EB6D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252885   (642529) от 31.03.2019
-
-Gyakuten Saiban: Sono "Shinjitsu", Igi Ari! Season 2 | Первоклассный адвокат [ТВ-2] [2018, TV, 23] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феникс Райт, начинающий адвокат, работающий в адвокатской конторе Fey and Co., владельцем которой является его наставница Мия Фей. Во время расследования Феникс собирает улики и разговаривает с персонажами, вовлечёнными в дело, и во время заседания суда защищает своего клиента, используя собранные им улики, проводит перекрёстный допрос свидетелей и разрешает всю (   Читать дальше...   )Производство: Clover WorksЖанр: приключения, комедияРежиссер: Ватанабэ АюмуПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB3B713581CA063E2E617F293C92D14926E4857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032950   (641900) от 09.07.2016
-
-Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера-тян [2015, TV, 13] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641900.jpg" />
-</div>
-
-
-###  Подробнее
-
-История разворачивается вокруг девочки по имени Сомера. Она — хранительница таинственных магических сил, а также причина различных комедийных ситуаций, происходящих с ней и её друзьями.Производство: Студия Seven / セブンЖанр: комедияРежиссер: Имадзаки ИцукиЯзык субтитров: Русский (отключаемый)Продолжительность: 13 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35862875CFD31BD6C93307BDDB288AD807FC9732
 ```
 
 https://mybot314.ru/tekegram_catalog/

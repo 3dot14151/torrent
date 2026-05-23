@@ -1,25 +1,22 @@
-###  Публикация: 1670924   (171775) от 22.10.2023
+###  Публикация: 1668338   (173657) от 12.10.2023
 
-Hippie Death Cult - Helichrysum (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner/Doom Metal/Rock>
+Встречи с НЛО / Encounters (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-4 из 4) Pazl Voice
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. Arise [00:06:02]
-02. Shadows [00:05:52]
-03. Better Days [00:06:40]
-04. Red Giant [00:04:47](   Читать дальше...   )Жанр: Stoner/Doom Metal/RockПродолжительность: 00:40:38
+Массовые случаи наблюдения НЛО за последние 50 лет по всему миру стали основой для этого сериала, включающего рассказы очевидцев, интервью с экспертами и новые свидетельства.Производство: США / Amblin Television, Boardwalk Pictures, Vice FilmsЖанр: документальный, историяРежиссер: Йон МотскинУчастники: Steve Allen, Тор Хэррингтон, Sara Vanden Berge, Lee Roy Gaitan, Николя Лин, Robert Powell, Glen Schulze, Хосе Каликсто, Kimmy Dalton, Eric HeinrichsПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), английские (Forced, SDH)Продолжительность: ~00:50:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F950EF059CB87D7A7A7E975E654E7EB0D4B117E
+magnet:?xt=urn:btih:EEC048A07D53CBFA3656B40788C4CE7727C1DDF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670823   (171774) от 22.10.2023
+###  Публикация: 1668360   (173656) от 12.10.2023
 
-Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Other Styles
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-01. How My Heart Sings [4:20]
-02. Time to Remember [5:20]
-03. 12 Toned Tune [4:57]
-04. Waltz for Debby [5:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:10
+01. Sexual Piano Jazz Collection - Body Language (3:31)
+02. Jazz Erotic Lounge Collective - Sink in You (3:52)
+03. Sensual Lounge Music Universe - Motel 69 (3:00)
+04. Sexual Piano Jazz Collection - Nasty Thoughts (4:33)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:53:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9AE91F099E8DE3F4D42872F93B696FC319A9AA5
+magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670769   (171773) от 22.10.2023
+###  Публикация: 874086   (173655) от 05.12.2021
 
-Solar Sons - Subliminal Criminal (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive Metal>
+Фрэнклин и друзья / Franklin and Friends (2011) SATRip (1 сезон, 27 серий)
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
 ###  Подробнее
 
-01 - Worlds Unknown (08:04)
-02 - Crimson Sky (04:02)
-03 - Just a Ride (06:17)
-04 - Into the Beyond (06:16)(   Читать дальше...   )Жанр: Heavy, Progressive MetalПродолжительность: 00:52:16
+Добрый и очень любопытный черепашонок Франклин живёт в тропическом лесу Северной Америки, вместе со своей семьёй и многочисленными друзьями. Вместе с товарищами он каждый день придумывает увлекательные игры и забавы, узнаёт много интересных фактов об окружающем мире и всегда готов прийти на помощь своим друзьям. Франклин и друзья, мультфильм снятый по мотивам рассказов (   Читать дальше...   )Производство: Канада | Bell Broadcast and New Media Fund, NelvanaЖанр: Детский, мультсериалРежиссер: Лин Рейн, Джон ПейнПеревод: ДублированныйПродолжительность: 27 х ~ 00:12:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:891C6E697382D16FD1CA36435066CE3EE9F6FCD1
+magnet:?xt=urn:btih:A9AF67FF7460E2B8DE1C90A574F94B97C3D7FD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,307 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670567   (171772) от 22.10.2023
+###  Публикация: 1596188   (173654) от 08.12.2022
 
-Stahlhammer - Opera Noir (2006) [FLAC|Lossless|image + .cue] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vienna
-02. Wie Es Ist
-03. Opera Noir
-04. Kalt Wie Eis(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E8F8925CCB0502F74D639D7388D95A766CE61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670849   (171771) от 22.10.2023
-
-Lana Lane - Project Shangri-La (2002) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemption Part I
-02. Project Shangri-La
-03. Encore
-04. Before You Go(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3B5B15A2E854592A8CEEEECC4067B122D8796E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670825   (171770) от 22.10.2023
-
-Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will You Still Be Mine [4:25]
-02. When the Sun Comes Out [4:18]
-03. All the Things You Are [2:45]
-04. Lover Man [4:30](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BFBD5E63A6D0DEC1B5F60944D714CB8B163D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670812   (171769) от 22.10.2023
-
-Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Close My Eyes [6:38]
-02. Pannonica [9:32]
-03. I Hear a Rhapsody [6:01]
-04. My One and Only One [8:27](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FB678362B7E5D5E099524655398A8CA63E1C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670928   (171768) от 22.10.2023
-
-Jack Out - X Salvarsi (2023) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuore Rotto [00:02:35]
-02. Eco [00:03:22]
-03. Save Yourself [00:03:25]
-04. Aspiri [00:02:57](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002587905D3F2F7424EE7B7590803F2DF1B13D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670980   (171767) от 22.10.2023
-
-Сатисъ | Искание Христа. Из творений Святителя Димитрия Ростовского (2020) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171767.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли избранные творения известного русского церковного писателя, святителя Димитрия Ростовского, которые помогут православному христианину утвердиться в вере и встать на путь спасения.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2F863EABD0F65078943BE44B6B71104EE66865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670845   (171766) от 22.10.2023
-
-Lana Lane - Curious Goods (2002)Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171766.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Лана Лейн (англ. Lana Lane) — американская певица и композитор. Поёт в собственной группе Lana Lane, исполняет партии бэк-вокала в прогрессивной группе Rocket Scientists. Также принимала участие в проекте Ayreon, рок-опере Genius и альбомах Эрика Норландера. Поклонники называют её «Королевой симфонического рока».01. Curious Goods Part One
-02. Emerald City
-03. Escher’s Staircase
-04. Heart Of Dawn(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 02:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FFAB03BA6068E572E42B849420AE345D1EF17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670564   (171765) от 22.10.2023
-
-Stahlhammer - Eisenherz (2002) [FLAC|Lossless|image + .cue] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Und Ich Bring Dir Die Holle
-02. Marylin
-03. Eisenherz
-04. Fur Immer(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E602005A91F4A8AA35C3F0A9FE00AFB5D8D17A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670976   (171764) от 22.10.2023
-
-Благовест | Покаяние очищает душу. По творениям святителя Филарета Московского (2020) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная работа представляет собой сборник изречений святителя Филарета Московского, относящихся к покаянному деланию христианина. В своих творениях святитель Филарет учит нас тому, в чем заключается суть и необходимость покаяния перед Богом в своих грехах для каждого христианина, каковы этапы и условия покаяния и исповеди, а также духовные плоды покаянного подвига. (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F556A1CDBA99315A24DB78BFA3DCBDA09686B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670968   (171763) от 22.10.2023
-
-Белый город | Блага земные и блага небесные. Священное Писание и церковный опыт (2017) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171763.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны цитаты из Священного Писания и высказывания святых отцов и священников о том, каковы блага земные и блага небесные, за что нам благодарить Бога, как усиливать стремление к доброй жизни и как испытать вечное блаженство уже здесь, на земле.Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DAAB7A29AE7989E9D2C1E63D1E7ADAEE56FEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670794   (171762) от 22.10.2023
-
-n-Track Studio Suite 10.0.0 Intel/ARM [Multi/Ru]
+Audacity 3.2.2 RePack (& Portable) by Dodakaedr [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
 ###  Подробнее
 
-Программа для обеспечения студийного качества записи, редактирования и микширования.
-Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 20.10.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+Audacity - свободный, простой в использовании звуковой редактор для Windows, Mac OS X, GNU/Linux и других операционных систем. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D96FDF6749D8BD8857D6DDBF8E9A96BBBBB677B
+magnet:?xt=urn:btih:C02F226057210A0FDD704C0F30D0BEA7C076FECA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,316 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670835   (171761) от 22.10.2023
+###  Публикация: 1514978   (173653) от 05.12.2021
 
-Howard Alden + George Van Eps - 13 Strings (1991) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just You, Just Me [5:22]
-02. My Ideal [4:18]
-03. I Hadn't Anyone Till You [5:42]
-04. A Beautiful Friendship [6:43](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9603AD85E99CF62FE0AB316A0E09E5137F90301F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670838   (171760) от 22.10.2023
-
-Lana Lane - Queen Of The Ocean (1999) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Hall Of The Ocean Queen
-02. Night Falls
-03. Queen Of The Ocean
-04. Let Heaven In(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203666DD6E77B6A5927635C7874147D9F2E57411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670843   (171759) от 22.10.2023
-
-Lana Lane - Love Is An Illusion (2001) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LIAA Prelude
-02. Love Is An Illusion
-03. Coloured Life
-04. Cold Outside(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23150543E1ED77A7B09FB261B76FC19EC2B66853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670850   (171758) от 22.10.2023
-
-Lana Lane - Red Planet Boulevard (2007) [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Fire
-02. The Frozen Sea
-03. Capture The Sun
-04. Jessica(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5F2A9AFCE92523864F536E6DE6663AD9DD4E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670921   (171757) от 22.10.2023
-
-Bloodred Hourglass - How's The Heart? (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal / Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Course I Still Love You [00:03:58]
-02. In Lieu of Flowers [00:03:37]
-03. Fragile [00:04:42]
-04. Anomaly [00:03:26](   Читать дальше...   )Жанр: Melodic Death Metal / Modern MetalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26A3547BF19F48048C9002618A3110C54F01ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670954   (171756) от 22.10.2023
-
-Evian Christ - Revanchist (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Embers [00:05:05]
-02. Yxguden [00:04:26]
-03. The Beach [00:04:59]
-04. Nobody Else [00:06:36](   Читать дальше...   )Жанр: Experimental, ElectronicПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58CC07CC9888B9D618C94088A791BDCE949816B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670839   (171755) от 22.10.2023
-
-Lana Lane - Ballad Collection (2000) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon
-02. Athena's Shadow
-03. Stardust
-04. Seasons End(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD9228FD6CBC19D2553181CCCD1538DA2E0552D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670947   (171754) от 22.10.2023
-
-Lost Girls - Selvutsletter (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Pop, experimental, electronic, krautrock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timed Intervals [00:04:28]
-02. With the Other Hand [00:03:11]
-03. Ruins [00:04:55]
-04. Re-entering the City [00:04:12](   Читать дальше...   )Жанр: Art Pop, experimental, electronic, krautrockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5E7D7C60BB8880CC604C94CA7B2FC80AC6F2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670934   (171752) от 22.10.2023
-
-Sparkle Division - Foxy (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Dance, Lounge, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have Some Punch [00:03:00]
-02. Here Comes Trouble [00:03:44]
-03. Foxy [00:03:24]
-04. The Punch! [00:08:37](   Читать дальше...   )Жанр: Electronic, Dance, Lounge, FusionПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF443829FBD8C7C102A124F128ED885A4C61065D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670848   (171751) от 22.10.2023
-
-Lana Lane - Garden Of The Moon (2002) Special Edition, 2CD [FLAC|Lossless|image + .cue] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Лана Лейн (англ. Lana Lane) — американская певица и композитор. Поёт в собственной группе Lana Lane, исполняет партии бэк-вокала в прогрессивной группе Rocket Scientists. Также принимала участие в проекте Ayreon, рок-опере Genius и альбомах Эрика Норландера. Поклонники называют её «Королевой симфонического рока».01. River Of The Stars
-02. Destination Roswell
-03. Seasons
-04. Moongarden(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 02:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A12220846F4C2AFE6B4D43289EB8986F0C1639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670795   (171750) от 22.10.2023
-
-iNet Network Scanner 3.0.3 [En]
+StartAllBack 3.1.5.4186 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
 ###  Подробнее
 
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2023Разработчик: © BananaGlue GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Испанский
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F9F9601362AAF726E19642B4C403165B3C34518
+magnet:?xt=urn:btih:63F0D86B95687043ECB707FD540298E4BFCA2C66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,27 +131,563 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670966   (171749) от 22.10.2023
+###  Публикация: 1430478   (173651) от 10.12.2020
 
-Александр Островский | Правда - хорошо, а счастье лучше (2007) [MP3, Николай Рыжов, Борис Бабочкин и др.]
+VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi, Daddy Yankee - Despacito (3:48)
+02. Jonas Brothers - What A Man Gotta Do (3:00)
+03. NEIKED, Dyo - Sexual (3:08)
+04. Topic, A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668516   (173650) от 12.10.2023
+
+Кирилл Клеванский | Сердце дракона (Книга 19) (2023) [MP3, Дмитрий Кузнецов]
 
 >>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
-Серия: Из архива Гостелерадиофонда. Звуковой архив Малого театра.
-Веселая, мудрая история о том, что в жизни каждого человека есть место для счастья и что есть в наших душах способность быть счастливыми. И что же все-таки лучше - правда или счастье?
-А правильно ли мы понимаем эти понятия, не подменяем ли мы их в угоду себе чем-то другим, сиюминутным, суетным и удобным? (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Звуковая книга, ГостелерадиофондПродолжительность: 02:24:12
+Хаджар Дархан, Ветер Северных Долин, почти достиг самой дальней границы Странных Земель – края мира смертных. Его путь был долог и тернист. На пути к своей цели он встретил и подружился со многими людьми и многих потерял. И вот теперь перед ним встает последнее препятствие – Секта Ворона, старейший и величайший оплот последователей Черного Генерала. Ему придется (   Читать дальше...   )Жанр: ФэнтезиИздательство: ИДДКПродолжительность: 17:34:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E6BC620DAE555FA3932B7AE4158D2D414D19100
+magnet:?xt=urn:btih:4CA00A0080FC28845A6D725F7A110A78EA0EE79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596023   (173649) от 08.12.2022
+
+Наследник престола / Royalteen (2020) WEB-DL [H.265/1080p] [HDR, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Принц Карл Йохан ходит в обычную школу, а друзья называют его Калле. Когда в их классе появляется новенькая, Лена, между подростками завязываются теплые отношения. Но принцу нельзя забывать о том, какая на нем лежит ответственность. В свою очередь Лена пытается скрыть свое прошлое и большую тайну от наследного принца.Производство: Норвегия / The Global Ensemble DramaЖанр: Драма, мелодрамаРежиссер: Пер-Олав Соренсен, Эмили К. БекАктеры: Ines Høysæter Asserson, Mathias Storhøi, Элли Рианнон Мюллер Осборн, Веслемёй Мёркрид, Петтер Видт Кристиансен, Sigurd Pedersen Hoøen, Ludvig Pedersen Hoøen, Амалия Спорсхейм, Filip Bargee Ramberg, Ina Dajanna ErvikПеревод: Многоголосый профессиональный (Синема УС)Субтитры: Русские, английскиеПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02217428EA0C49924C804E2D252D614F86F9F6CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514888   (173648) от 05.12.2021
+
+Неуловимый аромат любви / Love Hard (2021) WEB-DL [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Журналистке из Лос-Анджелеса Натали постоянно не везет в любви. Она пытается устроить личную жизнь с помощью приложения для знакомств и влюбляется в Тэга. Ради него Натали едет через всю страну, чтобы сделать парню сюрприз на Рождество. Но, приехав в город, девушка понимает, что ее возлюбленный не тот, за кого себя выдавал.Производство: США / Wonderland Sound and VisionЖанр: Мелодрама, комедияРежиссер: Эрнан ХименесАктеры: Нина Добрев, Джимми О. Ян, Даррен Барнет, Джеймс Саито, Ребекка Стааб, Гарри Шам мл., Алтея Кэй, Микаела Хувер, Мэтти Финочио, Хезер МакмэханПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced х2, full ), украинские, английские, французские, немецкие, испанские, китайскиеПродолжительность: 01:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25F00742EBC991641302EDA515D8C22F0958762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430532   (173647) от 10.12.2020
+
+Audio Hijack 3.8.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6324421B6B73977010A3D98FC02104FE92C5AE1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596134   (173645) от 08.12.2022
+
+Telegram Desktop 4.4.1 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E37850D050025B5A92CBD068B621E456D66F627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668522   (173644) от 12.10.2023
+
+Пол Андерсон | Безопасность (2023) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Америке будущего особое внимание уделяется контролю и безопасности. Никто не хочет повторения тех ужасных событий, которые произошли семьдесят пять лет назад.
+В мире, где безопасность всемогуща, ничто не может быть безопасным. Аллен Ланкастер, руководитель сектора Проекта, получает неожиданное предложение возглавить суперсекретную научную лабораторию. Является (   Читать дальше...   )Жанр: ФантастикаИздательство: СОЮЗПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8BC2D506791D379E95730649732EC9142F7F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668466   (173643) от 12.10.2023
+
+simplewall 3.7.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Простой в использовании и нетребовательный к ресурсам компьютера фаервол, имеющий все необходимые опции для блокировки входящего и исходящего трафика приложений.
+Поддерживаются два режима работы: фильтрация по белому или черному списку.
+Работа simplewall реализована через возможности WFP (Windows Filtering Platform).Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081B80EA2A0D91FBB4365F3C9E0A4A6CB51F2803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514941   (173642) от 05.12.2021
+
+Красотка на взводе / Jolt (2021) BDRip [H.265]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+С самого детства Линди страдает от неконтролируемых вспышек агрессии, вернее — страдают окружающие. Почти всю жизнь девушка провела во всевозможных клиниках, изучалась различными специалистами, и единственное, что помогает ей не калечить раздражителей — специальный жилет из электродов, который бьёт её током по нажатию кнопки. Однажды Линди встречает хорошего парня, (   Читать дальше...   )Производство: США / Busted Shark Productions, Campbell Grobman Films, Eclectic PicturesЖанр: Боевик, комедияРежиссер: Таня УэкслерАктеры: Кейт Бекинсейл, Бобби Каннавале, Джай Кортни, Лаверн Кокс, Дэвид Брэдли, Ори Феффер, Сьюзен Сарандон, Стэнли Туччи, Константин Грегори, Льюис Иэн БрэйПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32434897C67BEE5BD32A1C72D734ABF83AEF03C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596056   (173641) от 08.12.2022
+
+Фальсификация: Тед Банди / Ted Bundy: A Faking It Special (2021) WEBRip [H.264/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Теодор Банди творил кровавый террор на протяжении 1970-х. Эксперты анализируют записи судебных заседаний и допросов, чтобы выяснить, как ему удавалось так долго избегать ареста.Производство: Великобритания / Shearwater MediaЖанр: документальный, криминалПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254D5F0BCA8023848B0B2375C383DF08600C98DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514952   (173640) от 05.12.2021
+
+Американский убийца / American Sicario (2021) WEB-DLRip [H.264/1080p-LQ] [MVO, AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Американский гангстер Эрик Васкес замышляет стать главным боссом в мексиканском преступном мире. Он наживает себе множество врагов как из могущественных картелей, так и из своих собственных союзников. Основано на реальный событиях.Производство: США / драма, боевик, криминалЖанр: Драма, боевик, криминалРежиссер: Раджа КоллинзАктеры: Дэнни Трехо, Майя Стоян, Морис Комт, Джонни Рей Диас, Дион Баско, Джейлен Мур, Брук Ласк, Роберт Аревало, Марго Куинн, Philippe A. HaddadПеревод: Любительский многоголосый (Muzoboz)Язык озвучки: РусскийСубтитры: Английские (hardsub)Продолжительность: 01:40:21Реклама: Присутствует баннер
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC386A93AE1E85F12F6101CF487577F7FB695384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596125   (173638) от 08.12.2022
+
+BitComet 1.98 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+BitComet - это функциональный, быстрый и простой в освоении клиент, который позволяет работать со ссылками формата Bittorrent. Он поддерживает одновременное скачивание нескольких файлов с возможностью установления приоритета загрузки, может создавать очередность загрузки, имеет возможность быстрой остановки/возобновления закачки файлов. Работает с прокси-сервером, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2B9D8BDB4DE9E5D24D612B74AFEAC76AF61CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514844   (173637) от 05.12.2021
+
+Дюна / Dune: Part One (2021) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия / Warner Bros, Legendary Entertainment, Villeneuve FilmsЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617B085A78C84A87E84DC2ACE73795FBA702447C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668523   (173636) от 12.10.2023
+
+Topaz Video AI 3.5.3 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+До сих пор не было возможности идеально воссоздать видео высокого разрешения из видеоряда низкого разрешения. Video AI превратит ваши видео в чистые увеличенные видео с разрешением до 8K, от старых домашних фильмов до низкокачественных SD и DVD. Video AI - это идеальный способ снять хорошие кадры и сделать их великолепными. Вы когда-нибудь хотели, чтобы ваши кадры (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504EE822B8852978C5FFF5A6C50F084E74B97E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595977   (173635) от 08.12.2022
+
+Google Chrome 108.0.5359.99 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673020D1D26B60D730E0AEB5E6F24C6FD7FB1883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668403   (173634) от 12.10.2023
+
+Александр Розенбаум и «Старая армия» – концерт «Накрышник» (2020) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Накрышник». Концерт Александра Розенбаума и группы «Старая Армия»
+11 августа 2020 года Александр Розенбаум и его группа «Старая армия» во время бушующего в то время эпидемии COVID-19 дали концерт «Накрышник».  Произошло это в Санкт-Петербурге на крыше ДК имени Кирова, где маэстро выступал не раз за свою жизнь…01. Любовь и крыша 00:00
+02. Налетела грусть 03:53
+03. Расставание 07:17
+04. Белая ночь 12:18(   Читать дальше...   )Производство: Россия / Александр РозенбаумЖанр: ШансонРежиссер: Александр ИгудинПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B77AB72516018BB425FCDCB9C070E1D0031B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514971   (173632) от 05.12.2021
+
+Красотка на взводе / Jolt (2021) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+С самого детства Линди страдает от неконтролируемых вспышек агрессии, вернее — страдают окружающие. Почти всю жизнь девушка провела во всевозможных клиниках, изучалась различными специалистами, и единственное, что помогает ей не калечить раздражителей — специальный жилет из электродов, который бьёт её током по нажатию кнопки. Однажды Линди встречает хорошего парня, (   Читать дальше...   )Производство: США / Busted Shark Productions, Campbell Grobman Films, Eclectic PicturesЖанр: Боевик, комедияРежиссер: Таня УэкслерАктеры: Кейт Бекинсейл, Бобби Каннавале, Джай Кортни, Лаверн Кокс, Дэвид Брэдли, Ори Феффер, Сьюзен Сарандон, Стэнли Туччи, Константин Грегори, Льюис Иэн БрэйПеревод: Дублированный (КиноПоиск HD)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86ED5B26E54ACDA675E0B4C95B4BCA05FD2FEF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595995   (173631) от 08.12.2022
+
+Монахиня-воин / Warrior Nun (2020) WEB-DLRip (сезон 1, серии 1-10 из 10) LostFilm
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Обычная девушка Эйва неожиданно для себя оказывается втянута в древнюю войну таинственного ордена с силами зла. Проснувшись в морге, она обнаруживает у себя невероятные способности. Поиск ответов приводит Эйву к ордену Крестообразного Меча — секретному обществу монахинь-воинов, поклявшихся защищать мир ото зла. Теперь она должна найти баланс между новыми обязанностями (   Читать дальше...   )Производство: США / Fresco Film Services, Reality Distortion FieldЖанр: фэнтези, боевик, драмаРежиссер: Саймон Бэрри, Сара Уолкер, Матиас ХендлАктеры: Альба Баптиста, Кристина Тонтери-Янг, Лорена Андреа, Тристан Ульоа, Текла Рютен, Olivia Delcán, Сильвия Де Фанти, Питер Де Джерси, Жоакин де Алмейда, Уильям МиллерПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFBD1D360A435CD7EB44F605E35A9401603F0EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668193   (173630) от 12.10.2023
+
+Пижамная игра / The Pajama Game (1957) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам одноимённого мюзикла 1954 года, снятого по роману Ричарда Пайка Бисселла " 7½ цента " 1953 года. На фабрику по пошиву пижам приходит новый управляющий. Здесь он знакомится с представительницей комитета по жалобам, и у них возникает роман. А в это время местный профсоюз начинает активную борьбу за надбавку к зарплате. И пара оказывается (   Читать дальше...   )Производство: США, Warner Bros. PicturesЖанр: мюзикл, мелодрама, комедияРежиссер: Джордж Эбботт, Стэнли ДоненАктеры: Дорис Дэй, Джон Райт, Кэрол Хейни, Эдди Фой мл., Рита Шоу, Барбара Николс, Тельма Пелиш, Джек Строу, Ральф Данн, Оуэн Мартин, Джеки Келк, Ральф В. Чэмберс, Мэри Стэнтон, Базз Миллер, Харви ЭвансПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (на песни и полные, clydy), английскиеПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71971DECCAAEAECF7CCAE00547D7622B40E4590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668542   (173629) от 12.10.2023
+
+Породы кошек - идентификатор v1.0.28.122 Mod by vedserega [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Породы кошек - Интеллектуальный идентификатор. Вы можете многое узнать о более чем 200 породах кошек с помощью приложения "Породы кошек - интеллектуальный идентификатор".
+- Какая порода кошек самая маленькая?
+- Какая порода кошек самая старая?
+- Каких кошек можно держать в квартире?Тип издания: ProРелиз состоялся: 02.10.2023Разработчик: Anna VoronichПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E8FFD1F78471AE6978B3FFC9B17950013226282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596030   (173628) от 08.12.2022
+
+Евгений Красницкий, Геннадий Николаец | Сотник (Книга 5). Кузнечик (2020) [MP3, Макс Радман]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Чего Михаил Ратников никак не мог предвидеть, так это того, что перепуганный мальчонка-христианин из-за болота подложит ему такую свинью. Ну, или наоборот, окажется подарком судьбы – это уж как посмотреть. Впрочем, поначалу никому в крепости и в голову не могло прийти, что за «неведому зверушку» привезли разведчики из лесу.
+
+Промокший, голодный мелкий сирота – что (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 10:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491EBB0ED60FCC3A72D57810295B1A88AAFB7C05
 ```
 
 https://mybot314.ru/tekegram_catalog/

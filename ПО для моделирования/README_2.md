@@ -1,3 +1,159 @@
+###  Публикация: 1374997   (868536) от 12.04.2020
+
+Motion Drop 1.5 For Cinema 4d [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Плагин Motion Drop который позволяет создавать до шести так называемых капель, которые случайным образом перемещаются друг вокруг друга.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8DFB92F48DFFB4CCD01458967DDB835D84944F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375172   (868525) от 12.04.2020
+
+WTools3D LWCAD v2018.31 For Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+LWCAD - это плагин для популярных 3d редакторов, который предоставляет инструменты для создания: стен, окон, дверей, лестниц и т.п. архитектурных объектов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02360BC60E5A27E05E481CCA697CF3D6FE179A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375109   (868523) от 12.04.2020
+
+City Rig 2.13 for Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+City Rig - это городской генератор для Cinema 4D. Он создает среднюю и высокую детализацию городской среды и пейзажей с улицами, тротуарами, складами, многоэтажками, фабриками и жилыми домами и многим другим. Все, что вам нужно для создания подробных городов всего за несколько минут.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF8C27A2B452B8BFB98A50374E48C4B151BB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999427   (862069) от 23.03.2016
+
+Aurora 3D Animation Maker 16.01070843 Portable by PortableAppС [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Aurora 3D Animation Maker  — программа для создания 3D анимации, с помощью которой можно создавать логотипы, тексты, видеоролики. Программа имеет множество анимационных эффектов, такие как: фейерверк, дым, снег, пламя, или пустоты пространства, Вы сможете контролировать все аспекты Вашей анимации, в том числе продолжительность анимации, скорость воспроизведения и (   Читать дальше...   )Язык интерфейса: русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3080DEB4C739324C47728FAD63DDA69C4A9E0ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999991   (860407) от 24.03.2016
+
+Aurora 3D Animation Maker 16.03230029 RePack & Portable (x86) by FoXtrot [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Aurora 3D Animation Maker — программа для создания 3D анимации, с помощью которой можно создавать логотипы, тексты, видеоролики. Программа имеет множество анимационных эффектов, такие как: фейерверк, дым, снег, пламя, или пустоты пространства, Вы сможете контролировать все аспекты Вашей анимации, в том числе продолжительность анимации, скорость воспроизведения и (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92533EB523B1D5A312E255966270341C28870977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376466   (858356) от 18.04.2020
+
+Vertex Normal Tool v1.04 For Cinema 4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Vertex Normal Tool - это плагин для C4D, который добавляет инструмент для создания и управления вершинными нормалями на многоугольных объектах в C4D. Практически все другие высокопроизводительные 3d-приложения (3ds Max, Maya и т. Д.) поддерживают редактирование нормалей вершин, а в то время как c4d поддерживает импорт, рендеринг и т. Д. Нормалей вершин, ему не хватает (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82379AF0720CBFFA937F18127B476451DD826BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378768   (844121) от 26.04.2020
 
 NextLimit RealFlow 3.1.1.0026 for Cinema 4D [En]
@@ -6,7 +162,7 @@ NextLimit RealFlow 3.1.1.0026 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +189,7 @@ X-Particles 2.1 Build 08 Pro [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +215,7 @@ IKMAX v1.0b for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +242,7 @@ HDR Light Studio 5.4.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +268,7 @@ Autodesk Entertainment Creation Suite Ultimate 2016 (x64) [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +294,7 @@ Simulation Lab Software SimLab Composer 8 8.2.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +320,7 @@ Folding Title GENERATOR 1-0 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +346,7 @@ Vectric Aspire 8.517 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +372,7 @@ Toporizer 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +398,7 @@ Quixel Suite 2.3.2 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +424,7 @@ UVlayout Professional 2.09.04 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +450,7 @@ ArCon Eleco Professional 2012.01 [De]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +477,7 @@ NewTek Lightwave 3D 2018.0.1 Build 3064 + Content [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +503,7 @@ Next Limit RealFlow 10.1.2.0162 + Plugins [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -373,7 +529,7 @@ Pilgway 3D-Coat 4.8.10 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -400,7 +556,7 @@ Lightmap HDRLightStudio Carbon 5.5.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -426,7 +582,7 @@ Mixamo Fuse Character Creator 1.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -452,7 +608,7 @@ Flora3D 2014.06.14 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -478,7 +634,7 @@ Reallusion CrazyTalk Animator 3.22.2426.1 Pipeline + Resource Pack [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +660,7 @@ Autodesk Mudbox 2019 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,163 +671,6 @@ Autodesk Mudbox — профессиональная графическая пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF669D75F8FBDA8D4AE0BC893D274552B99F853F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392314   (769275) от 25.06.2020
-
-Itoo Forest Pack Pro 6.3.0 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769275.jpg" />
-</div>
-
-
-###  Подробнее
-
-iToo Forest Pack Pro 6.3.0 - предоставляет полноценное решение для создания огромных массивов объектов любых типов: от деревьев и мелких растений, до зданий, групп людей, камней и многих других. Данный плагин является самым популярным в мире и применяется для расстановки объектов в 3DS MAX. Всё что Вы сможете смоделировать в 3DS MAX, Forest Pack Pro сможет распространить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7095B3C49E33466AC8CCD2FA4651FE03D44CF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279325   (765947) от 29.01.2019
-
-Snap To Floor 1.3 for Cinema 4D [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snap To Floor это совершенно новый плагин от Merkvilson,который умеет ставить объекты на пол,и непосредственно в режиме реального времени работать с объектом изменяя его размер,геометрию,и т.д. оставляя при этом его на поверхности.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CD8DBE4F8BCC541320266641D9537E6B7550BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127250   (740516) от 20.04.2017
-
-MaxToC4D 3.4 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин предназначен для экспорта моделей/сцен из 3ds Max в Cinema4D.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE15CE0FF71AA88D8F76126940C98ABADD04D1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528072   (735353) от 31.01.2022
-
-DropToSlate 1.29 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735353.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropToState - это скрипт, позволяющий перетягивать (drag & drop) текстуры в окно материалов 3ds Max. Автоматически преобразовывая их ноды в зависимости от выбранного рендер-движка.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85265109947DC0892D01D3E2CD643305EF037F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127421   (731358) от 21.04.2017
-
-Guruware Ivy generator 0.976b [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный плагин для выращивания плюща.
-Идеально подойдёт для сцен экстерьера в классическом стиле.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC680002A844F5FB9A6E83E1B6087F6A91EBE321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326377   (725644) от 21.04.2011
-
-Remograph Remo 3D v2.1 [Английский]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remo 3D - новая версия программы для 3D-моделирования. Программа сохраняет проекты в собственном формате OpenFlight, однако поддерживает импорт файлов многих форматов и экспорт в другие программы. Основное внимание в Remo 3D уделено инструментам для создания трехмерных моделей, а не средствам визуализации. Имеется наглядный интерфейс для управления компонентами сцены, используя который можно легко выбирать объекты и их части, после чего изменять их. Среди возможностей программы стоит отметить выделение по атрибутам, полностью настраиваемую сетку для ориентации в трехмерном пространстве, несколько способов отображения модели в окне программы. Remo 3D дает возможность выполнять редактирование моделей на уровнях подобъектов: вершин, ребер, полигонов. При необходимости объекты можно скрывать или замораживать. Кроме инструментов для моделирования, в Remo 3D предусмотрены средства для текстурирования. Пользователи могут использовать материалы, текстуры, подбирать параметры размещения текстуры на модели.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

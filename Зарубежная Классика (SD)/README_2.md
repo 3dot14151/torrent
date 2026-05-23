@@ -1,3 +1,108 @@
+###  Публикация: 1605977   (1044613) от 20.01.2023
+
+Капитан Хайберских стрелков / King of the Khyber Rifles (1953) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сын английского офицера и мусульманской танцовщицы, после гибели своих родителей воспитывался в семье их единственного друга, афганского торговца. Алан Кинг в чине капитана возвращается в Пешавар, где становится во главе подразделения Хайберских стрелков, набираемых из афганцев. Чопорное английское колониальное общество не принимает его в свой круг. Он оказывается (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: драма, мелодрама, приключения, историяРежиссер: Генри КингАктеры: Тайрон Пауэр, Терри Мур, Майкл Ренни, Джон Джастин, Гай Рольф, Ричард Уайлер, Мюррэй Мэтисон, Фрэнк ДеКова, Арджентина Брунетти, Суджата РубенПеревод: Одноголосый закадровый (Kolobroad)Язык озвучки: русский, английскийСубтитры: русские (отдельно)Продолжительность: 01:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE52E5867DA0DDC42DCD0B800BD1C24A699491A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601970   (1044598) от 20.01.2023
+
+Осуждённый / Convicted (1950) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Джо Хаффорд был осуждён за непреднамеренное убийство. Начальник тюрьмы Джордж Ноуленд сочувствует Джо и пытается облегчить его тюремную жизнь. Когда Джо становится свидетелем убийства тюремного осведомителя другим заключённым, он в соответствии с тюремным «кодексом молчания» отказывается назвать имя убийцы, даже несмотря на то, что его самого могут обвинить в убийстве...Производство: США / Columbia Pictures CorporationЖанр: фильм-нуар, боевик, драма, криминалРежиссер: Генри ЛевинАктеры: Гленн Форд, Бродерик Кроуфорд, Миллард Митчелл, Дороти Мэлоун, Карл Бентон Рейд, Фрэнк Фэйлен, Уилл Гир, Марта Стюарт, Генри О’Нилл, Дуглас КеннедиПеревод: Одноголосый закадровый (Алексей Багичев)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B93B7031A6ED9712BC34445B1612B246AA5B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602345   (1044484) от 21.01.2023
+
+Пэйтон Плейс / Peyton Place (1957) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что Констанс, как и другие родители, населяющие этот образцово-порядочный городок, стремятся растить своих детей-подростков по всем правилам хорошего тона и воспитания, скандалы только набирают оборот вокруг них: пьяный сторож избивает свою падчерицу, что влечет за собой убийство, суд и осознание того, что все в этом городе далеко не так хорошо, как (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Jerry Wald ProductionsЖанр: Драма, МелодрамаРежиссер: Марк РобсонАктеры: Лана Тернер, Ли Филипс, Ллойд Нолан, Артур Кеннеди, Расс Тэмблин, Терри Мур, Хоуп Лэнг, Дайан Варси, Дэвид Нельсон, Бэрри КоуПеревод: Многоголосый профессиональный, FOX InternationalСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429C448D27970162DBC87117E66CA7ABD047707F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 194266   (1044466) от 21.01.2023
+
+Молчание моря / Le silence de la mer (2004) DVDRip [Criterion Collection]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вторая экранизация одноименной книге Веркора (наст. имя и фам. Жан Брюллер).
+Тихий провинциальный французский городок времен Второй мировой войны. В дом, где живет молодая учительница музыки Жанна и ее дедушка Андрэ, вселяется молодой немецкий офицер Вернер. Андрэ и Жанна не могут повлиять на присутствие «гостя», который вдобавок занял комнату погибших родителей (   Читать дальше...   )Производство: Франция, Бельгия / Expand Drama, Radio Télévision Belge Francophone (RTBF), Saga Film (I)Жанр: драма, мелодрама, военный, экранизацияРежиссер: Пьер БутронАктеры: Жюли Деларме, Мишель Галабрю, Тома Жуанне, Мари Бюнель, Тимоти Ферран, Жан-Батист Пюэк, Йорг Шнасс, Йорн Камбреленг, Франк Бекманн, Александр АшкеназиПеревод: профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: отсутствуютПродолжительность: 01:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304D98D1BB6107E33AE2C5EFC5502758FDF46C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606461   (1044453) от 22.01.2023
 
 Рыжий пони / The Red Pony (1949) BDRip [H.264] [AVO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD6BC3DBC970D49D36C5C8C926CFA03B214C5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432313   (1040043) от 12.01.2021
-
-Риф Донована / Donovan's Reef (1963) WEBRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое бывших служак после войны остались на райском острове посреди Тихого океана. Каждый год незадолго до Рождества двое из них колошматят друг друга, отмечая таким образом собственный день рождения. В разгар праздника неожиданно приезжает дочь их третьего товарища, наследница крупной судоходной компании.Производство: США, John Ford Productions, Paramount PicturesЖанр: Мелодрама, комедия, приключенияРежиссер: Джон ФордАктеры: Джон Уэйн, Ли Марвин, Элизабет Аллен, Джек Уорден, Сесар Ромеро, Дик Форан, Дороти Ламур, Марсель Далио, Майк Мазурки, Жаклин МалуфПеревод: Многоголосый профессиональный (Paramount Channel), авторский одноголосый (Сергей Кузнецов)Субтитры: Английские, немецкие, французские - отдельными файламиПродолжительность: 01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEEED9F980851F4D4CC9792695820C72CE32D51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432417   (1039765) от 13.01.2021
-
-Лето, половина одиннадцатого / 10:30 P.M. Summer (1966) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Супруги Пол и Мария вместе с дочерью и приятельницей Клер едут в Мадрид. Так как приближается сильная буря, полиция останавливает их машину и просит переночевать в деревне. Также они узнают, что полиция разыскивает некоего Родриго Палестра, обвиняемого в убийстве жены и ее любовника. В переполненном отеле Мария вынуждена спать в коридоре. Она случайно выясняет, что (   Читать дальше...   )Производство: Испания, США / Argus Productions, JorilieЖанр: ДрамаРежиссер: Жюль ДассенАктеры: Мелина Меркури, Роми Шнайдер, Питер Финч, Хулиан Матеос, Исабель Мария Перес, Хуан Эстерлич, Беатриз Савон,Тота АльбаПеревод: Многоголосый профессиональный, НТВ+Субтитры: АнглийскиеПродолжительность: 01:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E6091C41BEE69071B09BF082B82B3CCD4DEC92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433243   (1039743) от 13.01.2021
-
-Ублюдки / I bastardi (1968) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейсон и Эдам, два сводных брата, занимаются ограблениями ювелирных магазинов и банков. Эдам предает Джейсона, отнимает у него похищенные камни и любимую девушку и бросает покалеченного на произвол судьбы. Полуживого младшего брата подбирает молодая женщина-доктор, которая выхаживает его на своем ранчо. Едва встав на ноги, Джейсон замышляет свою страшную месть. (   Читать дальше...   )Производство: Италия, Франция, Германия (ФРГ) / PECF, Rhein Main, Ultra FilmЖанр: Драма, КриминалРежиссер: Дуччо ТессариАктеры: Рита Хэйворт, Джулиано Джемма, Клаус Кински, Маргарет Ли, Клодин Оже, Серж Маркан, Умберто Рахо, Карл Чик, Паола Натали, Ганс ТорнерПеревод: Одноголосый любительский, ССК+Субтитры: ОтсутствуютПродолжительность: 01:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD72566A2B40433CC2761E3AA59D9238A52ED94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433339   (1039265) от 15.01.2021
-
-Горбун из Нотр-Дама / The Hunchback of Notre Dame (1923) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красотка-танцовщица Эсмеральда, купленная в раннем детстве у цыган и воспитанная Клопеном, королём нищих, как собственная дочь, привлекает внимание Жеана, брата архидьякона Нотр-Дама. Воспылав страстью, Жеан решает похитить танцовщицу с помощью горбуна Квазимодо...Производство: США, Universal PicturesЖанр: Экранизация, костюмированный, драма, немое киноРежиссер: Уоллес УорслиАктеры: Лон Чейни, Пэтси Рут Миллер, Норман Керри, Кейт Лестер, Винифред Брайсон, Найджел Де Брулир, Брэндон Херст, Эрнест Торренс, Талли Маршалл, Гарри фон МетрЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA92495D0EA16AFCED6819FEF88A30AAF8CA24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

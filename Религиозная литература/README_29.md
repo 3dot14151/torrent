@@ -1,3 +1,110 @@
+###  Публикация: 1120420   (803649) от 30.03.2017
+
+Бернард Лонерган | Метод в теологии (2010) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бернард Лонерган - канадский философ и теолог, иезуит, виднейший представитель трансцендентального томизма. Среди многочисленных трудов Лонергана наиболее известны и фундаментально значимы две работы: "Инсайт" (Insight, 1957) и "Метод в теологии" (Method in Theology, 1971) - книга, предлагаемая вниманию читателя и впервые переведенная на русский (   Читать дальше...   )Жанр: БогословиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D507ADA6A699CE94328C4C24288902212D6819D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119671   (803563) от 30.03.2017
+
+Д. Л. Похилевич | Современный католицизм (1960) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь спасти свое положение, империализм мобилизует все реакционные силы, не брезгуя для этого никакими средствами.
+
+Еще усерднее, чем это было после первой мировой войны, буржуазии помогают ее испытанные помощники — всевозможные социал-реформисты, социал-шовинисты, различные религиозные организации и в их числе — католическая церковь.
+(   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7232F8B258B96C33E940423D825868B791C3C041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896870   (803454) от 30.03.2017
+
+Хуго Ранер | Игнатий Лойола и историческое становление его духовности (2002) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Составлением Духовных Упражнений и основанием Общества Иисуса Игнатий Лойола направил ход церковной истории в новое русло - это признают и друзья, и враги. Книгу Духовных Упражнений св. Игнатия величают порой "судьбоносной книгой человечества", а его Ордену вменяют в заслугу внесение некоего великого вклада в культуру. Однако эти суждения остаются (   Читать дальше...   )Жанр: Историческое исследованиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BE5CE3F091FFED54B1C91B579D720C310F2010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730541   (803277) от 30.03.2017
+
+Серен Керкегор | Философские крохи, или Крупицы мудрости (2009) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Задуманная как ответ гегельянству, и, в первую очередь, попыткам историко-критического прочтения Нового Завета, предпринятого Тюбингенской школой, книга Керкегора стала событием, выходящим далеко за пределы злободневных дискусий 1840-х гг. Ее центральный вопрос - историчность не Писания, а самого Пришествия - истины, чья вечность реализуется в человеческой истории (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889035FD0254977C7B43FAE474F64C20F9E1BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730836   (803273) от 30.03.2017
 
 Владимир Вениаминович Бибихин | Алексей Федорович Лосев. Сергей Сергеевич Аверинцев (2006) [PDF]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,112 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:515DAE824AC84039234D0B8492C56F90FF50D85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120979   (800469) от 02.04.2017
-
-Александр Дворкин | Десять вопросов навязчивому незнакомцу, или Пособие для тех, кто не хочет быть завербованным. (1998) [DJVU, PDF, DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уважаемый читатель! Книга, которую Вы держите в руках, уникальна. В результате беспрецедентного судебного процесса по иску, поданному против нее сектантами и их защитниками, опубликованные в ней сведения признаны достоверными.
-
-Автор - А.Л. Дворкин, кандидат богословия, доктор философии; возглавляет Информационно-консультативный Центр священномученика Иренея, епископа (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07EC5A0EC8C5DF7E65E2F7787DB95992FE9A3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199774   (800443) от 17.01.2018
-
-П.Н. Соколов | Агапы или Вечери любви в древнехристианском мире (1906) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ага́па, в I–V веках н.э. — вечернее собрание христиан для молитвы и вкушения пищи, соединённое с воспоминаниями об Иисусе Христе. Одним из главных духовных оснований этому изначально было исполнение заповеди Христа о любви (др.-греч. ἀγάπη, произносится агапэ), и не позднее 60–70 года словом αγάπη стали называть (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3EA31C9E0634D58F9BCA5765F6D62EE23B9A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824473   (800248) от 02.04.2017
-
-Г.Г. Ястребов и др. | 50 религиозных идей, которые никогда не понравятся Богу (2009) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге увлекательно и доступно рассказано о самых распространенных мифах, связанных с православием, католичеством, протестантизмом, иудаизмом и язычеством. Впервые под одной обложкой собрано описание ключевых религиозных мифов. Есть мифы забавные, есть мифы, за которыми стоит трагическая история. Все эти ложные религиозные идеи ежедневно мешают нам жить в мире (   Читать дальше...   )Формат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D01E4C108B8B24566A5DFCEEF1935350E7CA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385114   (800193) от 23.05.2020
-
-Протоиерей Андрей Ткачев | Таинство чтения. Как книги делают нас значимыми людьми (2020) [EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга всегда занимала важное место в жизни человека. Возьми любую великую личность, начни изучать жизнь гения, и ты найдешь среди фактов биографии особое отношение к чтению. Книги влияют на наши ум, душу и даже на здоровье гораздо сильнее, чем мы можем предположить, а чтение как процесс, как деятельность представляет собой настоящее таинство преображения человека. (   Читать дальше...   )Жанр: Духовная литература, ХристианствоФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF8C9CF108980CF2AF8A3BDBC334B8ADCC7FDA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

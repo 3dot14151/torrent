@@ -1,3 +1,85 @@
+###  Публикация: 1816402   (4476) от 04.09.2025
+
+МТС Music v9.55.1 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
+
+МТС Music без подписки это:
+• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 04.09.2025Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF84C0E08A9D222DFD3ABE21E3FE21370BEB6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816396   (4475) от 04.09.2025
+
+ТВ+ Эфир: Цифровое телевидение v4.1.8 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+TV+: Бесплатное Онлайн Телевидение
+Погрузитесь в мир бесплатного онлайн телевидения с приложением TV+. Насладитесь основными российскими телеканалами в HD качестве, а также региональным цифровым ТВ прямо на вашем телефоне. С TV плюс вы всегда на связи с любимыми передачами и шоу!Тип издания: ModРелиз состоялся: 02.09.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8605A991C92142CD1CD78E724698F6056A6AD284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816394   (4463) от 04.09.2025
+
+Лайт HD ТВ v4.4.1 Mod by vadj [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лайт — это ваше HD ТВ онлайн. Все каналы бесплатно. Можно смотреть ТВ-передачи в поездке, в очереди, на обеде, на даче, дома — телевизор всегда с собой. Простое, удобное и лёгкое приложение, чтобы телевидение смотреть: онлайн и бесплатно. 330+ ТВ-каналов бесплатно. Смотрите онлайн ТВ, кино, сериалы и мультфильмы.Тип издания: Premium / ModРелиз состоялся: 02.09.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+ и Android TVЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B7FB23381F28D4E6660746772C421F4E69320F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1816238   (4450) от 04.09.2025
 
 Save location GPS / Сохранить местоположение GPS v9.6 Mod by Viktor245 [Ru/Multi]
@@ -6,7 +88,7 @@ Save location GPS / Сохранить местоположение GPS v9.6 Mod
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Real Fishing / Настоящая Рыбалка v0.0.71 Mod by vadj [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +168,7 @@ Purvpn 9.1 [En/Farsi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +197,7 @@ SHAREit Premium: Pure Share v1.1.98 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +223,7 @@ Anews: все новости и блоги v4.6.0 Mod by vadj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +249,7 @@ All-In-One Offline Maps v3.17 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +275,7 @@ Logic Circuit Simulator Pro / Симулятор Логической Схемы
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +301,7 @@ TVGuide v4.6.0 Premium Mod by Alex.Strannik [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +328,7 @@ Pro Pilkki 2 / Зимняя рыбалка v2.0.7 Mod by ShiroAndShuvi [Ru/Multi
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +380,7 @@ jetAudio HD Music Player Plus v12.3.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +406,7 @@ VIMAGE - AI Photo Animation v5.1.11 Mod by PieMods [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +432,7 @@ aCalendar+ Calendar & Tasks v2.9.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +458,7 @@ Mindroid: AVS, Mind machine v8.1 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +484,7 @@ Strava: бег, велоезда, хайкинг v428.10 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +510,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v3.1.19 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +536,7 @@ WeNote: заметки блокнот планер v6.39 Mod by PieMods [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +562,7 @@ Talksy: Навык общения v0.1.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +614,7 @@ PhotoDirector v20.5.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +640,7 @@ PowerDirector – Video Editor v15.7.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -584,7 +666,7 @@ LazyMedia Deluxe v3.406 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,84 +677,6 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56EDDC31EAAB75E44D5D96C9B95D431F56FAD2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817732   (2800) от 14.09.2025
-
-BZ Напоминания и Дни Рождения PRO v3.9.3 Mod by Viktor245 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто Вы что-либо забываете сделать? С помощью этой напоминалки Вы можете ПРОСТО ПОМНИТЬ ВСЁ И ВСЕГДА! Вы можете легко контролировать все задачи, находящиеся в Вашем списке дел, и быть уверенным что Вы их сделаете. Удобное и функциональное приложение для создания, использования и управления напоминаниями. В наличии возможность поделиться напоминаниями.Тип издания: Pro / ModРелиз состоялся: 12.09.2025Разработчик: Atlas ProfitПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72FF9648A6ED2795CD7A74C6B1C85A2431CF9975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818583   (2371) от 17.09.2025
-
-Цифровое ТВ v4.2.7 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильмы, сериалы, мультфильмы, новости, музыка и спорт - это прямой эфир самых популярных общероссийских телеканалов в отличном качестве специально для Вас! С приложением Цифровое ТВ популярные программы доступны круглосуточно и абсолютно бесплатно. Теперь Вы не пропустите любимые передачи или прямой эфир матчей, стоя в пробке, отдыхая на даче или ожидая рейс в аэропорту. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.09.2025Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09FFD1B23E37C6BB603B4A6D1CD690E45839848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818585   (2368) от 17.09.2025
-
-Эфир ТВ + : Телевизор Онлайн v4.1.9 Mod by vadj [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2368.jpg" />
-</div>
-
-
-###  Подробнее
-
-OTT Онлайн прямое телевидение, в котором вы найдете прямой эфир, а также все популярные тв каналы: в том числе 20 цифровых общероссийских каналов и не менее интересное и познавательное региональное цифровое ТВ & ТВЦ. Наше мобильное приложение это ваш ключ к миру “Ц” телевидения нового поколения! Забудьте о скучных программах и ограниченных возможностях традиционного (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.09.2025Разработчик: Лайм ЭйчДиПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49000C89DA00067995C5D3D2E2CB2F17EF6B4CC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1212774   (774889) от 13.03.2018
+
+Beast Quest (2018) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спасите королевство Авантия (Avantia) от разрушения! В приключенческой игре Beast Quest вас ждёт богатый сюжет, интересный мир и множество испытаний.Тип издания: LicenseРазработчик: Torus GamesЖанр: Adventure, RPG, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE83F4906C7B678DE400EE186874EE129E12D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213603   (774789) от 22.01.2019
+
+Ghost of a Tale (2018) [Ru/Multi] (7.91) Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ghost of a Tale рассказывает историю отважного мышонка-менестреля Тило, который отправился в полное опасностей путешествие, надеясь выбраться из подземелий крепости Тающие башни и узнать судьбу своей возлюбленной по имени Мерра.Тип издания: RepackРазработчик: SeithCGЖанр: Action, АdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E194AEE02E5C9C6CB0DBBABEC0237E7AA649FCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124925   (772738) от 13.04.2017
+
+Planescape Torment (2017) [Multi] (3.0.3.0) License CODEX [Enhanced Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Planescape: Torment: Enhanced Edition - переработанное издание классической ролевой игры 1999 года. Оригинальная игра Planescape: Torment вышла в 1999 году и сразу же заслужила единогласное признание критиков. Многие журналы назвали ее игрой года и по достоинству оценили необычную историю, запоминающихся персонажей и великолепную музыку. Откройте для себя невероятно (   Читать дальше...   )Тип издания: LicenseРазработчик: BeamdogЖанр: RPG, Strategy (Real-time), FantasyЯзык озвучки: Английский, Французский, ПольскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCE95569F6D51B5E75BD1272F1477DAB055C223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278313   (772512) от 24.01.2019
 
 Dragon Age II / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack xatab
@@ -6,7 +84,7 @@ Dragon Age II / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Terrible Beast from the East (2019) [En/Ch] (1.0) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bloom: Labyrinth (2019) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack R.G. Механи
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Final Fantasy X/X-2 HD Remaster (2016) [En/Multi] (1.0) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ Cosmic Star Heroine (2017) [En] (1.0) License TiNYiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ Bastion (2011) [Ru/En] (0.12367) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ Bound by Flame (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +294,7 @@ ELEX (2017) [Ru/Multi] (1.0.2981.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ Shadowhand (2017) [En] (1.06) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ Moonfall (2017) [Ru/Multi] (1.00) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Tower of Time (2018) [Ru/Multi] (1.4.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Ghost of a Tale (2018) [Ru/Multi] (6.39) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +425,7 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +451,7 @@ Ash of Gods: Redemption (2018) [Ru/Multi] (1.0.7) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (1.0/dlc) License CODEX [The P
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +555,7 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +581,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +607,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +633,7 @@ Disciples: Liberation (2021) [Ru/Multi] (1.0.3.B258.R57446) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +659,7 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,84 +670,6 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32D43BE82F461D09557C9FB5261C1D9F37383907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396501   (746432) от 15.07.2020
-
-Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит в уединённой деревушке на краю мира. Единственные ворота, ведущие во внешний мир, находятся под охраной замка, так что жителям деревни нельзя её покидать. Но большинство жителей даже не задумываются об этом и счастливо проводят день за днем. Однако наш главный герой немного отличается от остальных — он хочет посмотреть внешний мир.Тип издания: LicenseРазработчик: GAME FREAK inc.Жанр: Ролевые игрыЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88C4C5A4F853F6B6BAB0E7E3DC01053DA771D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282189   (746087) от 11.02.2019
-
-Victor Vran (2015) [Ru/Multi] (2.07.20190131/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Victor Vran - это изометрический ролевой экшен с огромным выбором оружия, предметов, брони, демонических способностей и карт судьбы. Окунитесь в водоворот напряженных сражений с десятками опасных врагов, используйте могущественные таланты и умения! В Victor Vran вы сами сможете выбирать свой стиль игры. Вам предстоит выковать свою собственную версию Виктора, благодаря (   Читать дальше...   )Тип издания: LicenseРазработчик: Haemimont GamesЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A8C7FA7854F212D3444BE8F92344B6A4B72312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020187   (745926) от 25.05.2016
-
-Two Worlds - Epic Edition / Два Мира (2008) [Ru/Multi] (1.7) License PROPHET
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745926.jpg" />
-</div>
-
-
-###  Подробнее
-
-... спустя 300 лет после падения Азираала, брат и сестра оказываются втянуты в конфликт, разгоревшийся между орками и свободным миром. Кайра, младшая сестра героя, неожиданно пропадает при очень таинственных обстоятельствах. Герой, охотник за головами, прочесывает Анталоор в ее поисках. Его миссия заносит его на дальние рубежи континента. Постоянно держа ухо востро (   Читать дальше...   )Тип издания: LicenseРазработчик: TopWare InteractiveЖанр: RPG (Rogue, Action), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48348A78D448BDBDFD43A6AFCDE0C8D277E19A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

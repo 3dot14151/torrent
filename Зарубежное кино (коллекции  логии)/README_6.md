@@ -1,3 +1,55 @@
+###  Публикация: 1389774   (783847) от 12.06.2020
+
+Шерлок Холмс / Sherlock Holmes (2009, 2011) BDRip [H.264/720p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«Шерлок Холмс» (англ. Sherlock Holmes) — детективный боевик Гая Ричи, в основе которого лежат произведения Артура Конан Дойля о Шерлоке Холмсе, хотя основной сюжет оригинален.Производство: США, Германия / Warner Bros., Village Roadshow Pictures, Silver PicturesЖанр: боевик, приключения, триллер, драма, комедия, криминал, детективРежиссер: Гай РичиАктеры: Роберт Дауни мл., Джуд Лоу, Рэйчел МакАдамс, Марк Стронг, Эдди Марсан, Роберт Мэйллет, Джеральдин Джеймс, Келли Райлли, Уильям Хьюстон, Ганс МэтисонПеревод: Дублированный, двухголосый профессиональный, авторский, любительский одноголосыйСубтитры: русские, английскиеПродолжительность: 02:08:25 / 02:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6356978CA4804F4C3D232811686AEB68554496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343105   (783823) от 12.06.2020
+
+Шерлок Холмс / Sherlock Holmes (2009, 2011) BDRip [H.264/1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+«Шерлок Холмс» (англ. Sherlock Holmes) — детективный боевик Гая Ричи, в основе которого лежат произведения Артура Конан Дойля о Шерлоке Холмсе, хотя основной сюжет оригинален.Производство: США, Германия / Warner Bros., Village Roadshow Pictures, Silver PicturesЖанр: боевик, приключения, триллер, драма, комедия, криминал, детективРежиссер: Гай РичиАктеры: Роберт Дауни мл., Джуд Лоу, Рэйчел МакАдамс, Марк Стронг, Эдди Марсан, Роберт Мэйллет, Джеральдин Джеймс, Келли Райлли, Уильям Хьюстон, Ганс МэтисонПеревод: Дублированный, двухголосый профессиональный, авторский, любительский одноголосыйСубтитры: русские, английскиеПродолжительность: 02:08:25 / 02:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB36EF79B37F31C3DF9E0D91B01E18C347BC2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391198   (781361) от 19.06.2020
 
 G.I. Joe: Бросок кобры  / G.I. Joe: The Rise of Cobra (2009-2013) BDRip [H.264/720p] [Дилогия]
@@ -6,7 +58,7 @@ G.I. Joe: Бросок кобры  / G.I. Joe: The Rise of Cobra (2009-2013) BDR
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_757544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B21E3E7448586679F569C33251C415F86245BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 411164   (744250) от 20.04.2015
-
-Шерлок Холмс: Полная коллекция / Sherlock Holmes: The Complete Collection (1939-1946) [1080p] BDRemux
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Холмс нанят Роландом Карстэрсом, чтобы предотвратить воровство Звезды Родезии, огромного алмаза, принадлежащего матери Карстэрса, Леди Маргарет. Догадываясь, что алмаз будет украден в поезде по пути от Лондона до Эдинбурга, Холмс ловко подменяет алмаз Леди Маргарет, в то время как заходил в ее купе. Вскоре после этого, Роланд был убит, а поддельный алмаз украден...Профессор Мориарти разработал план кражи драгоценности короны из Лондонского Тауэра, чтобы вовлечь в игру Холмса, он убеждает флейтиста-гаучо убить девочку.Жанр: ДетективРежиссер: Рой Уильям Нилл / Roy William NeillАктеры: Бейзил Рэтбоун, Найджел Брюс, Ида Лупино, Джордж Зукко, Алан Маршал, Терри Килбёрн, Генри Стивенсон, Артур Хол, Мэй Битти, Питер УиллзВ ролях: Бейзил Рэтбоун, Найджел Брюс, Алан Маубрэй, Дэннис Хоуи, Рени Годфри, Фредерик Уорлок, Мэри Форбс, Skelton Knaggs, Билли Беван, Джеффри СтилПеревод: Профессиональный (многоголосый, закадровый) DVD-ClassicФормат: BDAVПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781960   (742176) от 06.05.2014
-
-Бум [дилогия] /La boum [dilogy] (1980,1982) BDRip [H.264/720p-LQ]  [Hi10P]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории жизни и любви очаровательной Вик (Софи Марсо чудесно расцвела и получила премию "Сезар" как актриса-надежда). После событий, происшедших в «Буме», прошло два года. Вик из угловатого подростка превратилась в хорошенькую девушку. Вик уже 15 лет, у неё появился маленький братишка и она переживает, что у неё нет постоянного парня, о чем (   Читать дальше...   )Производство: ФранцияЖанр: Комедия, МелодрамаРежиссер: Клод ПинотоАктеры: Софи Марсо, Клод Брассёр, Брижит Фоссе, Дениз Грей, Александр Стерлинг, Шила О`Коннор, Александра Гонен, Пьер Коссо, Ламбер Вилсон, Жан-Филипп Леонард, Жан Левре, Клаудио Морэн, Даниель РуссоПеревод: Профессиональный (дублированный), Профессиональный (многоголосый, закадровый)x3, Профессиональный (двухголосый, закадровый)Язык субтитров: нетФормат: MKVПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA6597DAF85AB5AA2FF9CBED7E212F179A3C4BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 1173827   (137168) от 31.12.2017
+
+Houseki no Kuni / Land of the Lustrous / Сказания о самоцветах [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что в далёком будущем население Земли всё-таки обретёт вечную жизнь, бессмертие. Но только, по своей сути, эти бессмертные существа будут напоминать людей внешне, но не являться ими в действительности. Вместо человеческой цивилизации развернётся цивилизация Самоцветов. Но на соседних планетах и спутниках жизнь тоже начала кипеть ключом. Например, (   Читать дальше...   )Жанр: приключения, фэнтези, сэйнэнРежиссер: Кёгоку ТакахикоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195875   (137158) от 31.12.2017
+
+Sin: Nanatsu no Taizai | Seven Mortal Sins | Прегрешение: Семь смертных грехов [TV-1] [2017, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Гордый архангел Люцифер ослушался Бога и был низвергнут в глубины ада. По пути вниз падший ангел знакомится с обычной земной школьницей по имени Мария, которая ей помогает. Уже в аду Люцифер встречается с Левиафаном, которая рассказывает бывшему ангелу про Семь Смертных Грехов — семерых демонов, правящих адом. Когда Семь Смертных Грехов запечатывают ангельские силы (   Читать дальше...   )Производство: студия Artland, студия TNKЖанр: приключения, фэнтези, эттиРежиссер: Ёсимото КиндзиПеревод: (Aiso), (Jenia aka Zub); c моими правками по дизайну и шрифтами.Язык озвучки: Русский
+TV-1 (AniDub), (Anilibria), (Animedia), (SovetRomantica) - внешними файламиЯзык субтитров: РусскийПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FF80A2F7D6BE64239C2EA54A865D8C0E8C5891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174714   (137155) от 31.12.2017
+
+Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что тебе нужно [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ицуки Хасима молод и талантлив, пишет ранобэ в жанре сискон и довольствуется славой писателя-новеллиста. Но, окружённый вниманием поклонниц, главный герой почему-то остаётся недоволен: в его жизни есть всё... кроме любимой младшей сестрёнки. Есть близкая подруга Мияко Сиракава, а сестрёнки нет. Есть Наюта Кани, претендующая на статус его жены, а сестрёнки нет. Есть (   Читать дальше...   )Жанр: комедия, романтикаРежиссер: Онума СинЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C243D9B3C213485AFD5C279EA7CBE2FB2ED38F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173695   (137138) от 31.12.2017
+
+Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В запертом и заброшенном особняке, в пустынном месте живёт… Нет, не страшное привидение, а всего лишь девочка по имени Кардия. Но причину, по которой ей приходится жить в таком жутком месте, как раз можно назвать страшной. Дело в том, что в крови Кардии течёт настоящий яд! И всё, чего она касается, либо гниёт, либо плавится. Поэтому девочка пообещала своему отцу, (   Читать дальше...   )Жанр: фэнтези, романтика, сёдзёРежиссер: Ямамото ХидэёЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B4F25AF1BE7C642E336D61726E755A6BC67418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348909   (137099) от 31.12.2019
 
 Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренадер [2004, TV] DVDRip 480p raw+rus
@@ -6,7 +111,7 @@ Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренаде�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +243,7 @@ Hikaru no Go / Хикару и Го (2001, TV, 75 + Special) DVDrip raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +271,7 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +351,7 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +377,7 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +404,7 @@ Riki-Ou: Toukatsu Jigoku | Riki-Oh: The Walls of Hell | Рики-О: За сте
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +430,7 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +485,7 @@ Miami Guns | Пушки Майами [2000, TV, 13 из 13] DVDRip 576p 10-bit r
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +511,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +537,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +593,7 @@ Bishoujo Senshi Sailor Moon Super S Sailor 9 Senshi Shuuketsu! Black-Dream-Hole 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +645,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +671,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -577,113 +682,6 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7146BFB77148490D49A744F5E83C2E49B646472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684343   (127844) от 15.12.2023
-
-Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-призрак [1969, Movie] DVDRip 480р raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие годы в океане бесследно пропадают корабли. Люди, чудом оставшиеся в живых, вспоминают что незадолго до катастрофы они видели таинственный Корабль-призрак. Гигантский робот Голем разрушающий кварталы Токио, объявляет себя посланцем Корабля-призрака.
-  На улицах города, у всех на глазах исчезают люди. Все считают, что это козни Корабля-призрака. И только у отважного (   Читать дальше...   )Производство: Япония / Toei AnimationЖанр: аниме, мультфильм, фантастика, приключенияРежиссер: Икэда ХиросиПеревод: Язык озвучки: Японский и русскийСубтитры: ОтсутствуютПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5750465C12E648F15BEF8CED0A5C9387E0CFE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666060   (127193) от 19.12.2023
-
-Ненасытный берсерк | Boushoku no Berserk | Berserk of Gluttony [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127193.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где всё решают особые индивидуальные навыки, Фейту не очень-то повезло. Дело в том, что ему от рождения достался навык "Обжорство", который, как кажется, не даёт ничего, кроме чувства постоянного голода. Всю свою жизнь он терпел издевательства со стороны окружающих и мечтал однажды с ними поквитаться. И вот, наконец, такой шанс ему выпал. Когда (   Читать дальше...   )Производство: Япония / Студия A.C.G.T.Жанр: Приключения, фэнтезиРежиссер: Янагисава ТэцуяЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Itashi, Lupin, Renie (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D2D00B2F6EF9B4B72026DD05D1DA4A45AA958C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673184   (127169) от 19.12.2023
-
-Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я предпочитаю злодейку [2023, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная офисная работница падает от изнеможения и просыпается Рей Тейлор, главной героиней своей любимой отомэ-игры «Революция». Рей с восторгом хватается за возможность признаться в любви предмету своего обожания — злодейке Клэр Франсуа. Героиня вооружена доскональным знанием мира игры и грядущих событий, и твёрдо намерена завоевать Клэр. Но чем ответит злодейка (   Читать дальше...   )Производство: Япония, студия PlatinumvisionЖанр: комедия, романтикаРежиссер: Оба ХидэакиЯзык озвучки: Русский закадровый (Dream Cast), (SHIZA Project), (AniLibria.TV)Субтитры: Русские надписи, русские, Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEAF91CA4363BE1EA706B9E348DD7EF36915334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666324   (126845) от 21.12.2023
-
-Мужчина средних лет и его похождения в VRMMO | Toaru Ossan no VRMMO Katsudouki | A Playthrough of a Certain Dude's VRMMO Life [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё одна история про простого офисного работника, любящего в свободное время позалипать в видеоигры. А начинается она с того, как 38-летний Таичи Танака решает зайти в совершенно новую виртуальную ММОРПГ под названием "Ещё одна вольная жизнь Онлайн". Особенность этой игры заключается в том, что в ней нет никаких ограничений и игроки могут делать всё, что (   Читать дальше...   )Производство: Япония / Студия Maho FilmЖанр: Приключения, фэнтезиРежиссер: Накадзава ЮйтиЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Cleo-chan, Lobanov, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D640D4E3F51601C79B171141F1F4368F5A482D
 ```
 
 https://mybot314.ru/tekegram_catalog/

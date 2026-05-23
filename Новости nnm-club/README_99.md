@@ -1,3 +1,187 @@
+###  Публикация: 1399412   (733248) от 31.07.2020
+
+ABBYY FineReader PDF 15.0.113.3886 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Благодаря внутренним разработкам ABBYY в области искусственного интеллекта и современных методов машинного обучения, новый ABBYY FineReader 15 превратился в многофункциональный редактор для решения любых задач с PDF и бумажными документами. Программа позволяет офисным сотрудникам работать с PDF и сканами так же просто и удобно, как с привычными всем текстовыми документами (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4492177ACBA93A368EDBAFD53D7A4535A04C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399345   (733247) от 31.07.2020
+
+ABBYY FineReader PDF 15.0.113.3886 Corporate Full/Lite RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Благодаря внутренним разработкам ABBYY в области искусственного интеллекта и современных методов машинного обучения, новый ABBYY FineReader 15 превратился в многофункциональный редактор для решения любых задач с PDF и бумажными документами. Программа позволяет офисным сотрудникам работать с PDF и сканами так же просто и удобно, как с привычными всем текстовыми документами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6A94228EEC1C078F79BD41BB0646E8E45495FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789533   (733100) от 24.05.2014
+
+Wolfenstein: The New Order [PS3] [EUR] [Ru] [4.55] [Cobra ODE / E3 ODE PRO ISO] (2014)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Wolfenstein®: The New Order - это возрождение серии, которая когда-то положила начало жанру FPS. Разрабатываемая студией Machine Games, в которой собрались опытные мастера, создавшие не одну знаменитую игру, Wolfenstein представляет собой сочетание психологической драмы с захватывающим сюжетом, приключениями и боевой системой от первого лица.
+
+В напряженной, кинематографичной (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Machine GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45DED1528F12D99DE6544599199D28B4971FEEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529218   (732994) от 05.02.2022
+
+HITMAN 3 (2021) [Ru/Multi] (3.100/upd13/dlc) Repack Other s [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+HITMAN 3 — эффектное завершение трилогии «Мир наемных убийц». Станьте легендарным убийцей Агентом 47, используйте фантазию и импровизируйте, совершая самые гениальные и зрелищные заказные убийства в огромных уровнях-«песочницах», разбросанных по всему миру.Тип издания: RepackРазработчик: IO Interactive A/SЖанр: Action (Shooter), 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A277C66D3644C3CD5D34D94F0A5ACCDB518C0AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528890   (732581) от 06.02.2022
+
+Свингеры (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перед Новым годом всем хочется немного любви. Успешный бизнесмен Игорь ищет острых ощущений, а его девушка, сногсшибательная топ-модель, хочет, чтобы их отношения, наконец, вышли на новый уровень. В то же время в совершенно обычной семье Ирина жаждет снова разжечь страсть в своем муже. Вместе их всех случайно сводит приложение для обмена партнерами, и теперь предновогодняя (   Читать дальше...   )Производство: Россия, Латвия, Cinevilla Studio, Мотор Фильм СтудияЖанр: комедия, мелодрамаРежиссер: Андрейс Экис, Дмитрий ФиксАктеры: Дмитрий Нагиев, Ирина Пегова, Олеся Судзиловская, Наталья Рудова, Илья Носков, Иван Злобин, Дарья Руденок, Алексей Бояджи, Виктор КузинПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C52417ABBADD0E7577A0BAF77668F7E8605BFF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021605   (732377) от 29.05.2016
+
+Winstep Nexus Ultimate 16.5 Repack by Nemo [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Winstep Nexus - компактная, удобная и красивая панель для быстрого запуска программ и открытия документов (файлов, папок) в стиле панели аналогичного назначения в Mac OS. Поддерживает множество скинов, выбора звукового оформления. Гибкая система настроек и русский интерфейс не оставят вас равнодушными к этой программе.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0DEBEFAD93C90647BC95D192188E99073F3BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021408   (732296) от 29.05.2016
+
+Алексей Довгуля | Съемка в бюджетной домашней фотостудии (2016) PCRec [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В это сложно поверить, поэтому придется увидеть своими глазами: Алексей Довгуля оставляет свой генератор Profoto дома и идет снимать с помощью пары вспышек. Эксклюзивное онлайн-мероприятие для учащихся Profile, свободное от плановой режиссуры – никакой подготовки и репетиций! Подключившись к «классу», вы сразу окажетесь в условиях, максимально приближенных к реалиям (   Читать дальше...   )Производство: ProfileSchoolЖанр: ФотосъемкаПродолжительность: 05:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1065903C479BA4BDE394613206947BABF703D4D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020130   (732290) от 29.05.2016
 
 Боги Египта / Gods of Egypt (2016) BDRip [H.265/1080p-LQ]
@@ -6,7 +190,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +268,7 @@ Advanced Archive Password Recovery Enterprise Edition 4.54.110 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +295,7 @@ Discovery: Крутой тюнинг (52 серии) / OverHaulin (2007-2008) SA
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +452,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4366.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +505,7 @@ Bakemonogatari / Bake monogatari / Истории чудовищ [2009, 15 из 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +557,7 @@ NVIDIA отказалась от покупки Arm — разработчик �
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -399,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +609,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +663,7 @@ Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,191 +674,6 @@ Acronis Disk Director 12 — это набор мощных инструмент
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3790BC42F6231C92824706A0FED1E2A547A34C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520814   (730323) от 09.02.2022
-
-Не смотрите наверх / Don't Look Up (2021) WEB-DL [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Астрономы открывают новую комету и, рассчитав её траекторию, узнают, что через полгода она столкнётся с Землёй, что положит конец существованию человечества и всего живого на планете. Двое учёных с трудом добиваются аудиенции у президента США, но там к их предупреждению относятся с недоверием, тогда они выступают в популярной телепередаче, но большинство всё равно (   Читать дальше...   )Производство: CША / Bluegrass Films, Hyperobject IndustriesЖанр: Драма, фантастика, комедияРежиссер: Адам МакКейАктеры: Леонардо ДиКаприо, Дженнифер Лоуренс, Мэрил Стрип, Джона Хилл, Кейт Бланшетт, Роб Морган, Марк Райлэнс, Тайлер Перри, Тимоти Шаламе, Рон ПерлманПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (forced х2, full), украинские (forced х2, full), английские, французские, немецкие, испанские, китайскиеПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6EF035AEED1DD4BDEC24AB2B8A5B7CD29C29CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127209   (730264) от 22.04.2017
-
-Проекты - VideoHive - Made of Love - Romantic Slideshow - 19654947 [AEP]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот романтический шаблон AE может помочь вам создать винтажный свадебный фильм, видеоролик о любви, поздравление с Днем рождения или любое другое ретро-слайд-шоу. С его модульной структурой и подробным видео-уроком вы можете сделать это с легкостью.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FBE39333FA4DE2E9E062A4179FD4DCDA7CF9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936366   (730235) от 22.04.2017
-
-The Forest (2015) [En] (0.59b) Repack Mr.Weegley
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730235.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Forest – хоррор на выживание, выходящий на Steam Early Access. В результате падения самолета игрок попадает на остров. Теперь он должен строить укрытия, делать оружие и различные инструменты выживания. Разработчики ввели в игру каннибальское племя, которое, по задумке, должно заставить игрока задуматься: является ли племя врагом протагониста, и наоборот, является (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Action, FPS, Adventure, Indie, Simulator, Early AccessЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20467DADE9DEA333BDFB78DA391AB866752944D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127682   (730231) от 22.04.2017
-
-Windows 7 Home Premium SP1 (x86/x64) Elgujakviso Edition (v.22.04.17) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки сделаны на основе оригинальных образов от MSDN:
-ru_windows_7_home_premium_with_sp1_x86_dvd_u_676719.iso (Original 12.05.2011)
-ru_windows_7_home_premium_with_sp1_x64_dvd_u_676728.iso (Original 12.05.2011)
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296704484CDB0B6A73B2965B139D9C908E4CE765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021734   (730224) от 31.05.2016
-
-Tor Browser Bundle 6.0 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD1CB057608231A834CDA01DB547897814428C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021890   (730210) от 31.05.2016
-
-Проекты - Проект ProShow Producer -  Выпускной в детском саду [PSH]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730210.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Выпускной в детском саду" - проект от известного мастера PSPФормат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94552C40DA1F14128E48AB24E6295246F22DF2BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022140   (730208) от 31.05.2016
-
-Экипаж (2016) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730208.jpg" />
-</div>
-
-
-###  Подробнее
-
-История талантливого молодого летчика Алексея Гущина. Он не признает авторитетов, предпочитая поступать в соответствии с личным кодексом чести. За невыполнение абсурдного приказа его выгоняют из военной авиации, и только чудом он получает шанс летать на гражданских самолетах. Гущин начинает свою летную жизнь сначала. Его наставник - командир воздушного судна - суровый (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: Драма, Приключения, ТриллерРежиссер: Николай ЛебедевАктеры: Данила Козловский, Владимир Машков, Агне Грудите, Сергей Кемпо, Катерина Шпица, Сергей Шакуров, Сергей Газаров, Елена Яковлева, Алёна Бабенко, Сергей Романович, Ксения Георгиади, Ирина Лачина, Вячеслав Разбегаев, Владимир Яглыч, Василий Мищенко, Дмитрий Золотухин, Ирина Пегова, Александра ЯковлеваПеревод: Не требуется (Русский, Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 02:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD059B7873C2AFFAA1A140B34DFEF6242EC084D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

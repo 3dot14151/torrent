@@ -1,3 +1,189 @@
+###  Публикация: 492575   (756126) от 30.05.2013
+
+Подшивка журналов | Фотомастерская (2004-2013) [PDF +CD] +Спецвыпуски [PDF +DVD] [Обновлено 30.05.2013]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Фотомастерская» пишет о том, что можно сделать с фотографией после съемки. В нём есть всё: современные методы и программы обработки фотографий, портфолио ведущих цифровых художников и ретушеров, советы по работе с техникой, от съёмки и калибровки до печати. Одним словом, всё, что касается работы с готовым изображением.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215567   (756010) от 27.03.2018
+
+Очередное достижение: 3000 релизов от vilator!!!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 3000 релизов от vilator!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 3000-м релизом!От всей души поздравляем
+vilator
+с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215747   (755895) от 27.03.2018
+
+Adobe Muse CC 2018 1.0.266 RePack by KpoJIuK  [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BA9786CC628DF35ABAB3AFE230994BDB537311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818400   (755894) от 27.03.2018
+
+Новости 24 / News 24 + виджеты v2.9.0 Pro [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Удобная программа и понятная программа для чтения новостей со всего мира, 24 часа в сутки для чтения новостей. Настраиваемая, понятная, быстрая, красивая. Минимум требуемых привилегий. Поддерживаются любые источники новостей, не только из предопределенного списка. Все новости сразу могут быть загружены в офлайн - не нужно отмечать статьи по одной. Вы можете искать (   Читать дальше...   )Тип издания: Pro (Пиратка)Релиз состоялся: 26.03.2018Разработчик: Dmitriy V. LozenkoПоддерживаемая ОС: Android 3.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F7E5A8F3FD8C0ED1377DD7E4A25DF75CF5476F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321646   (755549) от 10.04.2011
+
+NetSpeedMonitor 2.5.4.0 [Мультиязычный (русский присутствует)]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+NetSpeedMonitor - Отличная программа для мониторинга сети. Показывает входящий и исходящий трафик на панели задач.Утилита оснащена полностью настраиваемым интерфейсом с возможностью изменить шрифт, размер и вид оповещений, включить сглаживание текста, а также настроить частоту обновления данных.
+
+С NetSpeedMonitor Вы можете контролировать текущую скорость (входящий и исходящий трафик) Ваших сетевых интерфейсов и объем переданных данных. В дополнение к Таблице соединений со всеми конечными точками TCP/UDP и Панели инструментов с быстрым и кратким обзором трафика, Вы можете также видеть детализируемую ежедневную и ежемесячную статистики по трафику. NetSpeedMonitor не требует дополнительных драйверов, как другие аналогичные программы!Язык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 321605   (755548) от 10.04.2011
+
+[KeyGen] Majesty 2: Bestseller Edition [Ru] (L) 2010 | Dy5phoRiC
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Позволяет поиграть в игру, под наванием
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB076DF24AE4632094B53A416202936D2F677D92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018457   (755328) от 20.05.2016
+
+Пиратские сайты исчезнут из поисковиков через трое суток после жалобы
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Министерство связи и коммуникация России хочет ввести термин «производный сайт». Так ведомство будет обозначать «зеркала» пиратских ресурсов (то есть сайтов, распространяющих что-то без соблюдения авторского права). Соответствующий законопроект уже готов, и он размещен для общественного обсуждения, которое продлится до 21 июля, пишет ТАСС."Зеркала" пиратских (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018699   (754990) от 20.05.2016
 
 RusTV Player 3.2 Final Portable by Valx [Ru]
@@ -6,7 +192,7 @@ RusTV Player 3.2 Final Portable by Valx [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +218,7 @@ SpyHunter 4.22.8.4668 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +351,7 @@ Mindroid Pro v6.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +377,7 @@ Dead Cells (2018) [Ru/Multi] (27/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +403,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1/upd7) 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +507,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +559,7 @@ Nvidia DriverPack v.451.67 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +586,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +612,7 @@ Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +664,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,189 +676,6 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2B7FB79608D7166FE356EBB35B804677ED31340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523124   (752803) от 10.01.2022
-
-Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Watch Dogs: Legion происходит в ближайшем будущем. Лондон переживает тяжелые времена. Организуйте сопротивление, вербуя кого угодно из жителей города. Взламывайте, внедряйтесь и сражайтесь, чтобы спасти Лондон ближайшего будущего, который переживает тяжёлые времена. Добро пожаловать в сопротивление.Тип издания: RepackРазработчик: Ubisoft TorontoЖанр: Action (Open World, Hacking), Stealth, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDCA8BB3DFFCF749A495C9D2023F7D70EC9530B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473864   (752802) от 10.01.2022
-
-Black Mesa: Definitive Edition (2020) [Ru/Multi] (1.5.3) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Mesa («Чёрная Меза», ранее известная как Black Mesa: Source) – ремейк культовой компьютерной игры Half-Life 1998 года на движке Source. Представляет собой модификацию игры Half-Life 2. Разработчики воссоздали оригинальную вселенную Half-Life, используя расширенные возможности движка Source, переработали все текстуры, модели и уровни, реализовали отличный геймплей. (   Читать дальше...   )Тип издания: LicenseРазработчик: Crowbar CollectiveЖанр: Action, Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F45C3CB8697B7DA0000B1E8B8A2EE83AA4329FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128640   (752503) от 29.03.2018
-
-Outlast 2 (2017) [Ru/Multi] (gog-4/19597) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Outlast 2 – это продолжение Outlast, популярной игры в жанре «хоррор». Ее события разворачиваются в той же вселенной, но уже с другими действующими лицами и в совершенно другом месте. Outlast 2 предоставляет уникальную возможность погрузиться в бездну человеческого разума, скрывающего по-настоящему страшные тайны. Ни одно противостояние нельзя разделить на «белых» (   Читать дальше...   )Тип издания: LicenseРазработчик: Red BarrelsЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AE56F16796B511C84C9823685D71AE69C92931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205382   (752350) от 31.05.2010
-
-LEGO Star Wars: The Complete Saga [Ru] (P) 2009
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_752350.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2007 году знаменитой киносаге Джорджа Лукаса исполняется ровно 30 лет - в далеком 1977-м вышла на экраны первая часть классической трилогии. У вас есть уникальный шанс вновь пережить все события, вместившиеся в шесть фильмов, и почувствовать себя в шкуре известных героев ленты. Освежите в памяти атаку на Звезду Смерти, бой с Дартом Вейдером, гонки по лесу на скоростных скутерах и многие другие знаковые моменты. Выход LEGO Star Wars: The Complete Saga неслучайно приурочен к юбилею саги. Игра содержит оригинальную интерпретацию всех серий фильма, выполненных в деталях конструктора LEGO. Вас ждут новые
-уровни, более тридцати сюжетных миссий, множество колоритных героев и яркие эмоции!Жанр: Action / 3D / Arcade
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019117   (751752) от 22.05.2016
-
-Gripen E - истребитель нового поколения от компании Saab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_751752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная шведская компания Saab представила вниманию общественности свой новый многоцелевой истребитель следующего поколения под названием Gripen E. Опытный образец 39-8 "умного истребителя" был разработан в рамках совместной шведско-бразильской программы и он нацелен на рынки стран, который в силу политических или финансовых ограничений не могут приобрести (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019026   (751371) от 22.05.2016
-
-MAGIX Video Pro X8 15.0.0.83 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751371.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Video Pro X – это  программный продукт для быстрой и качественной обработки видеоматерилов. Мощный современный программный продукт содержит большое количество инновационных и уникальных функций, которые удовлетворят запросы как простых видеолюбителей, так и амбиционных профессионалов.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84308495E512A55E7A7BD4ADD90CC6FEF077A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394245   (751290) от 12.07.2020
-
-Wink ATV Ultimate v1.16.1 (ревизия 2.6) Mod [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mod известного приложения Wink для TV приставок, Smart TV Android: 555 каналов, меню слева + другие улучшения функционала и интерфейса.Тип издания: Пиратка (Mod)Релиз состоялся: 07.07.2019Разработчик: PJSC "Rostelecom"Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BEE1308FC6CC57C7456E85EDC7876C2BB5F57C
 ```
 
 https://mybot314.ru/tekegram_catalog/

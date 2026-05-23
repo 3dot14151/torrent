@@ -1,111 +1,3 @@
-###  Публикация: 472345   (122837) от 15.01.2024
-
-О.И. Рогова | Русские богатыри (1912) [Раритет] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122837.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержатся избранные былины в пересказе для детей О. И. Роговой (Шмидт-Москвитиновой) с 11 цветными хромолитографиями по акварелям Н.Н. Каразина : Старшие богатыри (Вольга Буслаевич, Микула Селянович, Святогор, Михайло Потык) ; Младшие богатыри (Сухмантий Одихмантьевич, Дунай Иванович, Алеша Попович, Добрыня Никитич, Иван Игнатьевич) ; Заезжие богатыри (Ставр (   Читать дальше...   )Жанр: Детская литература, сказкиИздательство: «А. Ф. Девриен» Санкт ПетербургФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15DE583A64B42DCB7358759D066BE5DEDFD75DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692113   (122739) от 15.01.2024
-
-Олег Бедарев | Я сын моряка (1960) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга повествует о мальчике Саше - сироте, воспитывающимся в детском доме.
-На свой шестой день рождения он получает самый ценный подарок - письмо от папы!..
-
-Для детей младшего школьного возраста. Иллюстрации А. Брей.Жанр: РассказИздательство: Советская РоссияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF43BBD71E76B5518329DA0643D5585E7524D4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472002   (122697) от 16.01.2024
-
-И.Я.Билибин | Сказки. Василиса Прекрасная (1902) [Раритет] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122697.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержится сказка "Василиса Прекрасная". Книга иллюстрирована цветными рисунками И. Я. Билибина.
-Иван Яковлевич Билибин (4 (16) августа 1876 — 7 февраля 1942) — русский художник, книжный иллюстратор и театральный оформитель, участник объединения «Мир искусства».Жанр: Детская литература, сказкиИздательство: «Экспедиция заготовления гос. бумаг» Санкт ПетербургФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19EF0C8CEF3916F660E56FFE58C3B06567DD90A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470831   (122679) от 16.01.2024
-
-Д.Д. Минаев| Дедушкины вечера. Русские сказки для детей в стихах (1880) [Раритет] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122679.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге содержатся русские сказки для детей в стихах: Три сестры, Батрак, Дочь пастуха, Престыженный черт, Царевич-найденыш, Скряга, Хорошо да худо, Дуракам счастье, На всякую старуху бывает проруха, Журавль и цапля, Волк-дурень и др.Жанр: Детская литература, сказкиИздательство: «Плотникова» Санкт ПетербургФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF305F95E4FD883C671F310C2E5B9EF6C3BFBE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470450   (122673) от 16.01.2024
 
 М.В. Котельников | Русские народные сказки в стихах (1880) [Раритет] [PDF]
@@ -114,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -512,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -538,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -645,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -672,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -683,6 +575,112 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F55BF6FE27B192EB91F1E0F3FA0E45F61AF4656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507974   (122110) от 19.01.2024
+
+А.С.Пушкин | Сказки (1971) [Раритет] [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Александр Сергеевич Пушкин (1799-1837) – без преувеличения величайший русский поэт. Именно этого талантливого писателя, благодаря его умению виртуозно манипулировать поэтическим слогом, заслужено считают реформатором русского литературного языка. Живой ум маленького Саши, очень быстро впитывал информацию с самого детства. Будучи ещё ребёнком, он живо интересовался (   Читать дальше...   )Жанр: Детская литература, сказкиИздательство: «Детская литература»Формат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CB81E55199D0D65B9A8624194864DB7FE097D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497056   (122102) от 19.01.2024
+
+И.Я. Билибин | Перышко Финиста Ясна-Сокола [Раритет] (1900) [PDF, JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Русская народная сказка "Перышко Финиста Ясна-Сокола" в иллюстрациях выдающегося русского художника и книжного оформителя Ивана Яковлевича Билибина (1876 - 1942).
+Иван Яковлевич Билибин (4 (16) августа 1876 — 7 февраля 1942) — русский художник, книжный иллюстратор и театральный оформитель, участник объединения «Мир искусства».Жанр: Детская литература, сказкиФормат: PDF, JPGКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369088334CC9F71B132DA9D944F373DBB847CD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497055   (122100) от 19.01.2024
+
+И.Я.Билибин | Сестрица Аленушка и братец Иванушка, Белая уточка (1902) [Раритет] [PDF, JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Русские народные сказки "Сестрица Аленушка и братец Иванушка" и "Белая уточка" в иллюстрациях выдающегося русского художника и книжного оформителя Ивана Яковлевича Билибина (1876 - 1942).
+Иван Яковлевич Билибин (4 (16) августа 1876 — 7 февраля 1942) — русский художник, книжный иллюстратор и театральный оформитель, участник объединения «Мир искусства».Жанр: Детская литература, сказкиФормат: PDF, JPGКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8730D471820B3B70F49BD465541572FB7E0C5352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495476   (122099) от 19.01.2024
+
+А.С. Пушкин | Евгений Онегин [Раритет] (1908, 1918) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В 1910-е годы очень популярным и пользовавшимся большим читательским спросом было великолепное издание «Евгения Онегина» с цветными иллюстрациями Е.П.Самокиш–Судковской. Книга впервые увидела свет в 1908 году в одной из лучших российских типографий - поставщиков императорского двора Товарищества Р.Голике и А.Вильборг. Изысканные акварели художницы выполнены в стиле (   Читать дальше...   )Жанр: Роман в стихахИздательство: СПб, т-во Р.Голике и А.ВильборгФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352BCEADD69385199465DCAC5D5BAE23E860F8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

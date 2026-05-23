@@ -1,3 +1,84 @@
+###  Публикация: 222976   (575818) от 02.08.2010
+
+Мадагаскар / Madagascar (2005) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Четверо изнеженных животных из Центрального зоопарка в Нью-Йорке — лев Алекс, зебра Марти, жираф Мелман и гиппопотамиха Глория — решаются на побег. Оказавшись после кораблекрушения на экзотическом острове Мадагаскар, населенном лемурами и поедающими их фоссами, путешественники с ужасом понимают, что с городскими привычками им придется распрощаться.
+Здесь нет людей, (   Читать дальше...   )Производство: США / DreamWorks SKG, Pacific Data Images (PDI), DreamWorks AnimationЖанр: Анимация, приключения, мультфильмРежиссер: Эрик ДарнеллПеревод: Профессиональный (полный дубляж), Оригинал (английский)Субтитры: Русские, АнглийскиеПродолжительность: 01:25:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921622   (575154) от 25.07.2015
+
+Песнь моря / Song of the Sea (2014) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на древне-кельтском мифе о селки
+Море всегда чарует своей природой. О морях сложено немало легенд. Некоторые из них мама рассказывает своим сыну и дочери. Эти легенды передаются из поколения в поколение: в морских водах живут удивительные существа - селки. Это заколдованные люди в образе тюленей. Дети сначала воспринимают историю матери как сказку. (   Читать дальше...   )Производство: Ирландия, Дания, Бельгия, Люксембург, Франция / Big Farm, Digital Graphics, Irish Film BoardЖанр: мультфильм, фэнтези, семейныйРежиссер: Томм МурПерсонажи: Брендан Глисон, Финола Флэнаган, Пэт Шорт, Дэвид Роул, Лиза Хэннигэн, Джон КенниПеревод: Авторский (Одноголосый, закадровый) Юрий Сербин + Любительский (многоголосый, закадровый) CatBug TV + Украинский > Профессиональный (многоголосый, закадровый) "Омикрон"Язык субтитров: Русский 4 вида, Украинский, Английский, Английский (SDH)Продолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B703E4E2D944B8D52F626E81646D72ED92227FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921666   (575104) от 25.07.2015
+
+Песнь моря / Song of the Sea (2014) BDRemux [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на древне-кельтском мифе о селки
+Море всегда чарует своей природой. О морях сложено немало легенд. Некоторые из них мама рассказывает своим сыну и дочери. Эти легенды передаются из поколения в поколение: в морских водах живут удивительные существа - селки. Это заколдованные люди в образе тюленей. Дети сначала воспринимают историю матери как сказку. (   Читать дальше...   )Производство: Ирландия, Дания, Бельгия, Люксембург, Франция / Big Farm, Digital Graphics, Irish Film BoardЖанр: мультфильм, фэнтези, семейныйРежиссер: Томм МурПерсонажи: Брендан Глисон, Финола Флэнаган, Пэт Шорт, Дэвид Роул, Лиза Хэннигэн, Джон КенниПеревод: Любительский (многоголосый, закадровый) CatBug TVЯзык субтитров: Русский, АнглийскийПродолжительность: 01:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E245963BEDB9824716D4A559DF1BFBE92B74EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921632   (575045) от 25.07.2015
 
 Песнь моря / Song of the Sea (2014) BDRip [H.264/1080p]
@@ -6,7 +87,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -196,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -602,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78804EA9F61E879AA48DA1110F9D4C8B9392031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814109   (562928) от 18.08.2014
-
-Игрушечная история террора / Toy Story of Terror (2013) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вуди, Джесси, Баз, Рекс и другие знакомые и незнакомые персонажи проведут ночь в мотеле. Им придётся столкнуться с настоящим чудовищем и другими опасностями в ожидании рассвета.Жанр: мультфильм, короткометражка, комедия, приключения, семейныйРежиссер: Энгус МакЛэйнПеревод: Многоголосый закадровыйЯзык субтитров: ФранцузскийПродолжительность: 00:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D805518EE45991CBE1CE0BC9B9911AAF2ADD11B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530676   (562489) от 02.08.2012
-
-Эмили Жоли / Emilie jolie (2011) [H.264/720p-LQ] BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эмили — маленькая девочка с голубыми глазами, светлыми волосами и розовыми щечками. Завтра ее первый день в новой школе и она переживает. Сможет ли она завести друзей на новом месте? И главное, сможет ли папа отвлечься от работы, чтобы отвести ее в школу в этот важный день? Мама Эмили находит среди коробок с вещами книжку, которую сама читала в детстве, и дает ее (   Читать дальше...   )Производство: Франция / 2d3D Animations, Angoa-Agicoa, Banque Postale Image 4Жанр: МультфильмРежиссер: Филипп Шатель, Френсис НилсенАктеры: Камилль Тиммерман, Франсуа-Ксавье Демезон, Эли СемунПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03F07B47E48580D1F0584EFDFEAB1924EB2348C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530316   (560318) от 03.08.2012
-
-Зеленый Фонарь: Изумрудные рыцари / Green Lantern: Emerald Knights [H.264/720p-LQ] (2011) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот полнометражный анимационный фильм по Вселенной DC Comics открывает нам богатую мифологию мира Зеленого Фонаря в шести взаимосвязанных эпизодах. Ожидая сражения с Кроной, древним врагом Стражей Вселенной, Зеленые Фонари Земли: Хэл Джордан, Килавог, Синестро и другие бойцы Корпуса Зеленых Фонарей рассказывают новичку-рекруту Арисии о своих былых приключениях - от истории о Первом Фонаре до зловещих событий, которые привели к Самой Черной Ночи Корпуса!Жанр: Компьютерная анимацияРежиссер: Крис Беркли, Лоурен Монтгомери, Джей ОливаПерсонажи: Натан Филлион, Джейсон Айзекс, Элизабет Мосс, Генри Роллинз, Арнольд Вослу, Тони Амендола, Стивен Блум, Грей ДеЛайл, Келли Ху, Майкл ДжексонПеревод: ДублированныйПродолжительность: 01:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D20F7A77091AF9C48C6263FBFB41216D21C5123
 ```
 
 https://mybot314.ru/tekegram_catalog/

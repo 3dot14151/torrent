@@ -1,4 +1,31 @@
 https://t.me/izofen
+###  Публикация: 1870488   (1068854) от 
+
+Windows 11 SE 24H2 (build 26100.8328) DiskExpansion by Alexandr1235 [04.2026] [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном оригинальном образе Windows 11 SE с обновлениями на апрель 2026.
+Windows 11 SE — это облачная операционная система, оптимизированная для использования учениками и студентами. Как и Intune for Education, Windows SE 11 ставит во главу угла производительность, конфиденциальность учащихся и обучение. Она предлагает мощь и надежность Windows (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09AB0CAC1BE3F37DB481B7287407FFC37378C09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868963   (1067933) от 03.05.2026
 
 Task Explorer 1.8.0 [En]
@@ -7,7 +34,7 @@ Task Explorer 1.8.0 [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +60,7 @@ Windows 10 22h2 (build 19045.6937) (20in1) (x64) by Izual Soft [v12.02.26] [Ru/E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -62,7 +89,7 @@ Windows 11 25h2 (build 26200.7840) (24in1) (x64) by Izual Soft [v14.02.26] [Ru_E
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -91,7 +118,7 @@ Den Launcher RePack by BlueScreen 1.1 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -117,7 +144,7 @@ Task Explorer v1.6.6 [Multi]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -143,7 +170,7 @@ Den Launcher 1.0 RePack by Egorчик [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -169,7 +196,7 @@ Microsoft Windows 11 Pro 25H2 [10.0.26200.6584] by Yogi [UKR]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -195,7 +222,7 @@ JGSoft RegexBuddy 4.14.1 Repack [En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -222,7 +249,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp NoDefender by Izu
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -251,7 +278,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp by Izual Soft [v1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -280,7 +307,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) Store NoApp by Izual Soft [v16.
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -309,7 +336,7 @@ Windows 10 22h2 (build 19045.6809) (20in1) (x64) NoStore NoApp Nodefender by Izu
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -338,7 +365,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp by Izual Soft [v1
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -367,7 +394,7 @@ Windows 11 25h2 (build 26200.7623) (24in1) (x64) Store NoApp by Izual Soft [v15.
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +423,7 @@ Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -425,7 +452,7 @@ Microsoft Office LTSC Professional Plus 2024 v.16.0.17932.20620 (Win10/11) Repac
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +478,7 @@ Microsoft Office 2021 VL Professional Plus / Standard 16.0.16130.20218 RePack by
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +504,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.11.11) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +533,7 @@ Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.11.11) [Ru/En]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -535,7 +562,7 @@ Windows 10 22H2 19044.6575/19045.6575 by SURASOFT (v25.11.11) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,7 +591,7 @@ Windows 7 SP1 with Update [7601.27974] AIO (x64) by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -593,7 +620,7 @@ Windows 11 25H2 Pro by KDFX (Clear) X64 26200.6901 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -620,7 +647,7 @@ Windows 10 22H2 19044.6456/19045.6456 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -649,7 +676,7 @@ BananaUpdateBlocker 1.0.0.1 [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -675,7 +702,7 @@ Windows 11 23h2/24h2/25h2 by SURASOFT (v25.10.14) [Ru]
 >>Песочница ПО и сборок Windows
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -689,32 +716,6 @@ windows11_business_editions_version_23h2_updated_sep_2025_x64_dvd_59189188.iso.(
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F4907D913C49CFA879A8866243BB25AE2B47E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680456   (133987) от 29.11.2023
-
-1С Бухгалтерия предприятия 3.0.144.49 на платформе 8.3.23.1912 [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133987.jpg" />
-</div>
-
-
-###  Подробнее
-
-1С Бухгалтерия – это в первую очередь программа для бухгалтерского учета. Бухгалтерский учет – это не только обязательная активность для каждого предприятия или ИП, основной целью которого является подготовка и сдача отчетности для контролирующих органов (налоговая, пенсионный фонд и т.д.) Часто на основании данных бухгалтерского учета формируются необязательные (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B43CA24CC23925E7D0031FBCFC538CC5EDF231
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1427444   (183606) от 28.11.2020
+
+Loudblast - Manifesto (2020) [AAC|~337 Kbps] <Death Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+01. Todestrieb (3:22)
+02. Relentless Horror (2:17)
+03. Erasing Reality (5:11)
+04. The Promethean Fire (3:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327D5E6FD93780FE1C9941A99C69F3000DD3F708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427556   (183564) от 28.11.2020
 
 DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/House, Disco>
@@ -6,7 +35,7 @@ DJ Sven, Marc Hartman - The Revival (2018) [AAC|~335 Kbps] <Electro, Techno/Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Smashing Pumpkins - CYR (2020) [AAC|~318 Kbps] <Alternative, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Echelon, vol. 1 (2020) [AAC|~291 Kbps] <Rap, Hip Hop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Blue Notes & Jazzy Grooves (2020) [AAC|~319 Kbps] <Chillout, Trip-hop, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -122,7 +151,7 @@ Sodom - Genesis XIX (2020) [AAC|~333 Kbps] <Thrash Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +180,7 @@ Chillson, Marc Hartman - Little Bit of Jazz (2020) [AAC|~322 Kbps] <Chillout, Tr
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +209,7 @@ Marc Hartman - Set You Free (2015) [AAC|~345 Kbps] <Lounge, Ambient, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -209,7 +238,7 @@ Marc Hartman - Changes (2017) [AAC|~345 Kbps] <Chillout, Trip-hop, Lounge>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Slow Down: Ibiza Grooves (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +296,7 @@ Marc Hartman - Emission of Love (2016) [AAC|~348 Kbps] <Chillout, Trip-hop, Loun
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +325,7 @@ Marc Hartman - The 5th Element (2018) [AAC|~324 Kbps] <Lounge, Ambient, Chillout
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +354,7 @@ Marc Hartman - Music of the Third Kind (2017) [AAC|~345 Kbps] <Chillout, Trip-ho
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Pop Ambient 2021 (2020) [AAC|~304 Kbps] <Electro, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +412,7 @@ Marc Hartman - 4 Seasons to Chill (2017) [AAC|~340 Kbps] <Lounge, Ambient, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +470,7 @@ Marc Hartman - Walk the Ocean (2020) [AAC|~358 Kbps] <Lounge, Ambient, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +499,7 @@ Marc Hartman - Tales From The Other Side (2019) [AAC|~325 Kbps] <Lounge, Ambient
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +528,7 @@ Marc Hartman - Salt Water (2019) [AAC|~330 Kbps] <Lounge, Ambient, Chillout>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - all my thoughts, vol. 1 (2020) [AAC|~328 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +586,7 @@ Marc Hartman - Fortune Fairytales (2020) [AAC|~319 Kbps] <Lounge, Ambient, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Slow Down: Ibiza Grooves, vol. 2 (2019) [AAC|~328 Kbps] <Lounge, Ambient, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Slow Down: Ibiza Grooves, vol. 3 (2019) [AAC|~332 Kbps] <Lounge, Ambient, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Distant Mountains Lounge: Chillout Your Mind (2020) [AAC|~317 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Warm Yourself Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Home Alone (On the Night Before Christmas) (2020) [AAC|~323 Kbps] <Electro,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Home Alone (On the Night Before Christmas) (2020) [AAC|~323 Kbps] <Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CDF7673E00D03DDAC23780C3389DE01A8775AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428259   (180933) от 01.12.2020
-
-VA - Good Morning Lounge: Chillout Your Mind (2019) [AAC|~309 Kbps] <Chillout, Lounge>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_180933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Silver Drops (Original Mix) (5:53)
-02. Michael e - It's Your Time (Original Mix) (6:05)
-03. Charlie North - Early Morning Call (Original Mix) (5:43)
-04. Finland & Aaskoven - Melzi (Original Mix) (4:19)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:22:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7160EC85EEA83594B150737E910BF4EE5262098E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,322 @@
+###  Публикация: 759647   (906394) от 22.02.2014
+
+Рамки - 23 Февраля 2014 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Многослойные PSD рамки С Днём Защитника Отечества для вашего творчестваФормат: PSDРазрешение файлов: От 3508х2480 до 4500х6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4722CAA7DD7C8938C4D93A1A510A71C58908DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991159   (905736) от 28.02.2016
+
+Звуковые библиотеки - Samplephonics - Hollywood Tension FX [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Hollywood Tension FX содержит коллекцию эксклюзивно разработанных кинематографических ударов, нарастаний, массивной перкуссии, взывающих напряжение окружений и абстрактных перкуссионных лупов, идеальных для усиления любого трейлера, тяжелых треков и других медиа проектов. Эта шикарная библиотека содержит все необходимое, чтобы вызвать страх и эмоции даже у самых (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54D7A6637362D5708064C847AAE2938EC7F197D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991643   (905542) от 28.02.2016
+
+Шаблоны сайта - ThemeForest - Kids Zone | Responsive Children Theme [PHP, HTML, CSS, JS]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Kids Zone — премиум-тема WordPress с великолепным дизайном для сайтов детских садов, школ, центров детского творчества и т.д. Kids Zone поддерживает все популярные плагины, такие как WPML, Woo-commerce, Event Calendar Pro, Buddy Press, bbPress, Contact form 7.Формат: PHP, HTML, CSS, JS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4018A2687E7640899B0C6F3C00604456EBD6D666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492223   (905369) от 28.08.2021
+
+Векторный клипарт - 10 Abstract Backgrounds [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Абстрактные фоны
+10 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78346C334017028A9336C05C4148DAEE675AD895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492279   (905353) от 28.08.2021
+
+Векторный клипарт - Decorative Elements Set Of Crowns In Vector [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор декоративных элементов
+15 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C64F1C4874E0BB8A26A573123D2A27DC797FEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492275   (905270) от 28.08.2021
+
+Растровый клипарт - Creative Market - Cute Animals & Patterns Bundle - 139 Premium Graphics [PNG, JPG, SVG, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Набор "Милые животные и узоры" Этот милый набор содержит более 130 дизайнов животных и узоров, которые вы сможете использовать в своих будущих проектах.Формат: PNG, JPG, SVG, EPSРазрешение файлов: 800x800-6668x6667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C52B08649023EF4D809A23D252A04E8CE85BBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492277   (905263) от 28.08.2021
+
+Оверлеи - Design Bundles - 140 BUBBLES Digital Overlays - 630187 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Наложение с мыльными пузырями для Photoshop.Формат: PNG, JPGРазрешение файлов: 1000x1250-5000x3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64904DD07C567612C3BB6A1A37BBCC16B58BEE08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492237   (905260) от 28.08.2021
+
+Текстуры - Creative Market - Gold & Black Paint Swirl Textures - 6001784 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Текстуры завихрения золотой и черной краски для Photoshop.Формат: JPGРазрешение файлов: 3600x3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF59C54449966F4ACAB92D74281CD363B26615CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369073   (905220) от 22.03.2020
+
+Рамки - NNM-Club - Рамки от Warrior 123 #8 - 1369073 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рамки созданные нашим одноклубником Warrior 123
+ОднослойныеФормат: PSDРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F72CBE828421E723E76FA32CCA3F2EC0B0770B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492235   (905214) от 28.08.2021
+
+Стили - Creative Market - Mega bundle 100 Photoshop Styles - 218061 [PSD, ASL]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Mega bundle 100. Это премиальные стили слоя Adobe Photoshop. В этот набор входит исходный psd. Все стили слоев организованы, просты в использовании и на 100% масштабируемы.Формат: PSD, ASL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9F20A22BDBEE0E1E892A6118D039A411C65554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369074   (905198) от 22.03.2020
+
+Векторный клипарт - Racing sports car design sticker illustration [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Дизайн винил для гоночных спортивных автомобилей
+5 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0F9ADDE83D8874E21D4635AB1075EFCE68E169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492230   (905157) от 28.08.2021
+
+Кисти - 94 Photoshop Brushes Pack [ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+94 Кисти для фотошопа на тему природа, кофе и магия.Формат: ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1B5585FBB3D9BB21B0037BFD537C2D50319843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492225   (905156) от 28.08.2021
 
 3D модели - ArtStation - KitBash Pack Sci-Fi walls [Vol.4] _70+ [MAX, FBX]
@@ -6,7 +325,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -350,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -361,321 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B33449CA1259663056817E47A01CCD498FCB8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991902   (903703) от 29.02.2016
-
-Векторный клипарт - Офис и школа - шаблоны для дизайна [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Офисный и школьный клипарт в векторе.
-10 EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DE66C751BFB2B82D66F1208663844AF6B6DC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991803   (903698) от 29.02.2016
-
-Векторный клипарт - Яркая инфографика в векторе [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инфографика в векторе.
-7EPS | + JPG PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFFC5D79240312EFDA59F4373A24E9595CFA233B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492360   (903638) от 29.08.2021
-
-Шаблоны - Creative Market - 72 Spotlight Backgrounds Pack - 418704 [PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пакет включает 72 различных многослойных фона с освещением. Высокое качество, отличный способ представить свою продукцию.Формат: PSD, JPGРазрешение файлов: 3000x2000-3780x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A633090A31CB7E9540AF90C31654572281B9438B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492397   (903636) от 29.08.2021
-
-Фоны - Gradient And Geometric Background [JPEG, PNG, AI, SVG, PDF, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник векторный и растровый фонов.Формат: JPEG, PNG, AI, SVG, PDF, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3A00C956C340CC27FD6A90CADF013CBDD79A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492336   (903476) от 29.08.2021
-
-3D модели - Gumroad - CyberPunk / Sci-Fi Bar Asset Pack [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью оптимизированная панель CyberPunk / Sci-Fi / Futuristic, все модели имеют уникальные концепции, разработанные 2-я опытными художниками по окружению, набор содержит 53 уникальных меша очень хорошего качества, готовых к игре, оптимизированных и текстурированных вручную. Объект роботизированной руки разделен на 12 ячеек и может быть анимирован. Это очень качественный (   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D259D5B8A9B11C83881ADC83D4FB75BC106F1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492392   (903474) от 29.08.2021
-
-Стили - GraphicRiver - Mega Bundle Photoshop Style - 11765789 [ASL, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря высокому качеству и премиум-эффектам можно произвести более совершенный и интересный эффект для всех ваших текстов, а все стилевые эффекты работают только одним щелчком мыши.Формат: ASL, PSDРазрешение файлов: 590x2820-648x3274
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB4FAC75DB2AB9BEF6ECA0FAE14B31377DDA41E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369299   (903093) от 23.03.2020
-
-Звуковые библиотеки - Strezov Sampling - BALKAN Ethnic Orchestra [Kontakt, OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенный Этнический Оркестр в ваших руках! Эта обширная коллекция, включающая в себя множество никогда не сэмплированных инструментов и вдохновляющая звуковая палитра предоставляет вам доступ к лучшим фольклорным солистам с Балкан.
-BALKAN Ethnic Orchestra - это уникальная и свежая коллекция, дающая вам доступ к огромному количеству восточноевропейских солистов. (   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKX, NKR, NKA, NKI; OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BEC029201BA862BE1C3640DE8BBC5C62119391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992284   (901833) от 01.03.2016
-
-Шаблоны сайта - ThemeForest - Toddlers - Kids, Child Care & Playgroup WordPress Theme [PHP, HTML, CSS, JS]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toddlers — премиум-тема WordPress с великолепным дизайном для сайтов детских садов, школ, центров детского творчества и т.д. Toddlers поддерживает все популярные плагины, такие как WPML, Woo-commerce, Event Calendar Pro, Buddy Press, bbPress, Contact form 7.Формат: PHP, HTML, CSS, JS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B5BE6A2243A0C87FFC9CF2C720EE5D9C53A44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492519   (901778) от 30.08.2021
-
-Шрифты - Shopee - 60000+ Unlimited Mega Font Pack Bundle Collection Bonus Plugin - Addons - Software Lain [TTF, OTF, FON, TTC, PFM]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901778.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом пакете множество различных стилей и форматов шрифтов, которые используются в графическом дизайне, книгах, журналах и т. д.Формат: TTF, OTF, FON, TTC, PFM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81ED8E24AD3F150D3D1A6D899B1220B00447D56B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369622   (901757) от 24.03.2020
-
-Звуковые библиотеки - Sonniss - GDC - Game Audio Bundle (Part.2) [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901757.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках празднования GDC 2016 Sonniss выделяет этот комплект высококачественных звуковых эффектов из своего каталога, от многих лучших звукорежиссеров и дизайнеров мира. Используйте их лично или в коммерческих целях без указания авторства. Все бесплатно. Никакая атрибуция не требуется, и вы можете использовать их в неограниченном количестве проектов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C1D38E83A15170467FC342A27BF33FEE222774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369623   (901646) от 24.03.2020
-
-Звуковые библиотеки - Sonniss - GDC - Game Audio Bundle (Part.3) [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках празднования GDC 2017 Sonniss выделяет этот комплект высококачественных звуковых эффектов из своего каталога, от многих лучших звукорежиссеров и дизайнеров мира. Используйте их лично или в коммерческих целях без указания авторства. Все бесплатно. Никакая атрибуция не требуется, и вы можете использовать их в неограниченном количестве проектов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FF0FF3CAA2CD632D3A464FF355057D70EF459F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369621   (901624) от 24.03.2020
-
-Звуковые библиотеки - Sonniss - GDC - Game Audio Bundle (Part.1) [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901624.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках празднования GDC 2015 Sonniss выделяет этот комплект высококачественных звуковых эффектов из своего каталога, от многих лучших звукорежиссеров и дизайнеров мира. Используйте их лично или в коммерческих целях без указания авторства. Все бесплатно. Никакая атрибуция не требуется, и вы можете использовать их в неограниченном количестве проектов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4942005A3D1883ECF1E83927CB9350F3022F02B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

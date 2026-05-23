@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1871819   (1069906) от 
+
+Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьница Рури Танигава, увлечённая ювелирными изделиями, неожиданно открывает для себя мир минералогии — не как сухую науку о минералах, а как живое, сверкающее пространство, полное тайн и красоты. Её путь проходит через горы, реки и таинственные пещеры, где каждый найденный камень становится не просто находкой, а фрагментом личной истории, поводом для размышлений (   Читать дальше...   )Жанр: повседневность, минералогия.Режиссер: Фудзии СингоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BD43FD1A2DE0AE87E3D3BF166865BE22B6E13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871371   (1069533) от 
+
+Mahou no Shimai Lulutto Lily / Magical Sisters Lulutto Lilly / Волшебные сестры Лулутто Лилли [2026, TV, 6 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сёстры Фу и Руи раньше были близки, но в последнее время немного отдалились друг от друга. Однажды Фу сталкивается с таинственным космическим кораблём и обретает магические способности. В это же время Руи тоже обретает магическую силу, и обе превращаются во взрослых, которыми мечтают стать.Жанр: махо-сёдзё, музыкальный.Режиссер: Догэ СинтароЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F230FC6A2E5081F49DEBD0309A71AE9D0A0D0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870465   (1069103) от 
+
+Iya na Kao Sarenagara Opantsu Misete Moraitai Returns | Изобрази отвращение и покажи мне свои трусики: Возвращение [2026, Web, 2 из 12] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Супербогатый гениальный и успешный во всех видах спорта парень, который прежде не интересовался противоположным полом, однажды вдруг захотел увидеть трусики. Горничная в доме, одноклассница из старшей школы, девушка из книжного магазина — он не остановится, пока не увидит их трусики! Гений, серьёзно настроенный на то, чтобы увидеть трусики, мчит к цели на всех парах! (   Читать дальше...   )Производство: Uwan PicturesЖанр: эттиРежиссер: Фукасэ СаяЯзык озвучки: ЯпонскийСубтитры: Английские; Русские и другиеПродолжительность: 12 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFA232A3A25CC994B275EE9407C733D0A867139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869833   (1068640) от 
+
+Kowloon Generic Romance | Обычный роман в Цзюлуне [2025, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Риелторы Рэйко Кудзирай и Хадзимэ Кудо живут и работают в городе-ностальгии Коулуне. И чем больше времени они проводят вместе, тем сильнее Рэйко влюбляется в своего коллегу. Всё меняется, когда девушка случайно находит фото его бывшей невесты — по какой-то причине та выглядит как точная копия Рэйко! И тут Кудзирай начинает задумываться, что она помнит из собственного (   Читать дальше...   )Производство: Студия Arvo Animation, ЯпонияЖанр: детектив, романтика, повседневностьРежиссер: Ёсиаки ИвасакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7599A78B563B792009877FD66CE9F2D5A33F1349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869683   (1068530) от 
 
 Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukushimasu. Season 2 | Королева сделает для народа всё [ТВ-2] [2026, TV, 3 из 12 эп.] WEBRip 720p raw
@@ -7,7 +111,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +137,7 @@ Babylon | Вавилон [2019, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Nemure Omoigo, Sora no Shitone ni | Сладко спи, моё дитя, в н�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Hateshi Naki Scarlet | Scarlet | Скарлет [2025, Movie] WebRip 1080p raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Class no Daikirai na Joshi to Kekkon suru Koto ni Natta | Я женился на
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +245,7 @@ Marika-chan no Koukando wa Bukkowarete Iru | Симпатия Марики [2026
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +271,7 @@ Boku no Hero Academia: More | My Hero Academia: More | Моя геройская
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Arve Rezzle: Kikaijikake no Yousei-tachi | Арве Реззл: Механиче
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +324,7 @@ Snowball Earth | Земля-снежок [2026, TV, 3 из 13 эп.] WEBRip 720p
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +352,7 @@ Kamiina Botan, Yoeru Sugata wa Yuri no Hana | Botan Kamiina Fully Blossoms When 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -274,7 +378,7 @@ Ichijouma Mankitsu Gurashi! / Жизнь в манга-кафе [2026, TV, 2 и�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +405,7 @@ Akane-banashi / Сказание об Аканэ [2026, TV, 3 из ?] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +431,7 @@ Yowayowa Sensei | Yowayowa Teacher | Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +458,7 @@ Yowayowa Sensei / Yowayowa Teacher / Учитель Ёваёва [2026, TV, 2 и
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -381,7 +485,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (※Muri ja Nakatta!?) | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -407,7 +511,7 @@ Yozakura-san Chi no Daisakusen (2026) | Операция: Семейка Ёдз�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +537,7 @@ Mahou Shoujo Magical Destroyers | Девочки-волшебницы: Волш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +563,7 @@ Hokuto no Ken: Fist of the North Star | Кулак Северной звезды
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +592,7 @@ Aishiteru Game o Owarasetai / I Want to End This Love Game / Я хочу зак�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +618,7 @@ Kami no Shizuku | Drops of God | Слёзы Бога [2026, TV, 1 из 12] HDTVR
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -540,7 +644,7 @@ Kill Ao | Kill Blue | Убивая юность [2026, TV, 1 из 12] WEBRip 720
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -567,7 +671,7 @@ Tsue to Tsurugi no Wistoria 2 / Wistoria: Wand and Sword 2 / Меч и жезл 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,114 +684,6 @@ Tsue to Tsurugi no Wistoria 2 / Wistoria: Wand and Sword 2 / Меч и жезл 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD3EB03D09114253C03013369D913A84B4EF559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864965   (1064949) от 12.04.2026
-
-Kuro Neko to Majo no Kyoushitsu / The Classroom of a Black Cat and a Witch / Чёрная кошка и класс ведьм [2026, TV, 1 из ?] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевская академия Дианы — престижное учебное заведение, принимающее на обучение людей с развитыми магическими способностями. По окончании академии выпускники занимают ведущие позиции в своей области или поступают на службу к королевской семье. Спика Вирго мечтает учиться в академии, стремясь стать первоклассной волшебницей, подобно своему кумиру Клоду Сириусу. (   Читать дальше...   )Жанр: комедия, фэнтези.Режиссер: Тацува НаоюкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C41EE5AC794A281392011C3C69D2821C6F0A83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864621   (1064785) от 24.04.2026
-
-Kamiina Botan, Yoeru Sugata wa Yuri no Hana / Botan Kamiina Fully Blossoms When Drunk / Пион Ками-Ина, его опьяненный облик напоминает лилию [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о 20-летней студентке первого курса Ботан Камине и её жизни в общежитии, где она знакомится со старшекурсниками и завязывает дружбу за чашкой-другой. В аниме представлено множество настоящих алкогольных напитков — японское сакэ, виски, вино — а также рассказывается о музыке, кино и других культурных явлениях, которыми можно наслаждаться в компании алкоголя. (   Читать дальше...   )Жанр: комедия, юри, повседневность.Режиссер: Сакума ТакасиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FB1DCFFFE8ABB4B6FC47A850A46E8DA90DAC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864445   (1064733) от 
-
-Mikadono San Shimai wa Angai, Choroi. | Три сестры Микадоно оказались неожиданно простыми [2025, TV, 12 эп.] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ю Аясэ — сын покойной легендарной актрисы, и при этом посредственность. Его берёт под своё крыло друг матери, отец трёх талантливых дочерей, которые принимают заурядного гостя в штыки. Но можно ли растопить сердце настоящего гения?
-
-© CrunchyrollПроизводство: Студия P.A. Works, ЯпонияЖанр: комедия, романтика, повседневностьРежиссер: Тадахито МацубаясиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 23 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D32BAAEE7358C6F05B57FDDA345AA84BE8060AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864415   (1064683) от 16.04.2026
-
-Awajima Hyakkei | Scenes from Awajima | Сто видов Авадзимы [2026, TV, 1 из 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта ансамблевая подростковая драма рассказывает о группе девушек, обучающихся в «музыкальной школе только для девочек», и описывает их совместные годы становления, порой переключаясь между точками зрения разных персонажей и временными отрезками.
-
-Учебный лагерь музыкальной школы Авадзима, прозванный «интернатом», — это место, куда съезжаются девушки со всей Японии, (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: повседневностьРежиссер: Асака МориоПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C470B08FD3A5FF6D935BC79F89570688334E969
 ```
 
 https://mybot314.ru/tekegram_catalog/

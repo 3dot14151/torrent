@@ -1,3 +1,90 @@
+###  Публикация: 1674723   (160799) от 06.11.2023
+
+Enterclass, Александра Чу | Линия и цвет (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Как сделать графику живой и динамичной? Думать о композиции, рисовать со страстью и добавить цвет!
+
+Всему этому и посвящен новый марафон Александры Чу «Линия и цвет».
+Научимся «рисовать» белым пространством листа, создавать объем с помощью штриха, возрождать заброшенные дома в собственных картинах.Производство: EnterclassЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 07:44:16Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318D98F24F88A4214757B89BDFD0AB9A165970B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674592   (160755) от 06.11.2023
+
+Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualization 9.0 (2022) WEB-DL [AD] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Узнайте, как создать выдающуюся визуализацию интерьера и архитектуры.
+
+Программа о важных методах художественной визуализации.
+Здесь нет работы по основам 3D-графики или основам моделирования. Мы делаем именно «профессионально», именно «коммерчески», именно визуализацию, работая так, чтобы вы перенесли 100% знаний и методик в реальные проекты.(   Читать дальше...   )Производство: Render.CampЖанр: Дизайн, визуализацияЯзык озвучки: АнглийскийПродолжительность: 89:20:09Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59375CDC1970FA3A94901EF4400EC6421BFD5462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674733   (160724) от 06.11.2023
+
+Алексей Брин | Cinema 4D: Animation (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cinema 4D: Animation - разбор приемов по улучшению "базовой анимации".
+
+Минимальные требования к слушателю:
+Учебный материал рассчитан на новичков и людей с опытом до полугода, вы должны быть знакомы с типами ключей (spline, linear), отличать один от другого.(   Читать дальше...   )Жанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 02:02:58Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30BC17481356020180B10A72905D86DA7AF4073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674730   (160721) от 06.11.2023
 
 Вкурсе | Adobe Illustrator c нуля (2023) WEB-DL [RU]
@@ -6,7 +93,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +176,7 @@ Tilda school, Антон Командин | Резиновая верстка в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +205,7 @@ Soshnikova School, Сошникова Елена | Пейзаж. Основы (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -147,7 +234,7 @@ Yudaev School, Никита Юдаев | Изучаем дизайн с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -176,7 +263,7 @@ Kalachevaschool, Анна Чайникова | Рассвет акрила. Та
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -205,7 +292,7 @@ Skillshare, Iva Mikles | Drawing Colorful Room Scene in Procreate: Practice Pers
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -232,7 +319,7 @@ CGcircuit, Florian Girardot | Mastering Nuke Vol 1 – 10 (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -261,7 +348,7 @@ Domestika, Liya | Manga Illustration with Procreate (2023) WEB-DL [DE / RU Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -289,7 +376,7 @@ Solid Factory, Антон Ильин | SolidWorks. Продвинутый кур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -315,7 +402,7 @@ Udemy, Laura Hitchcock | Work Smart With Nuke! Episode 1: Channels & Roto (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -342,7 +429,7 @@ Udemy, Arijit Datta | Nuke Full Comprehensive Course For Absolute Beginners Part
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +458,7 @@ CGMA, Behnam Shafiebeik | Nuke Compositing for 3D Artists (2019) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +515,7 @@ Profileschool, Никита Чесноков | Моушн дизайн (2022) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +541,7 @@ Udemy, Vicki Lau | VFX Compositing with Nuke: Invisible Visual Effects (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +567,7 @@ Dharmendra Giri | Learn and Master IN Nuke X VFX (2021) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +593,7 @@ Learn Squared, Steven Cormann | 3D Matte Painting (2019) WEB-DLRip [RU, EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +619,7 @@ Liveclasses, Антон Мартынов | Нейросети для генер�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +676,7 @@ Domestika, Trini Guzmán | Interior Mural Painting (2023) WEB-DL [AD] [ES / EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -618,7 +705,7 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,87 +718,6 @@ Udemy, Harsh Gupta | Paint and prep training in Nuke: fundamental – NK101 (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98CE5CE0BBDC2811959ABCFAE8A0143F0CE02515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676672   (155243) от 14.11.2023
-
-Udemy, Alex Hanneman | Introduction to Nuke VFX Compositing: The Essentials - NK101 (2020) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот учебный курс по визуальным эффектам Nuke познакомит вас с фундаментальными концепциями композиции VFX в Nuke и с тем, как изучить пользовательский интерфейс. К концу курса вы сможете успешно компоновать кадр, который можно назвать «детским цифровым композитингом».
-
-Итоговый проект включает в себя все приемы, которые вы изучаете в процессе. Класс сосредоточен (   Читать дальше...   )Производство: UdemyЖанр: КомпозитингЯзык озвучки: АнглийскийПродолжительность: 04:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F355534343DD7A614CABCC27D210DFF14386BF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676666   (155217) от 14.11.2023
-
-Hudozhnik Online, Настасья Кучинская | Рисование телом (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем на первый в истории Художник Онлайн марафон по арт-терапии. Три мастер-класса Настасьи Кучинской будут посвящены работе с телом, познанию и принятию себя.
-С помощью арт-терапии можно исследовать чувства и эмоции для того, чтобы гармонизировать свое психическое состояние. На занятиях мы будем создавать образы, используя вместо кисточек части тела, например, (   Читать дальше...   )Производство: Hudozhnik OnlineЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 03:47:47Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC72E5D31A2D499DE6A4FCEDB9490C84CC2C4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518373   (155196) от 19.12.2021
-
-Grant Warwick, Grant Warwick | Mastering Lighting Lessons 5 (2016) PCRec [Часть 1]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание реалистичной картинки один из самых важных аспектов работы CGI художника, но на этом все не заканчивается. Когда реализм уже есть, нужно создать привлекательную и хорошо освещенную картинку с помощью понимания фотографии, цвета и композиции. Это одно из важнейших умений в индустрии. Ну и наконец нужно понимать, что хотят от вас получить люди, занимающейся (   Читать дальше...   )Производство: Grant WarwickЖанр: 3D рендерПродолжительность: 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7504E0464F82A8E2666C5EA1DAF4C515FD8A40D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

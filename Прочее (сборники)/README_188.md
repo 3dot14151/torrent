@@ -1,3 +1,206 @@
+###  Публикация: 1749480   (43604) от 14.09.2024
+
+VA - compilation musical kaleidoscope (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+A01. Sisco Le Voyageur - Hasna
+A02. Dj Aurm - Heartbeat
+A03. Сергей Грищук - Капли Дождя
+A04. Sisco Le Voyageur - Bella N°2(   Читать дальше...   )Жанр: Electronic, Instrumental, SaxophoneПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B747468307EC7820175B1AA41D5D052C1F4505F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749363   (43558) от 14.09.2024
+
+VA - Pop Releases Of The Summer (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Michaela May - Beautiful Thing - (03:30)
+ 002. Banners - There Goes My Girl - (03:16)
+ 003. Blu Detiger - You Say - (02:53)
+ 004. Beyoncé, Miley Cyrus - Ii Most Wanted - (03:29)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7065F5776F563C15D7B0C92EBEDE88FA2579AF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750007   (43272) от 17.09.2024
+
+VA - Music News For Forum vol.023 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Марина Бриз - Мало (03:06)
+ 002. AGAYAN - PayPal (02:32)
+ 003. Alex Coffman feat. R.Riccardo - С картинки (03:00)
+ 004. Хрися feat. Hotzzen - Nitro (02:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24B28E32A800BCF77F8DE21325AF4AB059C5C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750317   (43037) от 19.09.2024
+
+VA - Music News For Forum vol.024 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Астер - Больная любовь (01:46)
+ 002. Brandon Stone - Ты целая Вселенная (03:00)
+ 003. Carine - Nobody Like Us (02:21)
+ 004. Cheat Codes feat. Julia Church - Modern Tragedy (03:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649F16CF14991B56492C764425BA86DCC17BE1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750279   (42979) от 20.09.2024
+
+VA - compilation musical kaleidoscope part 2 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Enigma French N°29
+02. Ennio Morricone/ Jk Sax - Chi Mai (Saxophone Cover)
+03. Zakhid - London
+04. Candy Dulfer Ft Dave Stewart/ Riltim - Lily Was Here(   Читать дальше...   )Жанр: Electronic, Instrumental, SaxophoneПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83750E08E31DDB1841CABDC20FA62F56E0B6D878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750756   (42821) от 21.09.2024
+
+VA - Music News For Forum vol.025 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Nessa Barrett - Dirty Little Secret (03:35)
+ 002. 3Sonn feat. SOULOUD - 2000 шагов (02:04)
+ 003. 4eholl feat. G-POL & SHALUTA - Капли (02:12)
+ 004. 5УТРА - Ромашки (02:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F24FB4396C84CE4E24882BA09157E4FFB1A0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750890   (42767) от 22.09.2024
+
+VA - Autumn Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+001. Yolanda Be Cool & DCUP - We No Speak Americano (Yudzhin & Serg Shenon Radio Remix) (1:40)
+002. BYOR - You're So Awesome! (Original Mix) (1:46)
+003. Nicky Romero, Öwnboss & OAKS - Love You for the Summer (2:52)
+004. YeahYeahYeahs - Heads Will Roll (VeX & Myers VIP Remix) (Radio Edit) (2:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9712E11207A3DF1809DEE2FA0BA88C36A42243D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751371   (42556) от 24.09.2024
 
 VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
@@ -6,7 +209,7 @@ VA - compilation musical kaleidoscope part 3 (2024) [MP3|320 Kbps] <Electronic, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Galactic Synthwave (2024) [MP3|320 Kbps] <Synthetic, Space, Electronic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Music News For Forum vol.026 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Music News For Forum vol.027 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Дискотека 2024 Dance Club Vol. 225 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -150,7 +353,7 @@ VA - Music News For Forum vol.028 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -179,7 +382,7 @@ VA - Musical Kaleidoscope Part 5 (2024) [MP3|320 Kbps] <Electronic, Instrumental
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -208,7 +411,7 @@ VA - ЕвроХит Топ 40 Europa Plus 04.10.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -237,7 +440,7 @@ VA - Musical Kaleidoscope Part 6 (2024) [MP3|320 Kbps] <Electronic, Instrumental
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +469,7 @@ VA - Motivation Mix 6 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +498,7 @@ VA - Music News For Forum vol.029 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +527,7 @@ VA - Music News For Forum vol.030 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -353,7 +556,7 @@ VA - Music News For Forum vol.031 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -382,7 +585,7 @@ VA - Music News For Forum vol.032 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -411,7 +614,7 @@ VA - Sexy Bath 5 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -440,7 +643,7 @@ VA - Music News For Forum vol.033 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -469,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +701,7 @@ VA - Musical Kaleidoscope Part 7  relax  and  chill (2024) [MP3|320 Kbps] <Elect
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +730,7 @@ VA - Music News For Forum vol.034 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,209 +744,6 @@ VA - Music News For Forum vol.034 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF8A1870869BB4C9B538DE4B51654243B21B3FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756797   (39378) от 24.10.2024
-
-VA - musical kaleidoscope part 8  Electronic,  Easy listening (2024) [MP3|320 Kbps] <Electronic,  Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vladimir Korg - Ты Со Мной
-02. Цифеi - Callisto
-03. Vladimir Korg - You Are My Dream
-04. Цифеi - Bring Down the Sky(   Читать дальше...   )Жанр: Electronic,  Easy listeningПродолжительность: 03:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D8C268E7FED251ADE9A1FF99E3C8F4E3801287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757104   (39301) от 25.10.2024
-
-VA - Music News For Forum vol.035 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANI - Ближе (02:22)
- 002. Ямыч Восточный Округ feat. Витя Матанга - Усталый район (02:37)
- 003. Agunda - Боль моя (02:29)
- 004. Alis Shuka feat. It's Different - My Love (02:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7083A6AB89B38A165F1D6888A92FE4A48AC181B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757461   (39125) от 27.10.2024
-
-VA - Хіти Дня в Україні (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domiy, SHUMEI - Не пройде (2:39)
-02. Okean Elzy - Як ніколи (4:30)
-03. Artem Pivovarov, ONUKA - Сьогодні (3:00)
-04. KOLA - Титанік (2:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A0C882B587D9CFDCA966CB3AF6A2BACA5FD004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757477   (39088) от 27.10.2024
-
-VA - Musical kaleidoscope part 9 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Emotionel
-02. Sisco Le Voyageur - Bella N°3
-03. Цифеi - Tarsonis
-04. Jumanov - Rain(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C28DB53674291AF0DFA08BA2D7D4E3572646E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757620   (39011) от 28.10.2024
-
-Aleksey Boychenko - Compilation of enigmatics (2024) [MP3|320 Kbps] <Enigmatic, New Age, Ambient, New Age, Ambient, Meditative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Heart of the Desert
- 02.  The Symbol of Faith
- 03.  The Mystery of the East
- 04.  My Beloved World(   Читать дальше...   )Жанр: Enigmatic, New Age, Ambient, MeditativeПродолжительность: 03:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF6FDF41F403E467C66265BC34B35C3A640FDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757658   (39007) от 28.10.2024
-
-VA - Music News For Forum vol.036 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39007.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Belinda feat. Kenia Os - Jackpot (03:13)
- 002. Ahzee - Got It (02:49)
- 003. ALTUNIN - For You (01:50)
- 004. Arthur Freedom - Little Love (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCFB5438A324436096E8FC9AD9AABD574321E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757754   (38925) от 29.10.2024
-
-VA - Musical kaleidoscope part 10 (2024) [MP3|320 Kbps] <Electronic, Instrumental, Saxophone, Easy listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Boychenko - Requiem
-02. Sisco Le Voyageur - Peace of the Sand
-03. Besso - Nobody Else
-04. Kames, Umar Keyn - Love(   Читать дальше...   )Жанр: Electronic, Instrumental, Saxophone, Easy listeningПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DF6D8F71319B22EA064615B8C2D849D44AEBE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

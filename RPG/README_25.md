@@ -1,3 +1,81 @@
+###  Публикация: 1305312   (556892) от 30.05.2019
+
+City of Brass (2018) [Ru/Multi] (1.6.0/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Медный город» — это беспощадная rogue-lite игра в восточной стилистике «1001 ночи». Ваш герой вооружен саблей и кнутом. С помощью кнута можно цепляться и задействовать механизмы, обезвреживать ловушки и оглушать врагов, разбивать предметы и просто атаковать врагов. Бейте и рубите, побеждайте толпы мертвецов силой и хитростью. Ваша задача — успеть добраться до следующего (   Читать дальше...   )Тип издания: RepackРазработчик: Uppercut Games Pty LtdЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726F9A8D7F81B19169D81D615B1048CC158CD79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153751   (556690) от 28.07.2017
+
+Yonder: The Cloud Catcher Chronicles (2017) [En] (1.0) Repack Covfefe
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие в игре Yonder разворачивается на большом острове под названием Гемея. Его обширные просторы разделены на восемь областей, среди которых вы найдете и тропические пляжи, и заснеженные горные хребты. Каждая область отличается уникальной флорой и фауной, сменой времен года, а также дня и ночи. Гемея когда-то была настоящим раем на земле. Но теперь это только (   Читать дальше...   )Тип издания: RepackРазработчик: Prideful SlothЖанр: Adventure, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF2F11C0617B3D2B38D458B80960A08355BBE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305626   (556342) от 31.05.2019
+
+Vambrace: Cold Soul (2019) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Король Теней проклял славный город Ледовицу. Под действием проклятья вечной мерзлоты его бывшие жители восстали из мёртвых в образе безумных призраков. Выжившие спрятались глубоко под землёй, откуда ведут отчаянную борьбу против этой неземной силы. Силы неравны, поэтому они вынуждены скрываться, пока Король Теней продолжает собирать армию нежити над ними.Тип издания: LicenseРазработчик: Devespresso GamesЖанр: Приключение, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6CFFEEF03149A71CB50542F6E4D9E5C1568E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202613   (556297) от 31.05.2019
 
 Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
@@ -6,7 +84,7 @@ Deep Sky Derelicts (2018) [Ru/En] (1.2/dlc) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mary Skelter: Nightmares (2018) [En/Jp] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Overlord II / Overlord 2 (2009) [Ru/Multi] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ SteamWorld Quest: Hand of Gilgamech (2019) [Ru/Multi] (1.5) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Zombasite (2016) [En] (1.000) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ SpellForce 3 (2017) [Ru/Multi] (1.40.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Bastion (2011) [Ru/Multi] (1.50436) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Divinity Original Sin 2 / Divinity Original Sin II (2017) [Ru/Multi] (3.6.44.404
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Outward (2019) [Multi] (1.0upd2/dlc) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Sword Art Online: Hollow Realization (2017) [Multi] (1.00) License SKIDROW [Delu
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Starbound (2016) [Ru/En] (1.4.4) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (2.7a/dlc) Repack R.G. Catalys
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ NECROPOLIS: A Diabolical Dungeon Delve (2016) [Ru/Multi] (1.1) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lisa (2014) [Ru] (1.0u2) Repack MasterDarkness
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Technomancer (2016) [Ru] (1.0.3636) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Silver (1999) [Ru/En] (1.23) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Mechajammer (2021) [En] (1.11) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Deiland (2018) [Ru/Multi] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Deiland (2018) [Ru/Multi] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE973FBA73F231E6038309EAD777269755F91C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927058   (529390) от 12.08.2015
-
-Fairy Fencer F (2015) [En/Jp] (1.0) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая игра под названием Fairy Fencer F, продолжает славную традицию, пусть и не пытаясь соперничать с высокобюджетными проектами в жанре, но, тем не менее, оставаясь на голову выше среднего. История этой игры рассказывает нам о простом парнишке, которому для полного счастья всего-то нужен крепкий сон и вкусная еда. Больше его ничего особо не интересует.Тип издания: LicenseРазработчик: Idea Factory, Compile HeartЖанр: RPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2266B69EF5F1E14DF95B850E1865979C8411877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312641   (528957) от 06.07.2019
-
-Underhero (2018) [En] (4.0) License PLAZA
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновлённая Paper Mario играми и RPG в целом, рассказывает историю о мире, где избранный герой провалился в своём задании и подчинённый главного злодея занимает его место в роли нового "героя". Присоединитесь к Элизабет IV и маленькому парню в маске, в путешествии через Королевство Честнат (Chestnut Kingdom), чтобы победить злого Мистера Стичеса (Mr. (   Читать дальше...   )Тип издания: LicenseРазработчик: Paper Castle GamesЖанр: RPG, Adventure, IndieЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DCDE764A0B0D0C4472DE09853408BD3D87CFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214980   (528470) от 11.08.2018
-
-Pyre (2017) [Ru/Multi] (1.50427) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyre - ролевая игра, в которой вы становитесь предводителем банды изгоев, путешествующим вместе со своими спутниками через бескрайнее мистическое чистилище. Кто вернет себе былую славу, а кто навеки останется в забвении? Окажитесь в самой большой и невероятной игровой вселенной, созданной студией Supergiant, и проделайте полный опасностей путь через богом забытое (   Читать дальше...   )Тип издания: RepackРазработчик: Supergiant GamesЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB99676EA79225E3E5501C5CF020CF76AC9BB1C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1380705   (830851) от 04.05.2020
+
+The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+The Walking Evil переносит вас в великую классику ужасов выживания 90-х, управляя главным героем с помощью фиксированной системы камер, которая усиливает ощущение того, что вы находитесь в настоящем фильме ужасов, или с видом от третьего лица. Столкнитесь с множеством испытаний, головоломок и ужасными врагами, которые заставят вас не тратить пули, прятаться или даже (   Читать дальше...   )Тип издания: LicenseРазработчик: indie_games_studioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Португальский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Португальский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616CD452FE323629FA6E63E343007AC59682ABDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006101   (830191) от 10.04.2016
+
+Bunker - The Underground Game (2015) [Ru/De] (22.5) Repack ARMENIAC
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Bunker - The Underground Game - point-n-click адвенчура, в которой главный герой оказался заперт в древнем советском бункере. Сможет ли он выбраться наружу зависит только от Вашей смекалки и наблюдательности. Ему предстоит разгадывать головоломки, решать загадки, погружаться все глубже и глубже, преодолевая все новые и новые препятствия! Это приключение станет делом (   Читать дальше...   )Тип издания: RepackРазработчик: Nightly StudiosЖанр: Adventure, Point & ClickЯзык субтитров: Русский, НемецкийЯзык интерфейса: Русский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF8967C10FBAEFF7DFB81860401471F8CB4B9FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115178   (827602) от 17.03.2017
+
+The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants [Episodes 1-3]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E6DB53A9B6203C0E511C905ACC5E28A52CB013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115879   (825817) от 18.03.2017
+
+Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Станьте самым знаменитым детективом всех времён - Шерлоком Холмсом! Используйте свои впечатляющие детективные способности для раскрытия пяти захватывающих и чрезвычайно разнообразных дел: убийства, исчезновения людей, впечатляющие кражи, а также расследования, которые способны привести в область невероятного.Тип издания: RepackРазработчик: FrogwaresЖанр: Adventure, Detective, Thriller, Action, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9738778257ED627CB6CFBB9DDEB675D119F754E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115654   (825811) от 18.03.2017
 
 Waking the Glares - Chapters I and II (2017) [En/It] (1.0) License PLAZA
@@ -6,7 +110,7 @@ Waking the Glares - Chapters I and II (2017) [En/It] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Mind Scanners (2021) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Icon Of Hell (2016) [Ru/En] (0.99) Lisence
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Eliza (2019) [Ru/Multi] (08.31.2020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Death Gate (1994) [En/Ge] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru/En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Alien Cube (2021) [Ru/Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ White Night (2015) [Ru/En] (1.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (1.0.0.1) Unofficial Fairl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Outpost 13 (2015) [Ru/Multi] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Goetia (2016) [En/Fr] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +607,7 @@ Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное ус
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +659,7 @@ Samorost 3 (2016) [Ru/Multi] (1.4.465) License GOG [Cosmic Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,110 +670,6 @@ Samorost 3 - приключенческая исследовательская �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A70134102873CDD2C5B8897502A1A589742F84D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118661   (810738) от 26.03.2017
-
-Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две группы из 9 невольных участников похищены и вынуждены принять участие в дьявольской игре Nonary Game. Одна группа находится на тонущем корабле, и у нее есть 9 часов для спасения, другая заперта в здании и вынуждена либо доверять, либо предавать друг друга. Если они нарушат правила или не успеют выбраться… они погибнут. Почему они были избраны для этой игры? Кто (   Читать дальше...   )Тип издания: LicenseРазработчик: Spike ChunsoftЖанр: Adventure, ViolentЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7640B45775C3C37F52C4AD67586526CAF66CCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498056   (809496) от 24.10.2021
-
-The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изометрическое приключение в антиутопии: одинокий офисный работник пытается вернуться домой и сталкивается с непреодолимыми препятствиями. Эта необычная игра создана экспертами по спецэффектам и отличается чудесной графикой. Сегодня Ваш последний рабочий день. Пора покинуть рабочее место и вернуться домой, но в Вашу жизнь вторглась космическая аномалия сверхъестественной (   Читать дальше...   )Тип издания: LicenseРазработчик: Innovina/StudioKikuЖанр: Adventure, PuzzleЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D25513E1326B75E3B265BCACE74D53500BFEAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488199   (807813) от 25.10.2021
-
-Mutazione (2019) [Ru/Multi] (1.84) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807813.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленьком городке мутантов, полном сплетен и сверхъестественных сил, развернулась диковинная мыльная опера. В игре глубокая личная драма ничуть не уступает захватывающим событиям. Исследуйте полное тайн и загадок общество Mutazione от лица пятнадцатилетней Каи, которая приехала сюда ухаживать за своим захворавшим дедушкой Нонно.Тип издания: LicenseРазработчик: Die Gute FabrikЖанр: AdventureЯзык интерфейса: Русский, Английский, Датский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7974AF32CFD7A2AA09DE014D34E043384882DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503965   (807679) от 25.10.2021
-
-Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте залы с привидениями в Heavenly Host Elementary в Corpse Party (2021), культовой классике ужасов, которая теперь обновлена для следующего поколения. Неудачный дружеский ритуал переносит старшеклассницу Аюми Шинозаки и её друзей в альтернативную реальность разрушенного трагедией заведения, которое давным-давно стояло на месте их собственной школы. Поскольку (   Читать дальше...   )Тип издания: LicenseРазработчик: MAGES.Жанр: Horror, Psychological, Adventure, RPG, Point-and-clickЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, КорейскийЯзык интерфейса: Английский, Японский, Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C30CA379D11715D9260851BBE6F3FBF9E6E29E
 ```
 
 https://mybot314.ru/tekegram_catalog/

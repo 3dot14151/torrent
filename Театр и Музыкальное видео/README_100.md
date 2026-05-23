@@ -1,3 +1,172 @@
+###  Публикация: 660734   (335632) от 12.11.2014
+
+Band Du Lac - A Concert by the Lake (2005) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Группа всех звезд "Band Du Lac", созданная основателем "Procol Harum" Gary Brooker'ом, дала 11 июня 2005 года благотворительный концерт для фонда борьбы с сердечно-сосудистыми заболеваниями - "Heart And Stroke Trust Endeavour" (H.A.S.T.E.) . Концерт проходил в Wintershall Estate в графстве Суррей, Великобритания. Среди гостей, выступивших (   Читать дальше...   )01. Tequila
+02. Over My Shoulder (Paul Carrack)
+03. Reconsider Baby (Eric Clapton)
+04. Lay Down Sally (Clapton)(   Читать дальше...   )Жанр: Концерт, Rock, Blues, JazzПродолжительность: 01:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0A59DAA405919C8DC32ABF8FA99292695AC494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416369   (335342) от 30.10.2020
+
+Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клипа) <Nu-Metal> [PR]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 Korn - Can You Hear Me
+02 Korn - Finally FreeЖанр: ChansonПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC25F87ED6F0612E3F993200236CA166EDA42AF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955483   (335287) от 10.11.2015
+
+"День сотрудника органов внутренних дел". Праздничный концерт (2015) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+10 ноября страна поздравляет сотрудников органов внутренних дел России с профессиональным праздником.
+
+Народный артист СССР Василий Лановой: - Каждый год 10 ноября знакомые и друзья считают своим долгом поздравить меня с Днём работника органов Внутренних дел. Причина тому – сыгранная мною роль майора Костенко в фильмах "Петровка 38" и "Огарёва 6". (   Читать дальше...   )Производство: Россия, Первый каналЖанр: КонцертПродолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66E64EDF1C7F8C7581C6AADB29F3CEE2D9CA5F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418428   (335245) от 30.10.2020
+
+Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Jeff Lynne's ELO на фестивале Glastonbury (Великобритания) в 2016 году.00:00:31.054                             : :Evil Woman
+00:05:04.120                             : :Showdown
+00:09:32.028                             : :All Over the World
+00:13:51.205                             : :When I Was a Boy(   Читать дальше...   )Производство: BBCЖанр: RockПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC83621C900B34B4D6AA0E1283047C83513DA93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418542   (335218) от 30.10.2020
+
+Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После выхода альбома "Kiss Me Once" в 2014 году, Кайли Миноуг отправилась в грандиозное мировое турне. Она включила в свои выступления все хиты, которых за долгую карьеру певицы у неё накопилось немало. Данный концерт состоялся на арене SSE Hydro в Глазго, Великобритания в ноябре 2014 года01.Breathe / Les Sex Intro
+02.Les Sex
+03.In My Arms
+04.Timebomb(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D056BC4D21190D0530F714C74A4AED28FE83AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331035   (334852) от 13.10.2019
+
+Квартирник НТВ у Маргулиса. Группа A’Studio (12.10.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — поп-группа A’Studio. Музыканты вспомнили, как играли на разогреве у самого Элтона Джона, рассказали истории из непрекращающейся гастрольной жизни, исполнили со зрителями свои песни, а также не забыли про свой главный хит — композицию «Улетаю».
+Участники A’Studio рассказали, с чего начался их творческий путь, какими были их самые необычные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 412046   (334501) от 18.11.2011
 
 Сурганова и Оркестр / День Рождения в клубе Космонавт (13.11.2011)  WebRip <Rock>
@@ -6,7 +175,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +259,7 @@ Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +338,7 @@ Bon Jovi  - Keep The Faith An Evening With Bon Jovi (1993) VHSRip [MPEG2/480i]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +367,7 @@ Avril Lavigne - Live at The Roxy Theatre (2007) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_331450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -229,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -257,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -286,7 +455,7 @@ VA - Осенний марафон № 204 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -315,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -343,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_330742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,178 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBD4A95F5FEA9059EE3AA51174CFC4C68568453D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580620   (329761) от 02.10.2022
-
-Квартирник у Маргулиса. «Северный Флот» (02.10.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллектив рок-группы «Северный флот» был основан в 2013 году музыкантами легендарного «Короля и Шута» после смерти фронтмена и лидера Михаила Горшенёва. Релиз дебютного альбома «Всё Внутри» состоялся осенью 2014-го, и уже в ноябре они сыграли первый большой концерт, а за почти десятилетнюю историю выпустили четыре альбома. В гостях у Евгения Маргулиса участники группы (   Читать дальше...   )00:00:00 Квартирник у Маргулиса - «Северный Флот»
-00:00:05 Пританцовывай
-00:06:22 Странник
-00:12:30 Старый Крысолов(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: рокПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566FA1649A6E64043586A96C1128191A458AAEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413661   (329573) от 22.11.2011
-
-Сурганова и Оркестр - Киев Дом Художника АКУСТИКА <Rock> (16.11.2011) CamRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зал в Доме Художников небольшой - человек на 600! Так что был аншлаг! Все друг друга уже хорошо знали по НАУ, так что атмосфера ещё теплее стала, хотя, казалось бы, уже и некуда более)) Света начала с сольной акустики, которую я так надеялась услышать – УРА!!! Потом Света пригласила на сцену Зубкову и она подыгрывала на гитаре, и ребята через некоторое время тоже (   Читать дальше...   )01. В доме плачут свечи
-02. стихотворение Ахматовой!
-03. Я знаю женщину молчанье
-04. Молитва мольберту(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB717CE45B5F9D60A695D6D8109B30E51289AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956625   (329121) от 15.11.2015
-
-Квартирник у Маргулиса - ЧайФ (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - группа "ЧайФ". Дата эфира: 14.11.2015.01. Внеплановый концерт
-02. Время не ждёт
-03. Завяжи мне глаза
-04. Поменялся(   Читать дальше...   )Производство: РоссияЖанр: Концерт, RockРежиссер: Дмитрий ЕфимовичПеревод: ОтсутствуетПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890C7F7912E498DC5C44E621BF99EF7E643F4BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666807   (329078) от 17.11.2014
-
-Alice Cooper - Live at Bonnaroo Festival 2012 DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фестиваль музыки и искусства Боннару — ежегодный, четырёхдневный музыкальный фестиваль, проходящий на 300-гектарной ферме в городе Манчестер, США. В 2012 году проводился в 11 раз.01. The Black Widow
-02. Brutal Planet
-03. I'm Eighteen
-04. Under My Wheels(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09D1DF0D0C46FACCE954719D6CDD2C6097A330B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412703   (328500) от 23.11.2011
-
-Виктория Дайнеко - Видеография (2005 - 2010) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыкальное видео, клипы, концерт, POPПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEB12717970C0C8FE091A3924DA8FF058D4BF6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955806   (328404) от 16.11.2015
-
-Europakonzert 2004 from Athens BDRip [H.264/1080i-LQ] <сlassical>
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия концерта, состоявшегося 1 мая 2004 года в театре Herodes Atticus в Афинах.
-Знаменателен первым совместным выступлением Дэниела Баренбойма в качестве пианиста и сэра Саймона Рэттла в качестве дирижера. Да, и Рэттл в этом концерте дирижировал Берлинским филармоническим также впервые.
-Надо сказать, что античное окружение вносит в музыку свой особенный колорит.За (   Читать дальше...   )- Piano Concerto No. 1 in D Minor, Op. 15
-- Piano Quartet No. 1 in G Minor, Op. 25
-orch. A. SchoenbergЖанр: Classical, концерт Большого симфонического оркестраПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FD1821D8D7F5DA2E5C5A05ED7AB5AA3DB261F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

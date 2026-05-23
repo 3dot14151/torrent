@@ -1,3 +1,55 @@
+###  Публикация: 1458579   (1023748) от 29.03.2021
+
+Убийства в Марнове / Мёртвые из Марноу / Die Toten von Marnow / Marnow Murders (2021) WEB-DLRip (сезон 1, серии 1-8 из 8) Ultradox [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Детективы Лона Мэнт и Франк Эллинг идут по следу серийного убийцы, в чьих преступлениях не прослеживается никакой логики, а жертвы кажется выбираются совершенно случайно. Однако всему в этом мире есть причина и порой всё совсем не так, как кажется на первый взгляд.Производство: Германия / Made in Munich Filmproduktion, Polyphon Film-und FernsehgesellschaftЖанр: криминалРежиссер: Андреас ХерцогАктеры: Петра Шмидт-Шаллер, Саша Александр Гершак, Бьянка Наврат, Лукас Артур Инглэндер, Йорг Шютауф, Михаэль Мендль, Константин Франк, Энн Шефер, Антон Рубцов, Кристина ШорнПеревод: Многоголосый любительский (Ultradox)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют рекламные вставки (видео / аудио / баннер)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F3F538BEF86F913356BBC4158EFA79B8781ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443604   (1023030) от 02.04.2021
+
+Засланец из космоса / Resident Alien (2021) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда космический корабль потерпел крушение на Земле, инопланетянин (Алан Тьюдик) поселился в провинциальном городе штата Колорадо под видом местного врача. Постепенно он приспосабливается к жизни на новой планете, но чем дольше он находится среди людей, тем больше его терзают сомнения по поводу миссии, с которой он был сюда послан, — уничтожить всё человечество.Производство: США / Amblin Television, Dark Horse EntertainmentЖанр: фантастика, драма, комедия, детективРежиссер: Шеннон Коли, Дженнифер Фанг, Дэвид ДобкинАктеры: Алан Тьюдик, Сара Томко, Кори Рейнольдс, Элис Веттерлунд, Леви Филер, Элизабет Бауэн, Мередит Аутри, Кэйлайла Рэйн, Манделл Мофан, Judah Prehn и д.р.Перевод: Двуголосый профессиональный  (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8AB822EA402494E82527CC5FCF6B5079399CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443602   (1023020) от 02.04.2021
 
 Засланец из космоса / Resident Alien (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:027C9EFD9285BC27CBA683932F7A10E081464E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468443   (1017020) от 08.05.2021
-
-Наследие Юпитера / Jupiter's Legacy (2021) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) Gears Media [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое поколение супергероев получило невероятные способности в 1930-х и с тех пор стало символом надежды и порядка. Спустя десятилетия их по-прежнему уважают и почитают, но вот их потомков, которые стали суперзвездами, больше волнует слава, нежели спасение мира.Производство: США / Di Bonaventura Pictures, Image Comics, NetflixЖанр: фантастика, фэнтези, боевик, драма, приключенияРежиссер: Шарлотта Брандстром, Крис Бирн, Марк ЙобстАктеры: Джош Дюамель, Бен Дэниелс, Лесли Бибб, Эндрю Хортон, Елена Кампурис, Мэтт Лантер, Майк Вэйд, Теника Дэвис, Анна Акана, Тайрон БенскинПеревод: Двуголосый профессиональный (Gears Media)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A701EA4B59A51F7E113444E71F5ACD8E193E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428812   (1015825) от 15.05.2021
-
-Детство Шелдона / Молодой Шелдон / Young Sheldon (2020)  WEBRip (сезон 4, серии 1-18 из 18) Baibako  [AD]
-
->>След.
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015825.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о непростом детстве вундеркинда Шелдона Купера. Родители юного гения не разделяют увлечения сына наукой: его мать очень религиозна, а отец, бывший футбольный тренер, предпочитает проводить вечера в компании пива и телевизора. Со сверстниками тоже не ладится, ведь Шелдона куда больше детских игрушек интересует, где можно взять обогащённый уран для научных (   Читать дальше...   )Производство: США / Chuck Lorre Productions, Warner Bros. TelevisionЖанр: КомедияРежиссер: Джаффар Махмуд, Алекс Рейд, Крис Кох,Актеры: Иэн Армитедж, Зои Перри, Лэнс Барбер, Монтана Джордан, Реган Реворд, Джим Парсонс, Энни Поттс, Уоллес Шоун, Ryan Phuong, Уайатт МакКлюр, и др.Перевод: Многоголосый закадровый (Baibako)Продолжительность: ~00:18:00 серияРеклама: баннер, аудио вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE2EC43CF27C2E0B12328D778E14CD129FC36B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

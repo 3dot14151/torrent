@@ -1,3 +1,90 @@
+###  Публикация: 544142   (489213) от 08.09.2012
+
+Жураковская Янина Викторовна | Собрание сочинений [2010-2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На краю времени
+ "Пальцы вцепляются в неподатливый камень так, что кровь выступает из-под ногтей. Многовато "если", светлейший принц. Зелгарис бы сказал: Создатель, сейчас нам совсем не помешает маленькое чудо..." Кто-то скажет, что лишь те, чья жизнь коротка, мог...
+
+Хранители времени
+ Общеизвестно, что героями не рождаются, а становятся. Что для этого нужно? Всего-то: злобный тиран, волшебный медальон и Счастливое Стечение Обстоятельств. Отныне судьба мира в ваших руках, ребята! Не уроните её на пол…
+
+Хранители времени. Интермедия
+ Тем, кто обожает двух наивных Хранителей, здесь, поверьте, делать нечего. Потому что в «Интермедии» речь пойдёт… да, да, о тех, кто на другой стороне. То есть, во Тьме. А что? Они ведь тоже люди, по большей части. P.S. Посвящается Ксении Николаевн...
+
+Любовь зла...(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F543327AAE2E5C057194372F5F9FB14BBDA40B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383144   (488760) от 03.09.2011
+
+Анатолий Рыбаков | Сборник книг [2008] [FB2, RTF]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Рыбаков умел писать бестселлеры. На протяжении более 50 лет он был, наверное, единственным настоящим русским автором бестселлеров. Не зря чуткие к успеху американцы поместили его портрет на обложке журнала Time ..Когда в 1987-м году страна зачитывалась романом «Дети Арбата» — одним из первых, опубликованных в перестроечной России произведений, о годах сталинского "террора". Многие с изумлением узнавали в авторе «того самого» Анатолия Рыбакова, сочинителя приключенческих повестей «Кортик» и «Бронзовая птица».Формат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0513485994C213B88F01C81BF34C0B869891FA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158930   (485810) от 19.08.2017
+
+Леонид Влодавец | Подборка книг [36 книг] (1997-2002) [FB2, EPUB]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Влодавец  Леонид Игоревич родился в 1950 году. Окончил исторический факультет Московского педагогического института, работал в ряде газет и журналов. Автор книг детективного и приключенческого жанров, среди которых выделяются романы: "Московский бенефис", "Гастроль без антракта", "Приговоренный", "Душегубы", "Фартовое дело".Жанр: Детектив, БоевикФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9F75A7B72B2B931E99D5F0ED2E02DDCF1A5C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938181   (483659) от 17.09.2015
 
 Виталий Сертаков | Собрание сочинений [30 книг] (2000-2013) [FB2]
@@ -6,7 +93,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -489,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -515,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -541,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,89 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705576E47665BC11A037E766BDB9AC144540EFFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550469   (457152) от 22.09.2012
-
-Илья Варшавский | Сборник ( 9 книг) [1959-1992] [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Илья Варшавский (1908-1974) - советский писатель-фантаст появился «как беззаконная комета среди расчисленных светил».
-  Судите сами: апрель 1962 г. — первая публикация («Наука и жизнь», 1962, № 4), скромно подписанная — «инженер И. Варшавский», июнь 1962 г. — вторая публикация, рассказ «ИНДЕКС Е-81» (Техника – молодежи, 1962, № 6) — и сразу Национальная премия на международном конкурсе фантастических рассказов, высокая оценка, данная Станиславом Лемом, первым, еще не опубликованным рассказам Варшавского.
-12 лет работы в фантастике, практически ежегодные публикации в журналах и сборниках, пять авторских книг, изданных при жизни, около ста рассказов и коротких повестей…Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F236AC523E5F010B3B3195E5E9F5F99431409145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321678   (456699) от 25.08.2019
-
-Афанасий Афанасиевич Фет | Собрание сочинений и писем в 20-ти томах [6 книг] (2002-2015) [DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее собрание сочинений и писем Афанасия Афанасьевича Фета (1820–1892) представляет собой первую попытку издания в возможной полноте всего многообразного наследии великого русского поэта. Стихотворения, художественная проза, переводы, мемуары, письма распределяются по жанрово-хронологическому принципу.Жанр: Классическая литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651825D3E99B12E9F94F1495CB57F72C97AE3E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550642   (454775) от 23.09.2012
-
-Борис Штерн | Полное собрание сочинений [1987-2002] [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борис Гедальевич Штерн (14 февраля 1947, Киев — 6 ноября 1998, там же) — украинский писатель-фантаст. Член Союза писателей СССР (1988). Лауреат премий «Лучший писатель-фантаст Европы» (Еврокон-1984), «Старт» (1989), «Странник» (1995, 1998), «Бронзовая улитка» (1995,1998), «Чумацкий шлях», «Великое Кольцо».
-Самобытнейший писатель, прочитав хотя бы один рассказ которого, уже не забудешь автора никогда.
-Борис Штерн обладает уникальным стилем и чувством юмора.
-Здесь собраны все произведения Штерна (которых, увы, не так уж и много...).Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561D31199CEE4FC1924AF7192FB0A3DD3D7009D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

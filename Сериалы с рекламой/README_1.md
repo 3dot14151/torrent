@@ -1,3 +1,55 @@
+###  Публикация: 1447312   (1031772) от 13.02.2021
+
+Король / Krol (2020) WEBRip (сезон 1, серии 1-8 из 8) Ultradox [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Варшава, 1937 год. Над Европой навис призрак фашизма. Город контролирует еврейская банда во главе с польским социалистом Кумом Каплицей. Главный герой — боксер Якуб Шапиро, любимец варшавских женщин и источник ревности и страха многих мужчин. Якуб втайне мечтает сменить Кума и стать криминальным королём Варшавы.Производство: Польша / Aurum Film, Canal+ PolskaЖанр: криминалРежиссер: Ян П. МатушинскийАктеры: Лена Гора, Миколай Кубацкий, Piotr Pacek, Александра Писула, Pawel Wolak, Аркадиуш Якубик, Борис Шиц, Михал Журавски, Andrzej Klak, Барбара КужайПеревод: Многоголосый любительский (Ultradox)Язык озвучки: русскийСубтитры: Польские (hardsub)Продолжительность: ~01:05:00 серияРеклама: Присутствует баннер и текстовые вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F5DD08843860C1DFD5C3497CB5393772043460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447569   (1031616) от 14.02.2021
+
+Капитани / Capitani (2019) WEBRip (сезон 1, серии 1-12 из 12) Baibako [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В люксембургской деревне, где у каждого есть секреты, инспектор полиции Люк Капитани расследует подозрительную смерть 15-летней девочки.Производство: Люксембург / Artémis Productions, Film Fund Luxembourg, RTL LuxembourgЖанр: криминалРежиссер: Кристоф ВагнерАктеры: Люк Шилтц, Софи Мусель, Клод Де Демо, Joe Dennenwald, Konstantin Rommelfangen, Жюль Вернер, Jil Devresse, Julie Kieffer, Бригитта Урхаузен, Тимо ВагнерПеревод: Многоголосый профессиональный (Baibako)Язык озвучки: русскийПродолжительность: ~00:30:00 серияРеклама: присутствуют вставки рекламы (аудио / видео / баннер)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B244CAC8DB76546D99F12E0CE55CB062533E846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447570   (1031587) от 14.02.2021
 
 Капитани / Capitani (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-12 из 12) Baibako [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38610BA1D6D646DFC2CBAEA125B9B35E49B595E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458579   (1023748) от 29.03.2021
-
-Убийства в Марнове / Мёртвые из Марноу / Die Toten von Marnow / Marnow Murders (2021) WEB-DLRip (сезон 1, серии 1-8 из 8) Ultradox [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективы Лона Мэнт и Франк Эллинг идут по следу серийного убийцы, в чьих преступлениях не прослеживается никакой логики, а жертвы кажется выбираются совершенно случайно. Однако всему в этом мире есть причина и порой всё совсем не так, как кажется на первый взгляд.Производство: Германия / Made in Munich Filmproduktion, Polyphon Film-und FernsehgesellschaftЖанр: криминалРежиссер: Андреас ХерцогАктеры: Петра Шмидт-Шаллер, Саша Александр Гершак, Бьянка Наврат, Лукас Артур Инглэндер, Йорг Шютауф, Михаэль Мендль, Константин Франк, Энн Шефер, Антон Рубцов, Кристина ШорнПеревод: Многоголосый любительский (Ultradox)Язык озвучки: РусскийПродолжительность: ~00:45:00 серияРеклама: присутствуют рекламные вставки (видео / аудио / баннер)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F3F538BEF86F913356BBC4158EFA79B8781ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443604   (1023030) от 02.04.2021
-
-Засланец из космоса / Resident Alien (2021) WEB-DLRip (сезон 1, серии 1-10 из 10) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда космический корабль потерпел крушение на Земле, инопланетянин (Алан Тьюдик) поселился в провинциальном городе штата Колорадо под видом местного врача. Постепенно он приспосабливается к жизни на новой планете, но чем дольше он находится среди людей, тем больше его терзают сомнения по поводу миссии, с которой он был сюда послан, — уничтожить всё человечество.Производство: США / Amblin Television, Dark Horse EntertainmentЖанр: фантастика, драма, комедия, детективРежиссер: Шеннон Коли, Дженнифер Фанг, Дэвид ДобкинАктеры: Алан Тьюдик, Сара Томко, Кори Рейнольдс, Элис Веттерлунд, Леви Филер, Элизабет Бауэн, Мередит Аутри, Кэйлайла Рэйн, Манделл Мофан, Judah Prehn и д.р.Перевод: Двуголосый профессиональный  (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серииРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8AB822EA402494E82527CC5FCF6B5079399CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1030845   (670478) от 02.07.2016
+###  Публикация: 509307   (674123) от 12.06.2012
 
-VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Bang Bang Racing (RePack/1.0) [Multi5\-] 2012 | VANSIK
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Win Игры
+>>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Flashbaxx - Ampurdan (06:36)
-02. Ingo Herrmann - Mojito (03:55)
-03. Kulyela - Uprising (04:56)
-04. JetTricks - Atama's Ocean (04:04)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:53
+Bang Bang Racing - веселая, насыщенная постоянным экшеном гоночная игра с множеством замечательных графических эффектов и прокаченных спорт-каров. За игрушечной графикой, скрывается горячее сердце настоящей труёвой гонки. Динамическая обработка физических эффектов добавляет в игру значение мастерства - проход поворотов в заносе и срезание траекторий доставит массу удовольствия любому игроку. (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3D / Top-downЯзык озвучки: АнглийскийЯзык интерфейса: Aнглийский, немецкий, французский, итальянский, испанский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD8D5E64C01B0C7DC92FDFDDFB856FE7CE57A70B
+magnet:?xt=urn:btih:8F650926BAB859498E98B433B97CE280F9E29328
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,115 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030739   (670477) от 02.07.2016
+###  Публикация: 677880   (674119) от 09.07.2013
 
-Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Depressive, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Fiancées Sont Froides
-02. La Mer, Les Ruines
-03. Le Soleil Et l'Acier
-04. Kaputt(   Читать дальше...   )Жанр: Depressive, Post-Black MetalПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030837   (670476) от 02.07.2016
-
-Delta Generators - Hipshakers And Heartbreakers (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Day That I Met You    02:48
-02.  Elephant In The Room    04:23
-03.  Two Headed Snake    02:18
-04.  Feel No Pain    02:47(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75656254CD6E2BF2333E24C15A509CD283806920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030902   (670475) от 02.07.2016
-
-Cecilia Engelbrecht Heick - Spring Is A Promise Of Fall (2016) [FLAC|Lossless|image + .cue] <Jazz, Piano, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670475.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spring Is a Promise of Fall
-2. Reprise
-3. There'll Be Another Spring
-4. Never Let My Dreams Come True(   Читать дальше...   )Жанр: Jazz, Piano, Vocal JazzПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E049B01F47C3511BBF6E266F4A241255BF26FA47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030863   (670474) от 02.07.2016
-
-VA - Uplifting Only Top 15 June (2016) [MP3|320 Kbps] <Uplifting Trance>
+Slade - Alive Vol. 2 (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Illitheas - Epica (Intro Mix) (06:27)
-02. Kelly Andrew - Timeless (Orchestral Trance Mix) (09:15)
-03. Afternova ft. Amy Lee - Loneliness (Orchestral Trance Mix) (07:43)
-04. Simon O'Shine ft. Eskova - You May Love (Mhammed El Alami Remix) (06:07)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:49:05
+Жанр: Glam rockПродолжительность: 00:42:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:821AC994F35FE292B17F6F5ED94B7A2D66DBD57A
+magnet:?xt=urn:btih:FFB9CFE677397676AE57CF070526296F5D18E902
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030515   (670473) от 02.07.2016
+###  Публикация: 337863   (674090) от 16.05.2011
 
-The Rockin Daddies - Rev It (2016) [FLAC|Lossless|tracks] <Blues, Electric Blues>
+Игра на выживание / Surviving the Game (1994) DVDRip
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don't Run Away    03:31
-02.  Paralyzed    02:49
-03.  Alpo Diablo    03:44
-04.  One and Only    03:00(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:58:25
+Одинокого, потерявшего семью бродягу приглашают поработать «инструктором по выживанию». Ничего не ведающего парня привозят на отдаленную лесную заимку, где собралась компания охотников. На следующее утро после обильного ужина выясняется, что дичью на предстоящей охоте будет не кто иной, как приглашенный бродяга.
+Хозяин заимки дает ему время для того, чтобы тот смог (   Читать дальше...   )Жанр: Боевик, ПриключенияРежиссер: Эрнест Р. ДикерсонАктеры: Айс-Ти, Рутгер Хауэр, Чарльз С. Даттон, Гэри Бьюзи, Ф. Мюррэй Абрахам, Джон К. МакГинлиПеревод: Авторский перевод Леонид Володарский + Авторский перевод Алексей Михалев + Авторский перевод Андрей Дольский + Многоголосый закадровый + оригинальный английскийПродолжительность: 01:36:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6780F6E5685772F4362659294F07451E22C1AEB
+magnet:?xt=urn:btih:7A6AE433327B2B0B6FA0EEAEA7392A9CEB6F412B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031057   (670472) от 02.07.2016
+###  Публикация: 1291005   (674081) от 22.03.2019
 
-Ben Poole - Let’s Go Upstairs (2012) [FLAC|Lossless|tracks] <Blues Rock>
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (227) [JPG]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670472.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01.  Hanging in the Balance    05:10
-02.  I'm Gonna Tear Your Playhouse Down    04:08
-03.  It Doesn't Have to Be That Way    03:40
-04.  Let's Go Upstairs    03:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:47
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DFBEAF3D878A67441A0DF618A53A1CDDAECCAEB
+magnet:?xt=urn:btih:65D94E1299F5C6918DE94E0A15C68B9015DD63CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +103,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031060   (670471) от 02.07.2016
+###  Публикация: 1290979   (674080) от 22.03.2019
 
-VA - Chill out Summer Sounds (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Autumn - Synthesize (2011) LP, Compilation [MP3|320 Kbps] <Electro, Synth-pop, Minimal>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. I Say You Hello (5:32)
+02. The Third Autumn (4:33)
+03. Night In June (4:38)
+04. Viginaigre (4:10)(   Читать дальше...   )Жанр: Electro, Synth-pop, MinimalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF56BB7EA10E31462AB7F8DB6A7960E06B0AB331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291021   (674079) от 22.03.2019
+
+Обои - Desktop Wallpapers Full HD. Part (404) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAB0343EB86EC9E9067DA0203D6F75D512A7460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290965   (674078) от 22.03.2019
+
+Opera 58.0.3135.118 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15985413361550B3AA55A20EEA58A4C0C368EF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290799   (674077) от 22.03.2019
+
+VA - не Громкие новинки недели 6 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Stars Over Foy - Until We Meet Again in Heaven - Vechigen Alternative Chillout Remix
-02. The Rex-Factor - Dog Ate My Shoe - Chill Mix
-03. Dr. J. James - Mind Peace - Healing Nature Mix
-04. Jamie Duvel - Gift of Magic(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:24
+01. Alan Walker feat. Sabrina Carpenter & Farruko - On My Way
+02. Alena Grand - Потанцуй Со Мной
+03. Armin Van Buuren feat. Bonnie McKee - Lonely For You (Zack Martino Remix)
+04. Audax & Pri Pach - Wildfire(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:56:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:180FAE8609498683B704E64AC4B5C2C6A7F6420C
+magnet:?xt=urn:btih:7C89CD06333BA1A04D4D4DA1BCD3C6C8646646CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,28 +213,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030934   (670470) от 02.07.2016
+###  Публикация: 1291018   (674076) от 22.03.2019
 
-VA - Зарубежная Дискотека ХХ Века - 42 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Обои - Desktop Wallpapers HD. Part (403) [JPG]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Grant Miller - Wings Of Love ( 1987 )
-02. Illusion - Illusion ( High Fashion Mix 1984 )
-03. Alan Ross - Valentino Mon Amour ( Swedish Remix 1985 )
-04. Bad Boys Blue - I Wanna Hear Your Heartbeat ( Sunday Girl ) ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:27
+Подборка красивых и качественных обоев на разные темы в HD формате.Формат: JPGРазрешение файлов: 1920x1080-3840х2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34B49A5AF397EF0ABD4EF7F92D1C813FDB490C81
+magnet:?xt=urn:btih:21F1FEF1C29A4670DC504935917F7B5300499B25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,28 +239,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030823   (670469) от 02.07.2016
+###  Публикация: 1291002   (674075) от 22.03.2019
 
-Владимир Двинской - Надо жить (2014) [FLAC|Lossless|image + .cue] <Chanson>
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (225) [JPG]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Как-то не верится (4:04)
-02. А до зимы далеко (3:58)
-03. Не плачь апрель (4:18)
-04. Что имеем не храним (3:54)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:48:15
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35CEB4D4E2ABCCC19A3FDD1FA3F632C3A23C37D6
+magnet:?xt=urn:btih:E599F763C82FEF81029C9C8431AFE11A5337A22A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,28 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030924   (670468) от 02.07.2016
+###  Публикация: 1290754   (674074) от 22.03.2019
 
-VA - Зарубежная Дискотека ХХ Века - 37 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Bandizip 6.22 + Portable [Multi/Ru]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Joy - Cheek To Cheek ( 1986 )
-02. Michael Fortunati - Give Me Up ( 1987 )
-03. David Lyme - I Show You What's Love ( 1986 )
-04. Flirts - Jukebox ( Don't Put Another Dime ) ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:53
+Bandizip — это быстрая и надежная программа, которая поддерживает работу с форматами WinZip, 7-Zip, и WinRAR, и другими аналогичными архивами. Она использует очень быстрый алгоритм для сжатия и распаковки архивов, высокую скорость архивации, поддержку функции Drag and Drop (перетаскивания) и функцию мультисжатия.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:404BF378BD630BBF8292A97B77C45153B03229F0
+magnet:?xt=urn:btih:ACF030174EEB89637CD37913A68807D5827CE6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,28 +291,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030771   (670467) от 02.07.2016
+###  Публикация: 1290615   (674073) от 22.03.2019
 
-One Hundred Thousand - The Forms In Which They Appear (2016) [FLAC|Lossless|tracks] <Alternative, Hard Rock, Progressive>
+Flume - Hi This Is Flume (2019) Mixtape [MP3|320 Kbps] <Electronic, Hip-Hop>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Hi This Is Flume
+2. Ecdysis
+3. High Beams (ft. Slowthai)
+4. Jewel(   Читать дальше...   )Жанр: Electronic, Hip-HopПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB38F124FE712E6997FCDC3EE2E681D9859001E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291034   (674072) от 22.03.2019
+
+Обои - Desktop Wallpapers Full HD. Part (410) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A35B1BA3BE149745B73DDBA24A46F08608B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290896   (674071) от 22.03.2019
+
+Lacrimosa - Zeitreise (2019) 2CD [MP3|320 Kbps] <Symphonic Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01.  Delivered    02:48
-02.  Goldenjaw    05:31
-03.  The Way You See Yourself    03:39
-04.  Far From Dead    05:23(   Читать дальше...   )Жанр: Alternative, Hard Rock, ProgressiveПродолжительность: 00:54:05
+01. Ich bin der brennende Komet
+02. Lichtgestalt
+03. Bresso
+04. Nach dem Sturm(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 02:20:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B01B53C75DFA23FAB9A6D6C74795EA145100A1E
+magnet:?xt=urn:btih:E06255E7E4BA51D523347B08654A0FA029BAE008
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030936   (670466) от 02.07.2016
+###  Публикация: 1290832   (674070) от 22.03.2019
 
-VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Little Song For You (2019) [MP3|320 Kbps] <Jazz, Blues>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Digital Emotion - Go Go Yellow Screen ( 1984 )
-02. Blue System - Under My Skin ( 1988 )
-03. C. C. Catch - Heartbreak Hotel ( 1986 )
-04. Bobby Orlando - All People Are The Same ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
+001. Jules - Stay
+002. Malia - Unfastened
+003. Bob Reynolds - Crush
+004. Ivan Conti - Encontro(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 12:00:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
+magnet:?xt=urn:btih:8CE880454F166949BF64F81CB9F34D2AC2DF944F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,28 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030930   (670465) от 02.07.2016
+###  Публикация: 1290630   (674069) от 22.03.2019
 
-VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Герои в масках / Pj masks (2018) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-26 из 26) [UKR]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Murray - Commedia ( 1991 )
-02. Body Power - Dancing In The Tears ( 1985 )
-03. Radiorama - Yeti ( Remix 1989 )
-04. Mike Hammer - Supersonic Love ( Energy Mix 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:31
+Увлекательный мультсериал о юных супергероях. Три приятеля являются главными персонажами, они простые ребята, в руках которых оказались амулеты невероятной силы, они могут наделять своих обладателей чудесными способностями. Это звериные амулеты, кота, совы и ящерицы. Днем парни живут простыми жизнями, а по ночам они сражаются со злом, совершают подвиги и ради благих (   Читать дальше...   )Производство: Франция, ВеликобританияЖанр: Детский, ПриключенияРежиссер: Кристиан Де Вита, Мерли-Энн Ридли, Уилсон Дос СантосПеревод: ОтсутствуетОзвучка / Автор перевода: ТК ПлюсПлюсЯзык озвучки: украинскийСубтитры: отсутствуютПродолжительность: ~00:22:30 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
+magnet:?xt=urn:btih:D1163CFE3A2FBB0CB89780C6A589F2A893AA1E7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +430,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030933   (670464) от 02.07.2016
+###  Публикация: 1291032   (674068) от 22.03.2019
 
-VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+Обои - Desktop Wallpapers Full HD. Part (409) [JPG]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Gentle Touch - The Fire Of Love ( 1986 )
-02. John Christian - Ebony Eyes ( 1987 )
-03. Key West - Jesahel ( 1988 )
-04. Alphatown - Hot Stuff ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
+magnet:?xt=urn:btih:D64DF23018F9813F7BDF97481D5B9F00EA1D81F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,139 +456,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030925   (670463) от 02.07.2016
+###  Публикация: 1290999   (674067) от 22.03.2019
 
-VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Simmons - Lucky Guy ( Radio Version 1984 )
-02. Bronski Beat - Why ( 1985 )
-03. Aquarius - It Feels Like Summer ( Radio Version 1994 )
-04. Charlie - Spacer Woman ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030923   (670462) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellini - Samba De Janeiro ( 1997 )
-02. Bad Boys Blue - Kiss You All Over, Baby ( 1985 )
-03. Fun Fun - Gimme Some Loving ( 1988 )
-04. E-Type - Set The World On Fire ( 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030850   (670461) от 02.07.2016
-
-Tom Euler - Fool Me Once (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fool Me Once (4:10)
-02. Can't Shake It (6:16)
-03. Tricky Business (3:07)
-04. Is It Better (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8138926115F805082BCC44F4975E7475111A4BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510409   (670458) от 14.06.2012
-
-Эдит Несбит | Пятеро детей и Оно [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это одна из самых известных книг английской писательницы Эдит Несбит. В песчаном карьере, неподалеку от своего загородного дома, Роберт, Сирил, Джейн, Антея и маленький Ричард находят удивительное существо – песчаную фею Саммиэда… Мечты становятся реальностью. Ребят ждут удивительные приключения.
-Продолжение этой истории читайте в книгах «Феникс и ковёр» и «История (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 6:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1FF3668EC5BF46B2FF3F543FB24E9D602FD5B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510744   (670457) от 14.06.2012
-
-А.Е. Тарас | Войны Московской Руси с Великим княжеством Литовским и Речью Посполитой в XIV-XVII вв. [2006] [PDF]
+Алекс Керр | Потерянная Япония. Как исчезает культура великой империи (2019) [PDF, FB2, RTF]
 
 >>Научная и техническая литература
->>Военная литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена рассмотрению многочисленных войн Московской Руси с Великим княжеством Литовским и Речью Посполитой, происходивших в течение более чем 300 лет. Попутно описаны некоторые другие вооруженные конфликты: гражданские войны феодального периода, татарские набеги, казацкие восстания. Ныне события тех далеких времен отчасти забыты, отчасти недостаточно изучены, (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+«Потерянная Япония» – единственный в истории лауреат премии «Shincho Gakuge» за лучшую нон-фикшн книгу, опубликованную в Японии, которая была написана не ее гражданином, а иностранным автором. Алекс Керр – американский писатель, ученый-японист, коллекционер, арт-историк с блистательной наблюдательностью, точностью и пристрастием описывает культуру Японии и то, как (   Читать дальше...   )Жанр: Востоковедение, История культурыФормат: PDF, FB2, RTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21A68E26C13034A0CD07B7460D0272DA86B92C1C
+magnet:?xt=urn:btih:BB089CFB870ACDC318A51983D06D98974D8142C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,25 +482,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 506595   (670454) от 14.06.2012
+###  Публикация: 1290935   (674066) от 22.03.2019
 
-Досье «ODESSA» / The Odessa File (1974) [1080p] BDRemux
+ArtIcons Pro 5.52 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Графические редакторы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ArtIcons – удобная утилита, предназначенная для создания и редактирования иконок в различных форматах. С помощью ArtIcons можно создавать и редактировать иконки, а также работать с библиотеками иконок. Приложение поддерживает экспорт и импорт множества графических форматов: ICO, PNG, BMP, JPEG, GIF, ANI, CUR, EXE, DLL, OCX и т.д. Кроме использования стандартных инструментов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35E0E1D8EC635464D5CC2643077C8A20F973B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290914   (674065) от 22.03.2019
+
+Гринч / The Grinch (2018) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Любой бы на месте Гринча позеленел и взбесился. Как порядочный интроверт он живёт в тёмной пещере на самой вершине горы подальше ото всех, но эти «все» готовят грандиознейшее празднование нового года. Они шумят, всё украшают и дико бесят. Кто бы отказал себе в удовольствии испортить праздник? Гринч решает украсть Новый год.Производство: Китай, США, Франция, Япония /  Illumination Entertainment , Perfect World Pictures Co., Universal PicturesЖанр: Мультфильм, Фэнтези, Комедия, СемейныйРежиссер: Ярроу Чейни, Скотт МоужерАктеры: Бенедикт Камбербэтч, Кэмерон Сили, Рашида Джонс, Фаррелл Уильямс, Тристан О`Хара, Кенан Томпсон, Сэм Лаваньино, Рамон Хэмилтон, Анджела Лэнсбери, Скарлет Эстевез, Майкл Битти, Лори Алан, Ивэн КишиямаПеревод: Дублированный, Профессиональный многоголосыйСубтитры: Русские (Forced), английскиеПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8005CEC70DCB8BAA76DDA688241534E8B9252895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291003   (674064) от 22.03.2019
+
+Cent Browser 3.9.2.45 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Питер Миллер - немецкий журналист, выслеживающего бывших нацистов - военных преступников, которые скрываются от возмездия и создали мощную организацию помощи бывшим эсэсовцам под названием ODESSA.Жанр: триллер, драмаРежиссер: Роналд НимАктеры: Джон Войт, Максимилиан Шелл, Мария Шелл, Мэри Тэмм, Дерек Джекоби, Питер Джефри, Клаус Лёвич, Курт Майзель, Ханнес Мессемер, Гарфилд МорганПеревод: Многоголосый закадровыйСубтитры: АнглийскиеПродолжительность: 02:08:36
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE616E2C77346FE4641239F3B1A8AF0B7EC43EBD
+magnet:?xt=urn:btih:BEBC89B595FE8873D45CED0A6A467FC253423A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,25 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 510351   (670448) от 14.06.2012
+###  Публикация: 1291008   (674063) от 22.03.2019
 
-Том Сойер / Tom Sawyer (2011) [1080p] BDRemux
+LibreOffice 6.2.2.2 Stable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Приключения, СемейныйРежиссер: Хермини ХунтгебурхАктеры: Луис Хоффман, Леон Зайдель, Хайке Макач, Бенно Фюрманн, Йоахим Крол, Магали Грейф, Петер Ломайер, Хиннерк Шёнеманн, Сильвестр Грот, Томас Шмаузер, Джэймс БатлерПеревод: ДублированныйЯзык субтитров: Английские, НемецкиеПродолжительность: 01:50:47
+LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A1017C71A8FAC3B069A6BAD37048A1A7EA14E0A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +586,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536967   (670447) от 14.03.2022
+###  Публикация: 1290872   (674062) от 22.03.2019
 
-Плагины - Composite Nation - Oniric Glow Generator v1.2.0 [JSBIN, JS]
+Seagate DiscWizard 2019.17160 [Multi/Ru]
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-От Автора Mario Olvera: "Создание эффекта свечения - одна из двух основных функций Oniric. Он использует закон обратных квадратов так же, как и реальное затухание света, для создания очень плавных световых переходов. В сочетании с нашими алгоритмами это прекрасно работает с функцией раскрашивания «Colorize». Когда вы применяете плагин и нажимаете кнопку «Generate», (   Читать дальше...   )Формат: JSBIN, JS
+Seagate DiscWizard - бесплатная версия программы Acronis True Image для компьютеров, использующих жесткие диски Seagate. Решение позволяет выполнять резервное копирование отдельных дисков, разделов и системы в целом. Seagate DiscWizard представляет собой интегрированный программный пакет, которые обеспечивает безопасность данных на вашем компьютере. Программный комплекс (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82DC604CC2F03E36DF9BFB93BD4A116E2DCE7320
+magnet:?xt=urn:btih:8AA90106F61DA0F62707E3BDB0D5DA951DDD8B69
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136562   (670445) от 24.05.2017
+###  Публикация: 1408267   (674061) от 12.03.2022
 
-Похищение / Kidnap (2017) WEB-DLRip [MVO] [AD]
+Хон Гиль-дон / Hong Gil-dong (1986) DVDRip [H.264]
 
->>нет
->>нет
+>>След.
+>>Азиатское кино (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Мать, которая борется за свое дитя никогда не остановится ни под каким предлогом. Сможет ли Карла спасти ребенка и вершить правосудие? Почему полиция так хладнокровно отнеслась к похищению ребенка?Производство: СШАЖанр: ТриллерРежиссер: Луис ПриетоАктеры: Холли Берри, Дэна Гурье, Лью Темпл, Кристофер Берри, Роберт Уокер Браншод, Курт Краузе, Ричи Монтгомери, Малия Ричардсон, Джастин Лебрун, Диди КостинПеревод: Любительский многоголосый (@MUZOBOZ@)Субтитры: ОтсутствуютПродолжительность: 01:36:30Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
+Народный заступник Хон Гиль-дон в одиночку, в совершенстве владея приёмами тхэквондо и ловко действуя мечом, справляется со всей нечистью, что портила жизнь простым корейцам ещё в XVII веке.Производство: Корея Северная / Hong-Jong CorporationЖанр: Фэнтези, боевик, приключенияРежиссер: Ким Гир-ин, Щин Сан-окАктеры: Ли Ён-хо, Чхан Ге-сон, Чан Сон-хи, Чхве Сон-бу, Хван Ён-иль, Ким Юн-хон, Ли Хак-чхоль, Пак Ён-хак, Ли Ин-гвон, Ли Рён-унПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1E5C878E6EC33B39ECC3F660AF741A3F8ACE3D29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,25 +638,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536654   (670444) от 14.03.2022
+###  Публикация: 1534765   (674060) от 12.03.2022
 
-Крошечный ядерный реактор как доступная альтернатива солнечной энергетике
+CGMA, Peyton Varney | Environment Art for Games in UE4 (2020) PCRec [RU]
 
->>3
->>4
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-После сертификации нового реактора, документы на которую уже поданы, у каждого городка может появиться собственная атомная станция, питающая его энергией, — безопасная и эффективная.Энергетический стартап в Орегоне (США) собирается изменить отношение людей к атомной энергии. Разработанный реактор NuScale имеет небольшие размеры и, как утверждают его создатели, гораздо (   Читать дальше...   )
+Во время этого курса студенты получат опыт создания окружения для игр от начала до конца. В этом курсе будет рассмотрен процесс создания окружения от концепта до воплощения идеи в жизнь с использованием стандартных инструментов и методов. Учащиеся лучше поймут, как использовать свои творческие способности, чтобы создать что-то свое, и как подтолкнуть произведение (   Читать дальше...   )Производство: CGMAЖанр: Создание окруженияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 14:55:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:33B196E9413DC3E0B13F8122952CC4BCCF686597
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,25 +664,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136731   (670442) от 24.05.2017
+###  Публикация: 1536490   (674059) от 12.03.2022
 
-Oxygen Not Included (2017) [Ru/En] (217565) SteamRip Let'sPlay
+Дом Gucci / House of Gucci (2021) UHD BDRip [H.265/1080p] [HDR10, 10-bit]
 
->>Win Игры
->>Demo/Beta версии Игр
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Oxygen Not Included – это новый проект от нашумевшей студии Klei Entertainment, до этого момента известной по игре Don`t Starve. Теперь игроков ждет неожиданное путешествие в космосе внутри астероида. Готовитесь к тому, что вам придется выживать в этих тяжелых условиях и пытаться прокормить свою маленькую колонию людей.Тип издания: SteamRipРазработчик: Klei EntertainmentЖанр: Strategy (Real-time), Indie, SimulationЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+Фамилия Гуччи звучала так сладко, так соблазнительно. Синоним роскоши, стиля, власти. Но она же была их проклятьем. Шокирующая история любви, предательства, падения и мести, которая привела к жестокому убийству в одной из самых знаменитых модных империй мира.Производство: США, Канада / Metro-Goldwyn-Mayer (MGM), BRON StudiosЖанр: Биография, драма, криминал, триллерРежиссер: Ридли СкоттАктеры: Леди Гага, Адам Драйвер, Джаред Лето, Джереми Айронс, Джек Хьюстон, Сальма Хайек, Аль Пачино, Алексия Мюррэй, Винсент Риотта, Гаэтано БруноПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full), английские (full)Продолжительность: 02:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86F73AB82F7E9301C8EB176A9AFE6D366DFED350
+magnet:?xt=urn:btih:715780E6CEBD00BC0F2B9E4F143F5C3F4CCC3C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

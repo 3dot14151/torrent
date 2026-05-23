@@ -1,3 +1,85 @@
+###  Публикация: 1420343   (333265) от 31.10.2020
+
+[Udemy] Cristian Doru Barin | Дизайн мобильных приложений: UI, UX и прототипирование в Adobe XD и PS / Design Mobile Apps: UI, UX & Prototyping in Adobe XD & PS (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите создавать выдающиеся приложения? Впечатляющие прототипы, похожие на настоящие, но без кода? Этот курс представляет собой мастер-класс - комплексный подход к разработке мобильных приложений. Я научу вас всему, что вам нужно знать, от А до Я. Мы будем использовать Photoshop, Adobe XD, Zeplin. Я обучил более 220 000 студентов на Udemy, и я самый продаваемый (   Читать дальше...   )Производство: UdemyЖанр: Дизайн мобильных приложенийЯзык озвучки: АнглийскийПродолжительность: 14:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565149408BE95B3424FB4D880A21BC6F9345C303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331338   (333243) от 14.10.2019
+
+Udemy | Создание ретро футуристичного автомобиля в Blender 2.78 / Creating a Retro Futuristic Car in Blender 2.78 (2019) PCRec [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом уроке мы сделаем ретро футуристичный автомобиль. В процессе урков мы рассмотрим основные инструменты моделирования, создадим модель автомобиля. Затем мы займемся процедурным текстурированием и рендерингом.
+Весь этап можно разделить на три части. Первый-это моделирование. Второй-установка материалов, установка света. И третье-это визуализация, то есть рендер, (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 08:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28B68EA09342883E9A7767B79907BDBE0A5E385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580004   (332765) от 29.09.2022
+
+Вольница, Александр Санакоев | VFX-ZEN (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Основная идея Дзена — ускорить ваш профессиональный рост
+Не просто научить парочке приемов, нужным кнопкам и как быстрее экспортить свои труды в инсту\тик-ток. А помочь вырасти мастером, который не боится трудностей,
+знает альтернативы в пайплайне и ловко обходит "подводные камни" в работе.
+(   Читать дальше...   )Производство: ВольницаЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 21:35:58Реклама: Присутствуют наложения на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14A6B23A2F70DE6F7BC41AF08BF3228749A4300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579961   (332764) от 29.09.2022
 
 Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
@@ -6,7 +88,7 @@ Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Jan Urschel | Реалистичный сэт-дизайн в Blender 2.82 / Rea
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +140,7 @@ Jan Urschel | Кинематографичный сэт-дизайн в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +166,7 @@ Jan Urschel | Дизайн 3D окружения для производства
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +192,7 @@ Jan Urschel | Создание скетча 3D окружения в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +244,7 @@ Jan Urschel | Процедурные ландшафты в Blender 2.80 / Proced
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +270,7 @@ Jan Urschel | Скалистые ландшафты в Blender 2.82 / Rocky Land
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +322,7 @@ Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +351,7 @@ VideoSmile, Михаил Бычков | Супер Cinema 4D Pro (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +408,7 @@ Jan Urschel | Процедурные городские пейзажи в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +434,7 @@ Jan Urschel | Погодные эффекты в Blender 2.81 / Weather Effects 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +460,7 @@ Jan Urschel | Дизайн Sci-Fi окружения в Blender 2.82 / Sci-Fi En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +487,7 @@ Gumroad, Pierrick Picaut| Фэнтезийная башня на скале - П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +514,7 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +542,7 @@ Jan Urschel | Движки рендеринга - Небольшой обзор 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +568,7 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +594,7 @@ Blender Cloud | Написание скриптов для художников 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +621,7 @@ Blender Cloud | Фабрика существ 2 - Создание персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +648,7 @@ Udemy, Mrawan Hussain | Создание Молота Тора в Blender 2.90 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +675,7 @@ Blender Cloud | Создание видеоэффектов в Blender: Трек
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,85 +687,6 @@ Blender Cloud | Создание видеоэффектов в Blender: Трек
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9D13383AAC385978B4CF84458B746E103522B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582890   (315838) от 12.10.2022
-
-Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course in Blender (2022) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315838.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе для пользователей Blender среднего уровня мы создадим этих персонажей, концепцию великого художника Tooth Wu, полностью и только в Blender. Мы поговорим о множестве вещей, которые могут повлиять на сознание 3D-художника персонажей во время скульптинга, моделирования, раскрашивания и рендеринга.Производство: WingfoxЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 19:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE6B010C453FAE0D7E85D3531C1EC6A99919230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332305   (315830) от 19.10.2019
-
-Blender Cloud | Создание мультипликационного персонажа в Blender / Toon Character Workflow (2016) PCRec [H.264/1080p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315830.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы исследуем различные аспекты мультяшного шейдинга, начиная от концепт-арта и заканчивая рендерингом. Мы изучим, какие персонажи будут работать, какие цвета выбрать для вашего шейдинга, и какая анимация возможна.
-Концепт-арт, моделирование, риггинг, шейдинг, анимацию и рендеринг будет объяснять Dillon Gu, создатель Katsu Cats.Производство: Blender CloudЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B78803E3A755DA62DED482D7428FA22A3F6009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421848   (315056) от 06.11.2020
-
-Udemy, Mrawan Hussain | Создание маленького K-2SO робота в Blender 2.83 и Substance Painter 2020 / Blender: Create the Tiny K-2SO Star Wars Robot (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс по созданию робота K-2SO из Звёздных Войн, в этом курсе вы узнаете, как моделировать, создавать UV развёртку и добавлять реалистичный материал в ваш проект. В конце курса мы сделаем финальный рендер в Cycles.Производство: UdemyЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 12:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95A8DD044E96993055027003D5F91B5B58B0A25
 ```
 
 https://mybot314.ru/tekegram_catalog/

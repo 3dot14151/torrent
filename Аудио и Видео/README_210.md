@@ -1,3 +1,30 @@
+###  Публикация: 956806   (327436) от 17.11.2015
+
+Кристофер Паолини | Эрагон [Наследие - Книга 1] (2015) [m4b|AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Таинственная находка изменила жизнь Эрагона, обыкновенного мальчика из страны Алагейзия. Чтобы отомстить за близких, он покинет родные места. В поисках Эллесмеры, города эльфов, он попадает в фантастические земли, наполненные красотой и опасностью, сразится с колдунами и чудовищами, спустится к сердцу горы в королевство гномов.
+Через боль потерь и бесценные дары (   Читать дальше...   )Жанр: ФэнтезиФормат: m4bПродолжительность: 21:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF26089622888887CF9A6FE137D828A59FABCF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957167   (327429) от 17.11.2015
 
 Lindsey Stirling - Lindsey Stirling (2012) [AAC|256 кб/с|WEB]<Classical Crossover, Electronic, Instrumental>
@@ -6,7 +33,7 @@ Lindsey Stirling - Lindsey Stirling (2012) [AAC|256 кб/с|WEB]<Classical Cross
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +88,7 @@ Ludovico Einaudi - Elements (2015) Deluxe Version [AAC|256 кб/с|WEB]<Modern C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +117,7 @@ Lindsey Stirling - Shatter Me (2014) [AAC|256 кб/с|WEB]<Classical Crossover, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +172,7 @@ Rammstein - Herzeleid (1995) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +201,7 @@ Rammstein - Reise, Reise (2004) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +230,7 @@ Rammstein - Sehnsucht (1997) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -232,7 +259,7 @@ Rammstein - Liebe ist fur alle da (2009) [AAC|256 кб/с|WEB]<Metal, Industrial
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -261,7 +288,7 @@ Rammstein - Rosenrot (2005) [AAC|256 кб/с|WEB]<Metal, Industrial>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -290,7 +317,7 @@ Rammstein - Made in Germany (1995-2011) (2011) Special Version [AAC|256 кб/с|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +372,7 @@ Rammstein - Mutter (Double CD Tour Edition) (2001) [AAC|256 кб/с|WEB]<Metal, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +401,7 @@ Enya - Dark Sky Island (2015) Deluxe [AAC|256 кб/с]<New Age, Ambient, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +430,7 @@ Flume - Flume (2013) Deluxe Edition [AAC|256 кб/с]<Electronic, Future Bass>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +615,7 @@ Snowgoose - The Making Of You (2020) [AAC|~320 Kbps] <Folk, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,7 +644,7 @@ VA - Acoustic Classic Rock Covers (2020) [AAC|~312 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,7 +673,7 @@ Joe Bonamassa - Royal Tea (2020) [AAC|~338 Kbps] <Rock, Blues>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,7 +702,7 @@ AC/DC - POWER UP (2020) [AAC|~354 Kbps] <Hard Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -689,32 +716,6 @@ AC/DC - POWER UP (2020) [AAC|~354 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E1FDC9C89BF480BE56442EA2D630337D780ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958813   (321622) от 22.11.2015
-
-Дама в очках и с ружьем в автомобиле / La dame dans l'auto avec des lunettes et un fusil (2015) WEB-DL [720p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она самая прекрасная, самая чувственная, самая импульсивная, самая упрямая, самая незадачливая девушка. Она хотела воплотить мечту и увидеть море, а в результате попала в невероятную переделку. В чужом автомобиле и с трупом в багажнике, скрываясь от полиции и рискуя собственной жизнью, ей осталось только одно — убедить себя в том, что она еще не окончательно сошла (   Читать дальше...   )Производство: Франция, БельгияЖанр: ТриллерРежиссер: Жоанн СфарАктеры: Фрейя Мавор, Бенжамин Биолэй, Элио Джермано, Стэйси Мартин, Тьерри Анкиссе, Сандрин Ларош, Фредерик Этерлинк, Ален Белло, Эдуар Жиар, Франсуа-Доминик БленПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E94AEA5693A46FDF8ACA21D4995C309042DA6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

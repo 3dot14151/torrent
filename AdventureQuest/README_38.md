@@ -1,3 +1,109 @@
+###  Публикация: 1306037   (539419) от 30.06.2019
+
+Outer Wilds (2019) [Ru/Multi] (1.0.2.100) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Outer Wilds - приключения в открытом мире, попытка разгадать тайну неведомой солнечной системы в бесконечно повторяющейся петле времени. Добро пожаловать в космическую программу! Вы - новобранец Outer Wilds Ventures, начатой недавно программы космических исследований, которая призвана найти ответы на загадки странной, непрестанно меняющейся солнечной системы.Тип издания: RepackРазработчик: Mobius DigitalЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EC1EC16B46AAC513A926A99AA06F404EB068CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557769   (537046) от 17.06.2022
+
+Dungeons of Edera (2022) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Dungeons of Edera - ролевое приключение с упором в красочные экшен-сцены и сражения с вражескими отрядами, агрессивно настроенными относительно главного героя. Большую часть времени, проведённого за этим проектом, разработанным коллективом независимых разработчиков, геймер проведёт в подземельях, ведь их зачистка – основное задание практически любых поручений, получаемых (   Читать дальше...   )Тип издания: LicenseРазработчик: Monster Tooth StudiosЖанр: Экшн, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804459E10F94DE2412FB9622FE08C2D7F6D51EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239611   (534758) от 07.08.2018
+
+Don't Play With Dolls (2018) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пробравшись в дом, который казался давно оставленным, с целью выкрасть из него все предметы представляющие ценность, главная героиня понимает, что дом не такой уж и заброшенный. Попав в дом, он оказывается полностью запертый изнутри. Но есть пара способов выбраться из него.Тип издания: RepackРазработчик: Creative Black ChairЖанр: Adventure (Horror), Action, Puzzle, 1st Person, 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E36EE21CCC8ED29C53E92656BBECC57DACC832B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051272   (534152) от 10.09.2016
+
+Jotun (2015) [Ru/Multi] (1.0/upd3) Repack Other s [Valhalla Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Jotun – это рисованная вручную приключенческая экшн-игра в мире скандинавской мифологии.
+В игре Jotun вы играете за Тору, воина-викинга, которая умерла бесславной смертью и должна доказать богам, что достойна Вальхаллы.
+Исследуйте обширные области скандинавского чистилища, чтобы найти руны и освободить йотунов – гигантских скандинавских элементалей. Сразитесь с ними (   Читать дальше...   )Тип издания: RepackРазработчик: Thunder Lotus GamesЖанр: Adventure, IndieЯзык озвучки: ИсландскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0627BD7A94C26DE29764F477F82A0A4F5FD1932F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155463   (533218) от 03.08.2017
 
 The Initiate (2017) [En] (1.05) License PLAZA
@@ -6,7 +112,7 @@ The Initiate (2017) [En] (1.05) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Tacoma (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Broken Age - The Complete Adventure (2014) [Ru/Multi] (2.4.800398) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +216,7 @@ Shining Song Starnova (2018) [En] (1.00) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Tacoma (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +268,7 @@ Memoria (2013) [Ru/Multi] (1.1.4.0336) SteamRip R.G. Игроманы
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +298,7 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +324,7 @@ Repentant (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Distorted Reality (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ STASIS (2015) [Ru/Multi] (1.09.1) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +402,7 @@ Pathologic 2 (2019) [Ru/En] (1.4.25127) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +428,7 @@ The Vanishing of Ethan Carter Redux (2014) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +454,7 @@ Legacy: Dark Shadows / Наследие: Тени Прошлого (2004) [Ru] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +480,7 @@ Forgotten Faces (2017) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +506,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0.0.1/upd13) Repack =nemos= [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +532,7 @@ Irony Curtain: From Matryoshka with Love (2019) [Multi] (1.0.5) License GOG [Rev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +558,7 @@ Monsters of Little Haven (2019) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +584,7 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0001/dlc) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +610,7 @@ Lucius II The Prophecy (2015) [Ru/Multi] (1.0.20150813.b) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +636,7 @@ EBOLA (2019) [Ru/Multi] (1.3) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +662,7 @@ Dream (2013) [Ru/Multi] (1.12/upd2) Repack R.G. Freedom
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,110 +673,6 @@ Dream - игра-исследование, действие которой пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F96E954877FC7BD08AF07A4897D3145853DA5BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929326   (519251) от 19.08.2015
-
-Dream (2013) [Ru/Multi] (1.12) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dream - игра-исследование, действие которой происходит в подсознании Говарда Филлипса, молодого человека, будни которого скучны и утомительны, а сны - ярки и полны новых, неизведанных возможностей. Пройдите по этим абстрактным мирам, примите их вызов и раскройте все секреты в поисках ключа к будущему Говарда.Тип издания: RepackРазработчик: HyperSlothЖанр: Adventure / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A716CA2226FBCB7F5B000E61813FCB40FB505DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229014   (516754) от 16.07.2019
-
-Where the Water Tastes Like Wine (2018) [Ru/Multi] (1.6.1) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Where The Water Tastes Like Wine — приключенческая игра с глубоким сюжетом, повествующая о путешествиях, жизни людей и борьбе с судьбой. Используя яркие рисованные иллюстрации, Where The Water Tastes Like Wine объединяет двухмерную графику с трехмерной картой территории США.Тип издания: LicenseРазработчик: Dim Bulb Games, Serenity ForgeЖанр: Adventure, RPG, NovelЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D854D51880F47194089F7437B01EBF5A0A0BCB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242174   (515938) от 21.08.2018
-
-Mechanism (2018) [Ru/Multi] (1.0.6) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mechanism - адвенчура про маленького робота в стимпанк мире, поражённом страшной болезнью - Флегмой. Робот просыпается и осознает, что его мир изменился. Черные наросты, называемые Флегмой, распространились повсюду. Большинство роботов погибли от этой болезни. Он также потерян, как и Вы. Что Вы будете делать и куда пойдете зависит только от Вас.Тип издания: RepackРазработчик: Alexander GoodwinЖанр: Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32E5EB02EEE1AB6F92EF52E99E699F388CA6434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231462   (515700) от 17.07.2019
-
-The Long Dark (2017) [Ru/Multi] (1.56.49966/dlc) License PLAZA [Episode 1-2]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515700.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Long Dark - это исследовательская игра-симулятор выживания, в которой игроки-одиночки должны позаботиться о себе в ходе изучения обширных морозных необитаемых территорий. Здесь нет зомби - только вы, холод и все, что вам может предложить мать-природа.Тип издания: LicenseРазработчик: Hinterland Studio Inc.Жанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308A0794C6B4C63911DF6A4CE77A369A3451EC5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

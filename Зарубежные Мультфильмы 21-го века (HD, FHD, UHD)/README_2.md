@@ -1,3 +1,110 @@
+###  Публикация: 1851127   (1055027) от 01.02.2026
+
+Давид / David (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Давид» — это масштабный анимационный мюзикл, повествующий о жизни одного из самых известных библейских героев.
+Начало: Юный Давид присматривает за овцами, играет на лире и сочиняет псалмы, демонстрируя глубокую веру.
+Избрание: Пророк Самуил тайно помазывает юношу на царство, видя в нем «мужа по сердцу Бога».
+Подвиг: Центральным событием становится легендарная битва (   Читать дальше...   )Производство: ЮАР, США / 2521 Entertainment, Slingshot ProductionsЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Фил Каннингэм, Брент ДоузАктеры: Брэндон Энгман, Брайан Стивале, Shahar Tavoch, Аарон Тавалер, Hector, Мири Месика и др.Перевод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9C1EEB822032F008C9DECD02640FB75FDA8DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850808   (1054666) от 13.02.2026
+
+Зверополис 2 / Zootopia 2 (2025) WEB-DLRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Кролик-полицейский Джуди и лис Ник идут по следу загадочной рептилии, чьё прибытие в Зверополис переворачивает жизнь города с ног на голову. Чтобы раскрыть дело, Джуди и Ник вынуждены работать под прикрытием в разных районах города.Производство: США / Walt Disney Pictures, Walt Disney Animation StudiosЖанр: мультфильм, комедия, детектив, приключения, семейныйРежиссер: Джаред Буш, Байрон ХовардАктеры: Джиннифер Гудвин, Джейсон Бейтман, Ке Хюи Куан, Форчун Феймстер, Энди Сэмберг, Дэвид Стрэтэйрн, Идрис Эльба, Шакира, Патрик Варбертон, Кинта БрансонПеревод: Дублированный (MovieDalen), Многоголосый (Jaskier, LostFilm)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (full, SDH)Продолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C383ECEB595A46EB23F79F5A9DAF57CC44FC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850328   (1054376) от 27.01.2026
+
+Муфаса: Король Лев / Mufasa: The Lion King (2024) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Осиротевший Муфаса знакомится с наследником королевских кровей по имени Така. Вместе они отправляются в судьбоносное опасное путешествие, которое проверит их дружбу на прочность.Производство: США, Канада / Blue Sky Films, Fairview EntertainmentЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Барри ДженкинсАктеры: Аарон Пьер, Дональд Гловер, Келвин Харрисон мл., Тиффани Бун, Кагисо Ледига, Престон Найман, Блу Айви Картер, Джон Кани, Мадс Миккельсен, Сет РогенПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, full, SDH), английские (full, SDH)Продолжительность: 01:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CA8B4F1555E0021517A7C3CD393A83CE240235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850346   (1054375) от 27.01.2026
+
+Зверополис 2 / Zootopia 2 (2025) WEB-DLRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Кролик-полицейский Джуди и лис Ник идут по следу загадочной рептилии, чьё прибытие в Зверополис переворачивает жизнь города с ног на голову. Чтобы раскрыть дело, Джуди и Ник вынуждены работать под прикрытием в разных районах города.Производство: США / Voltage PicturesЖанр: мультфильм, комедия, детектив, приключения, семейныйРежиссер: Джаред Буш, Байрон ХовардАктеры: Джиннифер Гудвин, Джейсон Бейтман, Ке Хюи Куан, Форчун Феймстер, Энди Сэмберг, Дэвид Стрэтэйрн, Идрис Эльба, Шакира, Патрик Варбертон, Кинта БрансонПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C965BFEB6DF01137890007F18CEA0FC5DC91EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850327   (1054365) от 28.01.2026
 
 Муфаса: Король Лев / Mufasa: The Lion King (2024) BDRip [H.264/1080p]
@@ -6,7 +113,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D1D422909CDD7BD7F74C6F128244B4136FE565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845752   (1050901) от 03.01.2026
-
-Феи: Потерянное сокровище / Tinker Bell and the Lost Treasure (2009) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений феи мастерицы Динь-Динь и ее друзей. Необходимо омолодить Дерево Фейской Пыльцы. Выбирают фею Динь – лучшего из мастеров, она должна изготовить Скипетр, важнейшая часть которого - Лунный Камень. В ходе работы над Скипетром Лунный Камень был разрушен. Динь-Динь очень хочет исправить ошибку. Она отправляется на север Нетляндии в поисках Волшебного (   Читать дальше...   )Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Клэй ХоллАктеры: Мэй Уитман, Джесси МакКартни, Джейн Хоррокс, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф Беннетт, Грэй ГриффинПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77161C1CE7FDE433090E73445890B83317C9227B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845754   (1050900) от 03.01.2026
-
-Феи: Волшебное спасение / Tinker Bell and the Great Fairy Rescue (2010) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Фея Динь-Динь встретила Лизи, маленькую девочку с твердой верой в волшебство. У Динь-Динь возникает привязанность к любопытной девочке, которой так нужен друг. Ради нее она идет на огромный риск, подвергая опасности свою жизнь и будущее всей страны Фей.Производство: США, Индия, Канада / Walt Disney Pictures, DisneyToon StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Брэдли РэймондАктеры: Мэй Уитман, Лорен Мот, Майкл Шин, Памела Адлон, Люси Лью, Рэйвен, Кристин Ченоуэт, Анджела Бэртис, Роб Полсен, Джефф БеннеттПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:13:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722AB1D672E8902B62C64356585D20FA446E20C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845756   (1050899) от 03.01.2026
-
-Феи: Тайна зимнего леса / Secret of the Wings (2012) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динь-Динь и ее подруги всегда боялись пересекать границу с Зимним лесом, ведь существует поверье, что там очень опасно. В один прекрасный день Динь-Динь, сгорая от любопытства, подходит вплотную к лесу, и ее крылья неожиданно начинают блестеть и переливаться. Завороженная Динь, желая узнать тайну волшебных крыльев, кутается в теплое пальто и отправляется в глубь (   Читать дальше...   )Производство: США, Индия, Великобритания / Walt Disney Pictures, Prana Studios, Disneytoon StudiosЖанр: мультфильм, фэнтези, семейныйРежиссер: Бобс Гэннауэй, Пегги ХолмсПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B39F9E538C79AE7CFDE0C9DDAC24A3AD25EA144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845758   (1050898) от 03.01.2026
-
-Феи: Загадка пиратского острова / The Pirate Fairy (2014) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050898.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о Зарине, смышленой и амбициозной фее, собирающей пыльцу растений. Все начинается с того, что она похищает волшебную пыльцу фей…Производство: США, Индия / Walt Disney Pictures, DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, детский, приключенияРежиссер: Пегги ХолмсАктеры: Кристина Хендрикс, Мэй Уитман, Том Хиддлстон, Памела Адлон, Анджела Бэртис, Меган Хилти, Люси Лью, Рэйвен, Джим Каммингс, Кевин Майкл РичардсонПеревод: дублированный (Невафильм)Язык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA01CD0D13BE8363405C8C6231634ABADD1D884
 ```
 
 https://mybot314.ru/tekegram_catalog/

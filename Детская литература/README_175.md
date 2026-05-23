@@ -1,112 +1,3 @@
-###  Публикация: 1344914   (168890) от 12.12.2019
-
-Алекс Фрайт, Луи Стоуэлл | Скандинавские мифы для детей (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный сборник самых захватывающих мифов Скандинавии. Тебя ждут удивительные встречи и отважные герои, способные уничтожить драконов. Бог грома и молний Тор, хитрый Локи, водные змеи, огненные демоны и снежные гиганты – отправляйся в настоящее путешествие по скандинавской мифологии.
-Как началась война богов и что такое Рагнарёк? На страницах этой книги ты узнаешь (   Читать дальше...   )Жанр: Познавательная литература для детей, Мифы, легенды, эпос, сказкиФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C7DC599F09573DFE3141D88C882B42F629BE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431186   (168860) от 12.12.2020
-
-Г. Джаладян, И. Котовская | Самые лучшие русские сказки (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168860.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли русские народные сказки для детей дошкольного возраста.
-
-Среди них любимые детьми "Двенадцать месяцев","Скатерть-самобранка", "Молодильные яблоки", "Елена Премудрая". Иллюстрации на каждой странице.Жанр: Детская литература/Сказки народов мираФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E72F65A6ECE33F18E117C5AAC824C5336627C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344996   (168380) от 13.12.2019
-
-М. Богданов и др. | Весной  [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов и стихотворений.
-Для детей младшего школьного возраста.Жанр: Детская проза, СтихиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB017FA2C8F8261C315F6D04D4049C847816F8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344992   (168372) от 13.12.2019
-
-Николай Березин | В срединном царстве или Жизнь одного китайченка (1915) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дети в зарубежных странах. Китай.
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F920E75B13EAC75AA890DEA7E5CC96115B099797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344995   (168362) от 13.12.2019
 
 Андрей Зарин | Скорбное детство (1913) [PDF]
@@ -115,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -251,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -278,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -304,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -330,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -356,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -383,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -409,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -436,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -462,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -514,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -540,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -646,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -672,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -683,6 +574,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08A742F001F36D05C7A2862F330EE4213895647F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345840   (165847) от 16.12.2019
+
+Черстин Лундберг Хан | Миндальное сердце (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+У Оскара есть всё: замечательные родители, лучший друг Хьюго и весёлая подруга Бие. Но сам Оскар страстно мечтает о собаке. В его сердце есть заветный уголок, словно специально отведённый для верного лохматого друга. Но мама ждёт ребёнка, и родители слушать не желают ни про каких собак. А тут ещё и Бие с Хьюго начинают вести себя крайне странно...
+Книга о том, как (   Читать дальше...   )Жанр: Проза для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171CFA6F38DA328666B2E2A3560A9CCB81D834F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345832   (165825) от 16.12.2019
+
+Черстин Лундберг Хан | Печенье счастья (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Десятилетний Оскар ‒ самый обычный парень, а вот его родители любят почудить. Папа работает простым гитарным мастером, но всегда мечтал о карьере оперного певца, поэтому во всех помещениях с хорошей акустикой он начинает… петь!
+А мама Оскара – талантливая парикмахер, которая обожает исполнять к месту и не к месту различные танцы, заставляя мальчика краснеть (   Читать дальше...   )Жанр: Проза для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F9D9E3AF4CA2EE93027E796869F70BE5338D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345731   (165552) от 16.12.2019
+
+Клиффорд Саймак | Миры Клиффорда Саймака [18 книг] (1992-1995) [FB2, PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В 1992 году издательство «Полярис» запустило серию «Миры Клиффорда Саймака. Полное собрание фантастических произведений в 16 томах». В свет вышел первый том, была объявлена подписка на остальные – однако следующие книги стали появляться только после годового перерыва. В 1994 году были изданы последние книги, но оказалось, что при составлении были допущены ошибки, (   Читать дальше...   )Жанр: Детская проза, Научная фантастикаПеревод: А. Козловский, Н. СосновскаяФормат: FB2, PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5CB64E869065B52DF8F88B8A33F6C5CDBBE02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516704   (165478) от 12.12.2021
+
+Анна Винтер | Приключения динозавров. Мурзозавр и Овирапторы. Гость из будущего. Книга 1 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если вам на голову свалился с неба наглый рыжий кот?
+А что делать, если такое случилось в Меловом периоде, а вы вообще – динозавр, и котов никогда не видели?! Не знаете? Вот и братья-овирапторы Ови и Раптор не знают.
+А Мурзик требует не только срочно отправить его назад, в будущее, но ещё молочка и чтобы погладили. (А где взять молоко, если ты вылупился (   Читать дальше...   )Жанр: Детская литература/ФантастикаФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4EBA6B59ACA76EFDC2917DDEE7837FE7DABA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

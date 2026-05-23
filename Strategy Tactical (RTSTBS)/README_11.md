@@ -1,3 +1,55 @@
+###  Публикация: 1253507   (378935) от 11.10.2018
+
+Space Hulk: Tactics (2018) [Ru/En] (28103) Repack xatab
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Space Hulk: Tactics – новый взгляд на старую добрую классику: адаптация настольной игры Space Hulk по мотивам вселенной Warhammer 40000. Космодесантники-терминаторы и смертоносные пришельцы генокрады схлестнутся в кровавой битве в глубинах космического скитальца – жуткого скопления астероидов, повреждённых звездолётов и космического мусора.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, Strategy (TBS, Tactics)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8DCC80B8E5AB32FDB58012ED1C02890AEFF578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088562   (376050) от 24.09.2019
+
+Eador: Masters of the Broken World / Эадор. Владыки миров (2013) [Ru/Multi] (1.8.3/dlc) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эадор - это вселенная, состоящая из множества осколков тверди, плавающих в Великом Ничто. Каждый из таких осколков – маленький мир, со своим ландшафтом и обитателями. За власть над осколками идёт постоянное соперничество между Владыками – бессмертными сущностями, которых простые смертные называют богами. Возьмите на себя роль одного из могущественных Владык и вершите (   Читать дальше...   )Тип издания: LicenseРазработчик: Unicorn Games Studio, Алексей Бокулев и Snowbird Game StudiosЖанр: Strategy (Turn-based), 3DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0C8F9BF1AF3B04405496214BF2ABF1055F2B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069701   (370759) от 05.11.2016
 
 Dungeon Rats (2016) [En] (1.0.1.0001) License HI2U
@@ -6,7 +58,7 @@ Dungeon Rats (2016) [En] (1.0.1.0001) License HI2U
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Commandos 3 - HD Remaster (2022) [Ru/Multi] (1.00.045) License FAiRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Panzer Strategy (2018) [Ru/En] (1.0) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Prodigy Tactics (2017) [Multi] (Update 6) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ World in Conflict Complete Edition [Ru/En] (Lossless Repack/1.0.1.1) 2009 l R.G.
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_362367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Numantia (2017) [Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Total War Saga: TROY (2020) [Ru/Multi] (1.2.0/dlc) License CPY
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Total War Saga: TROY (2020) [Ru/En] (1.2.0/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Invisible Inc. (2015) [Ru/En] (183969/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) SteamRip Let'sРlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Men of War: Assault Squad. Game of the Year Edition / В тылу врага 2: 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Anomaly 2 (2013) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +476,7 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.01) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +502,7 @@ Battlestations Дилогия [Ru/En] (RePack) 2007-2009 | R.G. R3PacK
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_354203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +580,7 @@ Syrian Warfare (2017) [En] (1.3.0.19/dlc) License CODEX [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +606,7 @@ Syrian Warfare (2017) [En] (1.1.0.7/dlc) License SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +632,7 @@ Syrian Warfare (2017) [Ru/En/De] (1.3.0.19/dlc) License PLAZA [Delux Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -606,7 +658,7 @@ Assault Squad 2: Men of War Origins (2016) [En] (3.260.1/dlc) License SKIDROW Go
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,58 +669,6 @@ Assault Squad 2: Men of War Origins, современное переиздани
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AF41EEBC264ED6F4901C474471F28FC1547F5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 719716   (338831) от 08.11.2015
-
-Battle Worlds: Kronos (2013) [Ru/Multi] (1.4.3/dlc) SteamRip Let'sРlay [Digital Deluxe Edition]
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle worlds: Kronos - участвуйте в напряженных военных кампаниях на планете Кронос, которая является галактическим полигоном для решения межпланетных споров. Выполняйте приказы генералов и командуйте наземными войсками непосредственно на поле боя. Продумывайте свои ходы и примените стратегические способности, чтобы выйти победителем в пошаговых битвах с превосходящими (   Читать дальше...   )Тип издания: SteamRipРазработчик: KING Art GamesЖанр: Strategy (Turn-based / Wargame) / IsometricЯзык озвучки: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4010C99F5880CC24E00410B572EB514240F424BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330653   (334290) от 13.10.2019
-
-John Wick Hex (2019) [Ru/Multi] (0.92) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334290.jpg" />
-</div>
-
-
-###  Подробнее
-
-John Wick Hex это динамичная экшен-стратегия, в которой нужно думать и действовать, как Джон Уик, профессиональный киллер из широко признанной кинофраншизы. В разработке игры активно участвовали творческие специалисты, работавшие над фильмами о Джоне Уике. John Wick Hex — это пошаговая тактическая стратегия с хореографическими схватками в формате видеоигры. В ней (   Читать дальше...   )Тип издания: LicenseРазработчик: Bithell GamesЖанр: Action, RPG, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF8724EF7750698F029659499FA528BAD95A36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

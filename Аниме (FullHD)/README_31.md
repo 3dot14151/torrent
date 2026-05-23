@@ -1,3 +1,55 @@
+###  Публикация: 1234118   (548718) от 27.07.2018
+
+Citrus | Цитрус [2018, TV, 12 эп.] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юзу Аихара — привлекательная девушка, которая переводится в новую старшую школу из-за повторной свадьбы матери. Юзу с нетерпением ждала этого дня, мечтая о сладкой любовной истории. Однако её фантазии оказались разрушены. Новая школа отличается своей консервативностью, а местный президент школьного совета — Мэй своей строгостью. Вдобавок ко всему Мэй, чья фамилия (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: повседневность, романтика, школа, юриРежиссер: Такахаси ТакэоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E25C5CDECC4346FAA79ACC88396B5EA7B351413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309948   (548653) от 22.06.2019
+
+Seikaisuru Kado | Seikai Suru Kado  | Kado: The Right Answer | Правильный ответ: «Кадо» [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь генерального директора по планированию политики явно отличается от жизни обыкновенного офисного клерка, у которого на работе происходит мало что интересного. Но такого поворота судьбы наш высокопоставленный чиновник Коджиро Шиндо вряд ли ожидал. Он отправлялся на самолёте в очередную деловую поездку, как вдруг в небе появился огромный куб и поглотил Коджиро (   Читать дальше...   )Производство: студия Toei Animation / 東映アニメーションЖанр: приключения, фантастикаРежиссер: Мурата КадзуяПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790B2C4120E8001F6289DD4471FD7B7A696222D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 693919   (548408) от 27.08.2013
 
 Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
@@ -6,7 +58,7 @@ Sacred Seven / Священная Семерка [2011, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Samurai Champloo / Самурай Чамплу [2004, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Mushishi Zoku Shou: Suzu no Shizuku / Мастер Муси: Капли коло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Bakuman. 2 / Бакуман [ТВ-2] [2011, TV, 25 из 25] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +218,7 @@ Grimms Notes The Animation | Заметки Гримм [2019, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +244,7 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +270,7 @@ Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободи�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +296,7 @@ Miss Monochrome The Animation 2 | Мисс Монохром 2 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +322,7 @@ Miss Monochrome The Animation 3 | Мисс Монохром 3 [2015, TV, 13] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +349,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +375,7 @@ Yakusoku no Nanaya Matsuri | Starlight Promises | Звездное паломн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +401,7 @@ Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Sho
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +427,7 @@ Peace Maker Kurogane | Железный миротворец (фильм) [2018,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +453,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые ведьмы OVA-2 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +479,7 @@ Shuumatsu no Harem | World's End Harem | Гарем конца света [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Gekijouban Psycho-Pass | Психо-паспорт (фильм) [2015, МV] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Drifters (2017) | Скитальцы [2017, OVA, 3 из 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +559,7 @@ Higashi no Eden Gekijoban II: Paradise Lost / Eden of The East the Movie II: Par
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +585,7 @@ Madan no Ou to Vanadis | Повелитель волшебных стрел и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Yuukoku no Moriarty (2022) | Патриотизм Мориарти OVA [2022, OV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Yuyushiki / Формула ЮЮ [2013, TV, 12 + 6 SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,60 +675,6 @@ Fantasy Bishoujo Juniku Ojisan to | Life with an Ordinary Guy who Reincarnated i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6F6AF935FEE92461C10A9A6871427F68A3AA87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564627   (499600) от 19.07.2022
-
-Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shimashita | Меня выгнали из гильдии героев [2021, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Хосино МакотоПеревод: Wakanim (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2838DAC988AA1C624DC18F196C2656AFFE7F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556465   (499586) от 19.07.2022
-
-Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Akatsuki | Записи о магии [ТВ-3] [2022, TV, 4 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории.
-
-Девочки-волшебницы сражаются в безвестной войне ради исполнения своих заветных желаний. Но Ироха Тамаки позабыла, что она загадала… — О чём же я просила, когда стала волшебницей?.. — задаётся она вопросом. В её жизни словно зияет огромная дыра. Она утратила нечто важное, дорогое… Но что? День за днём Ироха сражается, понятия не имея, зачем. (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: приключенияРежиссер: Анай ЁсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 4 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9891AF6697764C9D490E8A3E2E354878953C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

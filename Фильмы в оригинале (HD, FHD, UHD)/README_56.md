@@ -1,3 +1,81 @@
+###  Публикация: 1591379   (187014) от 18.11.2022
+
+Ламборгини: Человек-легенда / Lamborghini / Lamborghini: The Man Behind the Legend (2022) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+История самого дерзкого стартапа в мире суперкаров. Путь страсти, проб и ошибок Ферруччо Ламборгини и его превращения из сына фермера, мастерившего тракторы, в создателя легендарной машины, бросившего вызов самому Энцо Феррари.Производство: Италия, США / Ambi Pictures, Grindstone Entertainment Group, Iervolino & Lady Bacardi EntertainmentЖанр: биография, спорт, драмаРежиссер: Роберт МорескоАктеры: Фрэнк Грилло, Мира Сорвино, Гэбриел Бирн, Элиана Джонс, Ханна ван дер Вестхойзен, Джорджа Пальяччи, Джорджо Кантарини, Франческа Тиццано, Леонардо Чекки, Патрик БреннанПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (SDH)Продолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E415037468D8BB1960F46F9941180BB9EE256638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827420   (186089) от 21.10.2025
+
+Долгая прогулка / The Long Walk (2025) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В стране проводится ежегодное соревнование «Долгая прогулка», в котором участвуют пятьдесят молодых людей. Они должны идти со скоростью выше пяти километров в час, после трёх нарушений участник выбывает. Главный приз — крупная сумма и исполнение всех желаний до конца жизни.Производство: США / Lionsgate UK, Media Capital Technologies, Vertigo EntertainmentЖанр: триллер, драмаРежиссер: Фрэнсис ЛоуренсАктеры: Купер Хоффман, Дэвид Джонссон, Гарретт Вэрэйнг, Тат Ньюот, Чарли Пламмер, Бен Ван, Джордан Гонсалес, Джошуа Оджик, Марк Хэмилл, Роман Гриффин ДэвисПеревод: СубтитрыЯзык озвучки: АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F7A5C838D778EC9AA7D4BF2C37C45D2D27F27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664580   (185142) от 26.09.2023
+
+Гран туризмо / Gran Turismo (2023) WEB-DL [H.264/1080p] [EN / EN, FRA Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Заядлый геймер Янн Марденборо, несостоявшийся автогонщик Джейк Солтер и идейный маркетолог Дэнни Мур вместе рискнут всем, чтобы найти своё место в самом элитном виде спорта.Производство: США, Япония / Columbia Pictures, PlayStation Productions, 2.0 EntertainmentЖанр: боевик, драма, приключения, спортРежиссер: Нил БломкампАктеры: Арчи Мадекве, Орландо Блум, Дэвид Харбор, Никхил Пармар, Мэйв Куртье-Лилли, Дэниэл Пуиг, Джимон Хонсу, Джери Халлиуэлл, Даррен Барнет, Джоша СтрадовскиПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, full), французские, испанские и др.Продолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11B46D67ED04AA58D74C74F5C807E418EB821AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664461   (185103) от 26.09.2023
 
 The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
@@ -6,7 +84,7 @@ The Fanimatrix: Run Program (2003) WEBRip [H.264/720p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +136,7 @@ THE FANIMATRIX: Run Program (2003) WEBRip [H.264/1080p] [En]
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AB89097AF164A25F8EB84E44CC95E2D82F68E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598449   (162433) от 19.12.2022
-
-Адские псы / Hell Dogs (2022) WEB-DL [H.264/1080p] [Jap / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канэтака Сёго – офицер полиции, травмированный убийством любимого человека. С тех пор Канэтака думает только о мести. Он получает приказ работать под прикрытием в банде якудза, для этого полиция приказывает Канэтаке затеять драку с членом якудза Муроока Хидэки. Муроока Хидэки - сын приговоренного к смертной казни. У него болезнь, из-за которой он всегда голоден и (   Читать дальше...   )Производство: Япония / Toei, Sony PicturesЖанр: боевик, криминал, драмаРежиссер: Масато ХарадаАктеры: Дзюнъити Окада, Кэнтаро Сакагути, Маю Мацуока, Кадзуки Китамура, Синобу Отакэ, Мияви, Ёси Сако, Марико Акама, Сатоси Канада, Маи КирюПеревод: ОтсутствуетЯзык озвучки: японскийСубтитры: английские, русские, украинскиеПродолжительность: 02:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0552D2081E76DD99C608060AD4C334B31FBCB9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409521   (161803) от 19.12.2020
-
-Удар головой / Coup de tete (1979) BDRip [H.264/1080p] [FR / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Перэн (Игрушка/Le Jouet) возвращается! На сей раз его играет Девэр, и он не журналист, а футболист, но в остальном это такая же история от Вебера (здесь он сценарист). Смешная до слез, и грустная до смеха.
-История Франсуа, который никому не нужен только потому, что место «нужного» уже занято. Талант и трудолюбие… ничего не значат! И все только потому, что (   Читать дальше...   )Производство: Франция / Gaumont, SFPЖанр: Комедия, драма, спортРежиссер: Жан-Жак АнноАктеры: Патрик Девэр, Френс Дуньяк, Дороти Джемма, Морис Барье, Робер Дальбан, Марио Давид, Юбер Дешам, Дора Долль, Дирек, ФлёремПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (авторские — Веселый Гном), hardsubПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:487727FAF339D8B990AA0E2549081D503559B8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432839   (161665) от 19.12.2020
-
-Брешь / Breach (2020) WEB-DL [H.264/1080p-LQ] [ENG / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161665.jpg" />
-</div>
-
-
-###  Подробнее
-
-2242 год. Земля обречена. Среди 50 миллионов избранных, летящих к Новой планете, — молодая пара, у которой должен появиться ребенок. Второй пилот космического корабля Клэй Янг еще не знает, что ему предстоит сразиться с космическим злом, готовым превратить корабль в орудие смерти, и перед ним встанет нелегкий выбор: собственная жизнь или спасение человечества.Производство: Канада / 308 Ent, Almost Never Films Inc., 	Aloe EntertainmentЖанр: фантастика, боевикРежиссер: Джон СуитцАктеры: Коуди Кирсли, Брюс Уиллис, Рэйчел Николс, Кассандра Клементи, Джонни Месснер, Кори Лардж, Каллэн Мулвей, Тимоти В. Мерфи, Йохан Урб, Ральф МёллерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F64D355C5AD06E0984E714772FD1DE9CD6D9C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1658925   (2430) от 17.09.2025
+
+Sea of Stars (2023) [Ru/Multi] (2.0.58940/dlc) Repack dixen18
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Sea of Stars - динамичное ролевое приключение, разработанное в стилистике игр старой школы девяностых годов. Повелитель плоти восстал и теперь мир находится под угрозой уничтожения. Мы же узнаем историю двух детей Солнцестояния, обладающих особой силой и могуществом, которые и являются единственной надеждой людей на спасение. Твоими противниками станут жуткие потусторонние (   Читать дальше...   )Тип издания: RepackРазработчик: Sabotage StudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645D5042CDBF4E57FFEF8814DD7635FA08A3073B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818530   (2355) от 17.09.2025
+
+Cat Quest (2017) [Ru/Multi] (1.2.10.2) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Cat Quest - замуррчательная РПГ, чье действие происходит в мире, населенном котиками! Отправляйтесь в погоню за коварным Дракотом, похитившим вашу сестру! Исследуйте огромное королевство Фелингард, проходите подземелья и получайте достойную добычу. Выполняйте задания и заводите новых мохнатых друзей.Тип издания: LicenseРазработчик: The GentlebrosЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9350F22F508A0177B6ABBF2FFA05120243ECD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728184   (2120) от 19.09.2025
+
+Darkest Dungeon II (2) (2023) [Ru/Multi] (2.03.79909/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Darkest Dungeon 2 - сиквел готической ролевой игры, объединяющей в себе механики метроидвании и сурвайвал хоррора. Игровой процесс представляет собой динамичный экшен, в котором вы путешествуете по мрачному фэнтезийному миру и сражаетесь с многочисленными врагами. Каждый враг представляет серьезную угрозу. Все противники имеют уникальные паттерны атак и движений. (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Hook StudiosЖанр: Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815258   (2119) от 19.09.2025
 
 Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Edition]
@@ -6,7 +84,7 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack seleZen [Gold Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4/dlc) Repack Wanterlude [Gold
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Rogue Waters (2024) [Ru/Multi] (1.0.7.3265) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Last Epoch (2024) [Ru/Multi] (1.3.3.1/dlc) Repack Other s [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ FATE: Reawakened (2025) [Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Kingdom Come: Deliverance II (2025) [Ru/Multi] (1.4.1/dlc) Repack Let'sРlay [Go
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Star Valor (2022) [Ru/Multi] (2.2.2e/dlc) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ You Will Die Here Tonight (2023) [Multi] (1.1.3.1_b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Let'sРlay [Delux
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.02.3/dlc) Repack SE7EN [Deluxe Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.37/dlc) License GOG [Gol
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5A46070376DE0514002309B996957EE8BB3F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746038   (730) от 27.09.2025
-
-Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь на поиск приключений в Core Keeper, происходит погружение в атмосферу неизвестности, требующей исследования от лица археолога, который желает обнаружить как можно больше новых реликвий и древних артефактов. Очнувшись в незнакомой местности, напоминающей пещеру, протагонисту предстоит побираться сквозь разнообразных монстров и препятствия, мешающие продвижению, (   Читать дальше...   )Тип издания: LicenseРазработчик: PugstormЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Тайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Тайский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4660E277FB2B46330B2FAC4DA65A303E5C74DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662285   (725) от 27.09.2025
-
-Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0b/dlc) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tainted Grail: The Fall of Avalon – мрачная фэнтезийная ролевая игра от первого лица с открытым миром созданная по одноимённой популярной настолке, вдохновленная легендами о короле Артуре. Авалон умирает. Короля Артура давно нет, а Рыцари Круглого стола в смятении. Менгиры-хранители, единственные защитники людей в этой отдаленной стране, погружаются во тьму. Жители (   Читать дальше...   )Тип издания: LicenseРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795F9B2B37E78AF091D8E2624BADFA5B1208A257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773020   (680) от 27.09.2025
-
-Hellcard (2024) [Ru/Multi] (1.1.250807/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_680.jpg" />
-</div>
-
-
-###  Подробнее
-
-HELLCARD – это карточный «рогалик», поддерживающий режим как одиночной, так и совместной игры. Действие игры разворачивается в бумажных подземельях, уже знакомых вам по Book of Demons, но здесь геймплей ориентирован на создание собственной колоды и динамичные пошаговые карточные сражения. В отличие от других игр жанра, как, например, Slay the Spire, в HELLCARD особое (   Читать дальше...   )Тип издания: RepackРазработчик: Thing TrunkЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

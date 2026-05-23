@@ -1,3 +1,29 @@
+###  Публикация: 1642178   (196461) от 26.06.2023
+
+Warhammer 40,000: Dawn of War (2006) [En] (0.19) License GOG [Master Collection]
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Dawn of War – Soulstorm – третий по счету аддон для стратегии из вселенной мрачного будущего. В механике игры практически ничего не поменялось, по сравнению со вторым дополнением. Глобальная карта осталась на месте, всем противоборствующим сторонам добавили по одному летающему юниту. Главное нововведение – две новые расы с уникальными отрядами и (   Читать дальше...   )Тип издания: LicenseРазработчик: Relic EntertainmentЖанр: СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BD46115E34F7903C94228810A220A117BD4270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643986   (196131) от 04.07.2023
 
 Velaya - Geschichte einer Kriegerin / Велая - сказание о воительнице (2008) [Ru/De] (1.1) Mod
@@ -6,7 +32,7 @@ Velaya - Geschichte einer Kriegerin / Велая - сказание о воит�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Dirty Swamp / Грязное Болото (2022) [Ru/De] (3.0.18) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Gladiators: Galactic Circus Games / Гладиаторы (2002) [Ru] (1.0) L
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Styx: Master of Shadows (2014) [Ru/Multi] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +162,7 @@ M1 Tank Platoon II (1998) [En] (1.0.4.2) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +188,7 @@ European Air War (1998) [En] (1.20) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Fleet Defender: The F-14 Tomcat Simulation (1994) [En] (2.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195688.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +240,7 @@ B-17 Flying Fortress: The Mighty 8th / Б-17 Летающая крепость 2
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +266,7 @@ HIND: The Russian Combat Helicopter Simulation (1996) [En] (1.0) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +318,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +344,7 @@ Mythora / Изгнанник. Лезвие Смерти (2004) [Ru] (1.0) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +370,7 @@ SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +396,7 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +422,7 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +448,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +474,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +500,7 @@ Diablo: Hellfire - The Hell 2 (2019) [En] (1.2504) Mod
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +526,7 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +552,7 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +578,7 @@ Pilot Down: Behind Enemy Lines / Падение ястреба: В тылу вр
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +604,7 @@ Manhunt 2 (2009) [Ru/Multi] (1.0) Repack Necros
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,7 +630,7 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -630,7 +656,7 @@ Diablo II (2000) [En] (1.14d/dlc) Repack Necros
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -641,32 +667,6 @@ Diablo 2 — продолжение легендарного ролевого э
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827438   (186077) от 21.10.2025
-
-Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Геймплей состоит в том, что главному герою нужно выжить, выполняя задания от режиссёра и убивая встречающихся ему головорезов. В игре всего 20 эпизодов. Сама Manhunt представляет собой стелс-хоррор с элементами экшена от третьего лица. Игроку нужно управлять Кэшем и перемещаться по различным локациям, выполняя поставленные задачи, которые обычно сводятся к тому, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar NorthЖанр: Экшен, Стелс, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
 ```
 
 https://mybot314.ru/tekegram_catalog/

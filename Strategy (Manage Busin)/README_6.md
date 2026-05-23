@@ -1,3 +1,55 @@
+###  Публикация: 1251067   (419279) от 30.09.2018
+
+Jurassic World Evolution (2018) [Ru/En] (1.4.3.37142/dlc) Repack R.G. Механики
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мир юрского периода и постройте свой тематический парк. Возглавьте штаб на легендарном архипелаге Муэртес и верните к жизни чудесных, величественных и опасных динозавров. Стройте научные, развлекательные и защитные комплексы в изменчивом мире, где жизнь всегда найдет путь.Тип издания: RepackРазработчик: Frontier DevelopmentsЖанр: Strategy, Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A18E4AAAB518224EBBD9B9E2F84E478638FEE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325483   (411771) от 15.09.2019
+
+Sheltered (2016) [Ru/Multi] (1.9) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+За спиной раздается грохот закрываемого замка и на секунду вы оказываетесь в темноте и тишине, нарушаемой лишь хрипами вашего дыхания. Хорошо бы сделать так, чтобы больше не нужно было выходить на поверхность. Но нельзя. Хорошо бы было махнуть на все рукой. Но нельзя. Трудно, голодно. Страшно. Временами липкий страх почти заставляет вас забыть о том, ради чего вы (   Читать дальше...   )Тип издания: LicenseРазработчик: UnicubeЖанр: Strategy (Manage, Busin., Real-time)Язык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08240044E57B7BC803A64C045A633B157DD1056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 568020   (394618) от 31.10.2012
 
 Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус к славе [Ru] (P) 2012
@@ -6,7 +58,7 @@ Delicious: Emily's Taste of Fame / Объедение от Эмили: Вкус 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +86,7 @@ Virtual Villagers 3: The Secret City / Робинзоны. Затерянный 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13949/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ Port Royale 4 (2020) [Ru] (1.1.1.16203) Repack xatab [Extended Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ Banished (2014) [Ru/En] (1.0.7) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ Football Manager 2014 (2013) [Ru/Multi] (14.1.3) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362006.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +221,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.2/dlc) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +247,7 @@ Emergency 2013 [En/Ru] (RePack/2.0f) 2012 l R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +274,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.5.1/dlc) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +300,7 @@ Surviving Mars (2018) [Ru/Multi] (20191010/dlc) Repack xatab [Digital Deluxe Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +326,7 @@ Tropico 4 - Steam Special Edition [En/Multi5] (Steam-Rip/1.0.6.345/6 DLC) 2011 |
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +353,7 @@ Tropico 4 [En/Ru] (Repack/1.0.6.345/7 DLC) 2011 | z10yded
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +380,7 @@ RollerCoaster Tycoon World (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +406,7 @@ TransRoad: USA (2017) [Ru/Multi] (1.0.7) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +432,7 @@ Cityconomy: Service for your City (2015) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +458,7 @@ Surviving Mars (2018) [Ru/Multi] (237 425/dlc) License CODEX [Digital Deluxe Edi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +484,7 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +510,7 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +536,7 @@ Prison Architect (2015) [Ru/Multi] (2.0/dlc) SteamRip Let'sPlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +562,7 @@ Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +588,7 @@ Startopia (2001) [En] (1.00) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +614,7 @@ Blood Bowl : Legendary Edition (L) [Multi5\-] 2010 | RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +644,7 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +670,7 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,58 +681,6 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE3B3120F6589A61977C9F0734FC4C04029AA9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839005   (261631) от 26.11.2025
-
-Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возглавьте небольшую группу поселенцев и постройте город в диких землях на краю изведанного мира. Добывайте ресурсы, охотьтесь, рыбачьте и занимайтесь земледелием, чтобы обеспечить процветание и рост вашего поселения. Создавайте всё необходимое для своих поселенцев: товары для торговли, предметы первой необходимости и пропитание, одежду, а также доспехи и оружие. (   Читать дальше...   )Тип издания: RepackРазработчик: Crate EntertainmentЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192665FE4547DAD0E7ADE9B2A2AB12ACF35404D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838885   (261464) от 25.11.2025
-
-Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальный стратегический симулятор о политике и войне от создателя Plague Inc: Evolved. Найдите баланс между конкурирующими гражданскими и военными интересами и разберитесь с мятежниками, чтобы стабилизировать разрушенное войной государство. Попробуйте свои силы в различных условиях, от фермерских угодий «Шафрановых полей» до непроходимых лесов «Дальней степи». (   Читать дальше...   )Тип издания: RepackРазработчик: Ndemic CreationsЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D21EBF17C0D6A11BBB13DA27BC5775971B889B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

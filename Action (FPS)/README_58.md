@@ -1,3 +1,107 @@
+###  Публикация: 1807538   (7162) от 18.08.2025
+
+RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Unfinished Business - это новое самостоятельное приключение в RoboCop: Rogue City. ОмниБашня - их крепость, насилие - их язык. Сразитесь с элитными наёмниками на пути к вершине башни и восстановите закон в хаосе! После решительной победы RoboCop над бандами Детройта в этой отдельной сюжетной линии, действие которой разворачивается после событий RoboCop: Rogue City, (   Читать дальше...   )Тип издания: LicenseРазработчик: TeyonЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C593A3878DDB0C1B3EAC073CD69608341351FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682780   (7158) от 18.08.2025
+
+Blood West (2023) [Ru/Multi] (4.5.1 rc1/dlc) License GOG
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Blood West – это максимально захватывающий экшн, в котором все демоны Ада вырвались наружу. Ресурсы пользователя будут сильно ограничены, поэтому их стоит максимально экономить и как можно чаще пользоваться приемами стелса, в случае если бой необязателен и необходимо просто проникнуть на территорию. Тратить патроны попусту также не рекомендуется, так как на то, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: HyperstrangeЖанр: Шутеры, Экшны, ХоррорыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8696F5E4B27854770AD4C6C725EF0427F88352A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813204   (6962) от 19.08.2025
+
+Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+3D-платформер с захватывающим сюжетом! Итак, элиты решили развлечь себя и устроили смертельное шоу. Суть этого состязания – участники, добровольно подписавшие контракт, оказываются в 850-метровой башне, которая закопана глубоко под землей и находится в неизвестном месте. Хардкорный режим – без контрольных точек и с таймером спидрана Обычный режим – частые контрольные (   Читать дальше...   )Тип издания: LicenseРазработчик: Vanja AleksićЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33321804ADC0E8AE7AC65AA4B0CE840122F3591F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812517   (6726) от 21.08.2025
+
+Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Овладев доселе неизвестными супертехнологиями, нацистская Германия смогла переломить ход войны и поставить на колени даже самые могущественные нации. Герой войны Б.Дж. Бласковиц провел 14 лет в коме, а очнувшись, обнаружил, что на дворе 1960 год, Вторая мировая война проиграна, и нацисты правят миром железной рукой. Вам предстоит стать Бласковицем - героем проигранной (   Читать дальше...   )Тип издания: RepackРазработчик: MachineGamesЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0743790CC2B40D54940CF42624923A65B35D8A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813704   (6704) от 21.08.2025
 
 Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
@@ -6,7 +110,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ PowerSlave Exhumed (2022) [Multi] (1.0.1659) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Wolfenstein: The New Order, The Old Blood, The New Colossus, Youngblood (2014-20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769D14A8ADB29ACA4463BC970309E23827A73206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811772   (3422) от 11.09.2025
-
-Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.19) Repack Let'sРlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deadzone: Rogue - это roguelite-шутер от первого лица, действие которого разворачивается в космосе. Прорывайтесь сквозь орды враждебных машин, комбинируйте мощные улучшения и элементы, чтобы создать свой билд, и становитесь сильнее с каждым забегом - в одиночку или в кооперативе.Тип издания: RepackРазработчик: Prophecy GamesЖанр: ЭкшеныЯзык озвучки: Английский, Японский, Китайский (традиционный, упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F69992527BC297B648D6D1AD89BD7B84674826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813003   (3390) от 11.09.2025
-
-The House of the Dead 2: Remake (2025) [Multi] (20250903) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3390.jpg" />
-</div>
-
-
-###  Подробнее
-
-The House of the Dead 2: Remake - это обновленная версия второй части легендарной серии. Игра предлагает современную графику, ремастированный саундтрек (с возможностью включить классическую музыку) и геймплей, верный оригиналу. Игрокам предстоит взять под контроль агентов Джеймса Тейлора и Гэри Стюарта, которые будут прорываться сквозь полчища мертвецов с целью остановить (   Читать дальше...   )Тип издания: LicenseРазработчик: MegaPixel Studio S. A.Жанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672A2924F34F81A1CA4B6D7445F3D87EF0AE07CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757197   (3105) от 13.09.2025
-
-Brigand: Oaxaca (2017) [En] (17.0/dlc) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brigand: Oaxaca - это хардкорный гибрид RPG и FPS, действие которой происходит в постапокалиптической Мексике. История перенесет вас с банановой плантации в темные токсичные пещеры, в разросшийся город Почутла, на затопленное побережье, в смертоносные джунгли, кишащие демонами, и многое другое. В игре есть 14 уникальных навыков, которые можно улучшить с помощью очков (   Читать дальше...   )Тип издания: LicenseРазработчик: Brian Lancaster, Laughing Coyote SoftwareЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BA985716B6EB69678A139004386C037DD39EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798096   (2282) от 18.09.2025
-
-S.T.A.L.K.E.R.: Call of Prypiat (2010) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2282.jpg" />
-</div>
-
-
-###  Подробнее
-
-S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K.E.R.: Тень Чернобыля. В роли майора Александра Дегтярева вы должны расследовать падение правительственных вертолетов на территории Зоны и разобраться в том, что там происходит. Военная экспедиция к Центру Зоны исчезает при загадочных обстоятельствах.Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69943F308EB968677BC1853D94BDDB548C409CE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

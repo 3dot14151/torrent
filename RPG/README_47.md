@@ -1,3 +1,81 @@
+###  Публикация: 1694798   (120896) от 26.01.2024
+
+Heroes of Eternal Quest (2024) [Multi] (1.0) Scene Skidrow
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Heroes of Eternal Quest – окунитесь с головой в настоящее бесконечное приключение, приправленное множеством испытаний. Собирайте полезные ресурсы, займитесь строительством зданий, откройте немало таинственных карт и встаньте во главе группы героев. Отправьтесь в неизведанное и покорите Башню Осколков, чтобы освободиться от своей незавидной судьбы. Никто и не ожидал (   Читать дальше...   )Тип издания: SceneРазработчик: Drakkar Game StudioЖанр: Ролевые игры, СтратегииЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Китайский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CC0D02702248824035332CFCCF14F5D7BC6C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541487   (120582) от 28.01.2024
+
+Gloomhaven (2021) [Multi] (1.1.8307.0/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Gloomhaven – тактическая пошаговая РПГ с элементами рогалика, основанная на знаменитой настольной игре, в которой Вас ждёт путешествие по ужасающим случайно-генерируемым подземельям, а также сражения с не менее жуткими могущественными противниками. Вам предстоит возглавить команду наемников и отправиться покорять мрачный и зловещий мир. Грамотно подбирайте членов (   Читать дальше...   )Тип издания: LicenseРазработчик: Flaming Fowl StudiosЖанр: Ролевая игра, Пошаговая, ТактическаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE7BFB9B61586AF0B8804EAEEF260CA253EBD77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695540   (120375) от 29.01.2024
+
+Boyfriend Dungeon (2021) [Ru/Multi] (1.3.7294S/dlc) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Boyfriend Dungeon - динамичный рогалик с элементами симулятора. Исследуйте многочисленные уровни в изометрической перспективе. Сражайтесь с огромным количеством монстров, повышая уровень своих надежных клинков. Кстати, вы можете крутить романсы со своими мечами. Не переживайте, не в прямом смысле. Дело в том, что клинки могут трансформироваться в эффектных красоток!Тип издания: SceneРазработчик: Kitfox GamesЖанр: Ролевые игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2527DC84C58077466DAB852B6840631F5B2A8E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695415   (120347) от 29.01.2024
 
 Star Explorers (2018) [En] (5.4.4a) License GOG
@@ -6,7 +84,7 @@ Star Explorers (2018) [En] (5.4.4a) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Cris Tales (2021) [Ru/Multi] (1.0.7) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Lunacid (2023) [En] (1.2.1) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Elder Scrolls V: Skyrim (2021) [Ru/En] (1.6.1170.0.8/dlc) Repack Other s [An
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Floating Life 2 (2023) [Multi] (1.0.2.58) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Long Gone Days (2023) [Ru/Multi] (20240130) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (1.04.59290/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Heroes of Eternal Quest (2024) [Multi] (1.0.16a) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Legendary Hoplite (2024) [Ru/Multi] (1.0.2) Repack FitGirl [Support Ithaca Bundl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ River Town Factory (2024) [Multi] (1.0.1.0207.1) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack DjDI [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Ocean's Heart (2021) [Ru/Multi] (1.0.3(5)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Realms of Arkania: Blade of Destiny (Remake) (2013) [Multi] (1.36) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ The Inquisitor (2024) [Ru/Multi] (13389755/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Lies of P (2023) [Ru/Multi] (1.5.0.0/dlc) Repack dixen18 [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116808.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D464E0F7EDE73785FD9FFFE2DAD25040F0C3FAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701345   (116621) от 20.02.2024
-
-Trinity Fusion (2023) [Multi] (1.1) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trinity Fusion – это выполненный в 2.5D научно-фантастический экшен-рогалик с видом сбоку и элементами платформера. Локации в нём генерируются процедурно. Причем карты создаются из заранее сделанных комнат, коих тут около сотни вариаций. Кроме обычных забегов можно сражаться на арене и проходить отдельные испытания. В игре можно бегать, прыгать, драться вблизи, атаковать (   Читать дальше...   )Тип издания: RepackРазработчик: Angry Mob GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FEC62C66B766BA4D099CF5D3AA58E5768BD3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701504   (116464) от 21.02.2024
-
-Banishers: Ghosts of New Eden (2024) [Ru/Multi] (1.3.1.0/dlc) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Banishers: Ghosts of New Eden - это увлекательная Action-RPG, которая отправит вас в захватывающее путешествие по мистическому миру, полному сверхъестественных существ и древних тайн. В этой игре вы возьмете на себя роли Антеи Дуарте и Реда Мак Рэйта, двух Банишеров, которые намерены защитить живых от страшной угрозы призраков и привидений. Действие происходит в (   Читать дальше...   )Тип издания: RepackРазработчик: DON'T NODЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15163AD1096912CF4420197429722925B253895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536398   (116460) от 21.02.2024
-
-ELEX II (2022) [Ru/Multi] (1.05c) Repack Decepticon
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116460.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELEX II – продолжение ELEX, винтажной ролевой игры с открытым миром от знаменитой студии Piranha Bytes, разработчиков Gothic и Risen. В ней вам предстоит вернуться в постапокалиптический мир Магалана – благодаря реактивному ранцу вам откроется небывалая свобода в исследовании его многоликих просторов.Тип издания: RepackРазработчик: Piranha BytesЖанр: Экшны, Ролевая игра, ФантастикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Польский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E132C45968AD34400421D344DD13ACB8561C234
 ```
 
 https://mybot314.ru/tekegram_catalog/

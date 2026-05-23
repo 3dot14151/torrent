@@ -1,3 +1,206 @@
+###  Публикация: 1470592   (1015479) от 18.05.2021
+
+VA - We Love Yoga - 2021 Morning Blessings [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Ambiance - Deep Thinking (3:28)
+02. Serenity Calls - Morning of Clouds (3:15)
+03. Serenity Calls - Arabic Nights (3:17)
+04. AlFa RaYn - Deep Concern (1:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC050CAB0E9FDF44D01F55705DA54ED92A654351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470761   (1015292) от 19.05.2021
+
+Shamanic Channel - Collection (2021) 4альбома [MP3|320 Kbps] <Native American, New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Shamanism
+02. Sacred Ritual
+03. Into the Woods, Rain Sounds
+04. Native Relaxation(   Читать дальше...   )Жанр: Native American, New age, MeditativeПродолжительность: 03:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3E11EB79B32BC1F4972E852F88A4AD1F7578C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 320176   (1014887) от 21.05.2021
+
+Mirage - Classic Guitar Mood (1995) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Love Theme from Romeo & Juliet 	(03:23)
+02. Your Song 				(04:07)
+03. Bamboleo 				(03:34)
+04. Rodrigo's Guitar Concerto 		(03:10)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50338FF96845D3F5A638B2715F559766F08973A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583407   (1014260) от 25.05.2021
+
+Nightwish - Imaginaerum (The Score) (2012) Unofficial Release [APE|Lossless|image + .cue] <Neo - Classic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Find Your Story (2:31)
+02. Orphanage Airlines (4:34)
+03. Undertow (5:18)
+04. Spying In The Doorway (3:04)(   Читать дальше...   )Жанр: Neo - ClassicПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A263F51950024A4BA3CB42083A1F2F562AECB39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472983   (1014026) от 27.05.2021
+
+Elbosco - Angelis (1995) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1 Nirvana 4:51
+2 A Kind Of Birds 4:18
+3 Nebo 4:43
+4 Spend A Happy Day 4:39(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26D2CDB7DDB8FD0C4B359DD1F1B4A3D8FB827B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472923   (1014013) от 27.05.2021
+
+Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] <Celtic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1 Northern Star 4:03
+2 Come And Lay Down 6:10
+3 At Home 4:36
+4 Fare Thee Well 6:21(   Читать дальше...   )Жанр: Celtic, New AgeПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473053   (1013858) от 28.05.2021
+
+Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1 Into Blue 3:44
+2 The Mountain Side 3:52
+3 Dungannon Dew 2:56
+4 The Green Side 4:24(   Читать дальше...   )Жанр: New Age, Celtic, FolkПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473523   (1013522) от 30.05.2021
 
 Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
@@ -6,7 +209,7 @@ Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Ben Leinbach - The Spirit of Yoga (2003) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Roses Never Fade - Roses Never Fade (2009) [FLAC|Lossless|image + .cue] <Folk Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|trac
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +354,7 @@ The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country R
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cu
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Peter Kater - Rapture (2021) [FLAC|Lossless|WEB-DL|tracks] <New age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Piano Peace - Calm Piano & Ocean Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Johnny Whitehorse - Totemic Flute Chants (2007) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +499,7 @@ David Arkenstone - Celtic Chillout Beats (2021) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Jivan Gasparian \Дживан Гаспарян - 33 Masterpieces (2010) 3CD Limi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +585,7 @@ Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +614,7 @@ Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -440,7 +643,7 @@ INXS - WRATH (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop Rock, N
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -469,7 +672,7 @@ INXS - ORIGINAL SIN (2021) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Pop 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -498,7 +701,7 @@ David Wilson - Dreams Of Hollywood Nights (1999) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,209 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D10EA6348041E2E0E49B65D343EB4EA4843ED81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464013   (1006398) от 17.07.2021
-
-Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar |Продолжительность: 04:48:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977149   (1006320) от 17.07.2021
-
-Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3 CD [FLAC|Lossless|tracks+.cue] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Признаюсь честно, вокруг этого боксета складывалась определенно детективная история. Мне очень нравятся поп и рок вещи в современной фортепианной и оркестровой интерпретации. Увидев в последней поездке этот сборник, конечно же не прошёл мимо. Но поставив его на свою технику не мог отделаться от мысли, что я это уже слышал. Положение усугублялось тем, что мелким шрифтом (   Читать дальше...   )CD-1:
-01. Ballade Pour Adeline  (2:34)
-02. Candle In The Wind  (5:10)
-03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A274A2BFD1DA45823B8EBE363D5751A7E350A33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 422630   (1006219) от 18.07.2021
-
-Хор Турецкого - Такая Великая любовь... (2004) [FLAC|Lossless|tracks] <Vocals, Art>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une vie d'amour (3:44)
-02. Композиция 'Money' (4:08)
-03. Попурри "СССР" (5:38)
-04. Une amore cosi grande (4:08)(   Читать дальше...   )Жанр: Vocals, ArtПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D208ED3EBC1E51B5AC971022F1F6840136F74B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484500   (1005931) от 21.07.2021
-
-Jim Brickman - Bedtime Story Volumes Two & Three (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Touch of Dreams (08:55)
-02. Chamomile (08:39)
-03. Bedtime Breeze (07:56)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18295C171323EB7044A2C31AE99150EA3D66B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485618   (1005257) от 26.07.2021
-
-Нейромонах Феофан - Акустика, Ч.2 (2021) [MP3|320 Kbps] <Folk, Acoustic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пасынок Правил (Акустическая Версия)
-2. Замиренье (Акустическая Версия)
-3. Дрова (Акустическая Версия)
-4. Везде Пляшу (Акустическая Версия)(   Читать дальше...   )Жанр: Folk, AcousticПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AA388DE73D693D6409128DF5BB9B6ED73C40B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485551   (1005204) от 27.07.2021
-
-Gheorghe Zamfir - Pan Flute Improvisations (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gheorghe Zamfir - румынский музыкант, играющий на модернизированной версии румынского национального инструмента, пан-флейте (най), которая состоит из 20-30 трубок, с расширенным звуковым диапазоном и большим количеством тонов. Gheorghe Zamfir стал известен широкой публикев 1960-х, в частности, благодаря швейцарскому музыканту Marcel Cellier, исследователю румынской (   Читать дальше...   )1. Domasnea (5:14)
-2. Jebel (4:41)
-3. Arad (6:54)
-4. Oltera (6:46)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349436   (1004436) от 01.01.2020
-
-VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somos del Barrio – Con Calma (Reggaeton Version)
-02. Grupo Extra – A Traves del Vaso (Bachata Version)
-03. Charanga Habanera – Traicionera
-04. Somos del Barrio – Loco Contigo (Reggaeton Version)(   Читать дальше...   )Жанр: Latin, Reggaeton, Salsa, BaciataПродолжительность: 04:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

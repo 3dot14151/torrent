@@ -1,3 +1,107 @@
+###  Публикация: 993593   (894997) от 05.03.2016
+
+Backstreets of the Mind (2016) [Ru/En] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вы путешествуете в прошлое, пытаясь помочь главному герою, неудачнику по жизни, исправить свою судьбу. Игра включает в себя сцены с перемоткой времени, где вам нужно будет использовать разные предметы, чтобы попробовать изменить будущее. Бывалым игрокам доставят удовольствие мини-игры, стилизованные под старинные игровые автоматы. Оригинальной особенностью геймплея (   Читать дальше...   )Тип издания: LicenseРазработчик: SiBearЖанр: Я ищу, Квест, Приключение, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8024DBFEABDA46D973E6BA61FC5192468D63B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101663   (893871) от 07.02.2017
+
+Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.20280 Hotfix) SteamRip Let'sPlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Началась война. Во время авианалета 16-летний Ноа со своей младшей сестрой Рени укрылись в бункере. Здесь они нашли не только спасение от бомб, но и мир-перекресток между жизнью и смертью: Безмолвный мир. Сестра Ноа заблудилась, и мальчику пришлось отправиться на ее поиски в этой небезопасной, как оказалось, идиллии.Тип издания: SteamRipРазработчик: Daedalic EntertainmentЖанр: Adventure, 3DЯзык озвучки: Английский, немецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768D52A64F9484640189B79FAA61E440AC94BAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994092   (890707) от 07.03.2016
+
+Her Story (2015) [Ru/En] (1.0) Repack MasterDarkness
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Her Story - уникальная нелинейная игра, дающая возможность почувствовать себя настоящим детективом. Перед нами компьютер, содержащий показания женщины, муж которой находится в розыске в связи с пропажей. У Her Story весьма необычная подача, все присутствующие видеопоказания - реальные видеозаписи живого человека, правда, запечатлёна на них актриса.Тип издания: RepackРазработчик: Sam BarlowЖанр: Adventure (Visual novel)Язык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A372A3A1C30CA158781E21A6CDF5FB5EC2CE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474326   (890174) от 06.09.2021
+
+Stonefly (2021) [Multi] (1.1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Обуздайте ветер и парите среди дикой природы в Stonefly. Гениальная, но наивная изобретательница Анника Стоунфлай должна отыскать утерянную реликвию её семьи, используя смекалку и стратегическое мышление. Летайте среди флоры и фауны в мире, полном голодных жуков, приключений и запоминающихся персонажей. Постепенно Вы узнаете трогательную историю о самопознании, семье, (   Читать дальше...   )Тип издания: LicenseРазработчик: Flight School StudioЖанр: Action, Exploration, RPGЯзык субтитров: Английский, Французский, Немецкий, ИспанскийЯзык интерфейса: Английский, Французский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0307C31D3317CBB3E6E98624D594FBCC88860C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994664   (889069) от 08.03.2016
 
 Find Out (2016) [En] (1.0) Repack Mr.Weegley
@@ -6,7 +110,7 @@ Find Out (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Aura 2: Sacred Rings / Аура 2: Кольца судьбы [Ru] (P) 2007
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Medium (2021) [Ru/Multi] (1.0.184) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Leisure Suit Larry 6: Shape Up or Slip Out (1994) [En] (1.000.000) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Moons of Madness (2019) [Ru/Multi] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6/dlc) Repack Other s [Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ The Rewinder (2021) [Multi] (1.26.5) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ The Artful Escape (2021) [Ru/Multi] (7272069) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ The Guest (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Guest (2016) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Blues and Bullets - Episode 2 (2016) [En] (1.0) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Figment (2017) [Ru/Multi] (1.4.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Last Will (2016) [En] (1.0) License HI2U [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Leisure Suit Larry: Reloaded (2013) [Ru/Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Old City: Leviathan (2014) [Ru/En] (28.02.2016) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Dreamfall Chapters (2014) [Ru/Multi] (5.4.1.1) SteamRip Let'sPlay [Special Editi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Mosaic (2019) [Ru/Multi] (1.1.9.122/dlc) License GOG [1% Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Dear Esther: Landmark Edition (2017) [Ru/Multi] (1.0.0.9712) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Dear Esther: Landmark Edition - улучшенная версии популяр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC20C9DF4DDB6EE9707829A533B8BACFADFFF706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105153   (877549) от 16.02.2017
-
-The Book of Unwritten Tales 2 (2015) [Multi] (4.6.1.182341/dlc) License GOG [Almanac Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже первые встречи со старыми героями настраивают на знакомый ироничный лад. Принцесса Иво, которую против ее воли хотят выдать замуж, обнаруживает, что она… беременна. Причем, судя по всему, от святого духа - ведь Иво толком даже не знает, что такое секс, и консультируется по этому поводу то с птичкой, то с говорящим справочником по эльфийской медицине. Над Вильбуром, (   Читать дальше...   )Тип издания: LicenseРазработчик: KING ArtЖанр: AdventureЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C518E28A53036C3A2083B548AD6EFBA29867C546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105086   (877535) от 16.02.2017
-
-Drizzlepath: Glass (2017) [Ru/Multi] (1.0.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш муж умер, и вы хотите навестить его могилу. В одной деревне есть заброшенный дом, и в этом доме вы найдёте красную розу. Вы не хотите идти на могилу мужа с пустыми руками. В Drizzlepath: Glass в некоторых местах игры есть как элементы головоломок в виде скрытых объектов, так и элементы хоррора.Тип издания: LicenseРазработчик: Tonguç BodurЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72469F599D2F01E2EB8CACD48E7DCC115A2119A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105672   (876271) от 17.02.2017
-
-The Dagger of Amon Ra (1992) [En] (1.1) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра является продолжением детективных приключений Лоры Боу, но, в отличие от своей предшественницы - The Colonel's Bequest - эта игра была создана не Робертой Уильямс, а геймдизайнером Брюсом Бэлфором. Будучи выполненной на движке Sierra’s Creative Interpreter (SCI1.1), игра The Dagger of Amon Ra представляет собой квест с 256-цветной графикой и интерфейсом point-and-click.Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Приключение, Квест, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AAA8874BBA07247BA3512E768C5BAB500AF686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105686   (876213) от 17.02.2017
-
-The Colonel's Bequest (1989) [En] (1.000.046) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет игры разворачивается в 1925 году. Лора Боу - дочь детектива, студентка Тулейнского университета и подающая большие надежды начинающая журналистка. Подруга главной героини пригласила её на выходные в дедушкино загородное поместье, расположенное в болотах Флориды. По приезде подруг выяснилось, что именно в эти выходные богатый дед запланировал встречу всех возможных (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Приключение, Квест, ДетективЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DB74000D571D910D5E950267307DC9251E79FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

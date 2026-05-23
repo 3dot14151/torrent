@@ -1,3 +1,107 @@
+###  Публикация: 1484229   (1006238) от 18.07.2021
+
+Paper Beast (2020) [Ru/Multi] (1.0) License GOG [Folded Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Приключенческая и исследовательская игра со сказочной и удивительной вселенной. В глубинах бездны всемирной паутины расцвела новая жизнь. Вы - первый человек, который оказался в этой таинственной экосистеме. Странная сила, очевидно, влияет на её равновесие. Объедините усилия с интригующими и очаровательными существами, чтобы разгадать загадки Paper Beast.Тип издания: LicenseРазработчик: Pixel ReefЖанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык интерфейса: Русский, Английский, Испанский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D2BE4781D30DAACDDA7244C46E99391CEE4AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485006   (1005650) от 23.07.2021
+
+Last Stop (2021) [Ru/Multi] (7027314) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Last Stop – приключенческая игра от третьего лица, действие которой происходит в наши дни в Лондоне. Написанная и разработанная студией Variable State, создателями удостоенной наград игры Virginia, игра Last Stop рассказывает три взаимосвязанные истории трёх главных героев, которыми управляет игрок.Тип издания: LicenseРазработчик: Variable StateЖанр: Adventure, Sci-Fi, Mystery, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB580B8B163BD48733EDC3BFEF95B595915ECBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485168   (1005539) от 24.07.2021
+
+Summer of '58 (2021) [Ru/En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Summer of '58 — это психологический триллер от первого лица. Действие игры разворачивается в заброшенном здании советского лагеря. Пионерский лагерь «Юность» обычное место, где родители оставляли детей на лето из года в год. Пока в один день 1958 года не случился кошмар, который оказался намного страшнее рассказов у костра. На этом месте были убиты проживающие и (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BDC640CCA76B8FC3CC2FCAC33DE0F2DEE5E25A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485777   (1005034) от 28.07.2021
+
+Creepy Tale 2 (2021) [Ru/Multi] (1.1.7) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Creepy Tale 2 — это жуткая мультяшная головоломка, вдохновлённая древними европейскими сказками. Одержите верх над своими страхами, разгадайте множество увлекательных загадок и спасите свою семью в этом насыщенном событиями приключении! Настали темные времена. Таинственное зло наводит ужас на королевство, похищая детей и жестоко расправляясь с беззащитными жителями (   Читать дальше...   )Тип издания: RepackРазработчик: Creepy BrothersЖанр: Adventure (Horror), Puzzle, 2DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C9B4601063831416055DF2ABE1CBE4B31BD4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486169   (1004806) от 30.07.2021
 
 Omno (2021) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +110,7 @@ Omno (2021) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Horror Tales: The Wine (2021) [Ru/Multi] (Build 6722952) License Fairlight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ HORROR TALES: The Wine (2021) [Ru/Multi] (Build 6722952) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Night Delivery (2021) [Multi] (1.10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Submerged (2015) [Ru/Multi] (1.1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ A Bird Story (2014) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Svoboda 1945: Liberation (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.4.50233) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18208471) Repack Other
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Great Ace Attorney Chronicles (2021) [En] (Build 6837188) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Outer Wilds (2019) [Ru/Multi] (1.0.4.240) Repack Mr_Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.2.0267/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Almost My Floor (2021) [Ru/En] (1.0.1) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Lone Survivor: The Director's Cut (2012) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Mythic Ocean (2020) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Foreclosed (2021) [Ru/Multi] (7174262) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8236/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,115 +667,6 @@ Demon's Residence (2021) [En] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66D7CD5C60A774E538BCB923A2F2CE13475F6F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599898   (998450) от 09.01.2013
-
-Botanicula [Ru/En] (Repack/1.0.0.7) 2012 | Fenixx
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Причудливое творение от чешской студии Amanita Design, подарившей поклонникам жанра самобытные и необычайно красивые квесты «Саморост» и «Машинариум».
-В двух словах, Botanicula — это история о последнем семени умирающего дерева, изнуренного нашествием злобных паразитов. А если подробно, то это интереснейшие исследования, множество занимательных забавных головоломок, незабываемые знакомства со странными (симпатичными и не очень) существами, чарующая музыка… И все это — на одном необыкновенном огромном растении!Встречи с вами ждут пять обаятельных главных героев. В их приятной компании вы совершите путешествие с вершины древа к его корням, по дороге заглянете в пчелиный улей, посетите муравьиное гнездо, побываете в мрачном дупле и других таинственных местах. Особых сложностей по пути как будто не предвидится, однако сам он будет длинным, очень-очень длинным — шутка ли, более 150 игровых сцен!Будь вы хардкорный геймер или отчаянная домохозяйка, задорный подросток или убеленный сединами почтенный профессор биологии — просто расслабьтесь и получайте удовольствие от игры. Поверьте — у вас получится! (   Читать дальше...   )Тип издания: RepackРазработчик: Amanita DesignЖанр: Adventure / Point-and-click / PuzzleЯзык озвучки: ВымышленныйЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6028970DEBD5C0611A06336CA1BA3B0C7B1D31EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603228   (997112) от 14.01.2013
-
-Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Audioslave
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dracula: Origin раскрывает темные начала проклятия Дракулы. Однажды ярый сторонник Христианства, Дракула, теряет свою веру в Бога, когда после свадьбы его покидает единственная настоящая любовь. Дракула заключает договор с Принцем Тьмы и становится вампиром. Со временем, Дракула узнает о существовании манускрипта, который, как утверждают, описывает ритуал, который возвращает проклятые души из загробной жизни.
-В Dracula: Origin, игрок берет на себя роль знаменитого профессора Ван Хельсинга, чья жизненная цель заключается в уничтожении Дракулы. Ван Хельсинг должен остановить вампира до того, как он найдет манускрипт. Богатое приключение, в ходе которого он побывает в Лондоне, Египте, Австрии и через Карпаты попадет прямо в ужасающий дом Темного Принца.(   Читать дальше...   )Тип издания: RePackЖанр: Adventure (Puzzle)Язык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92971EF4A047801B395CC6B2479D0A6D5DDE2573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603854   (996600) от 16.01.2013
-
-Dracula. Origin / Охотник на Дракулу [Ru] (Repack) 2008 | Fenixx
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dracula: Origin раскрывает темные начала проклятия Дракулы. Однажды ярый сторонник Христианства, Дракула, теряет свою веру в Бога, когда после свадьбы его покидает единственная настоящая любовь. Дракула заключает договор с Принцем Тьмы и становится вампиром. Со временем, Дракула узнает о существовании манускрипта, который, как утверждают, описывает ритуал, который возвращает проклятые души из загробной жизни.
-В Dracula: Origin, игрок берет на себя роль знаменитого профессора Ван Хельсинга, чья жизненная цель заключается в уничтожении Дракулы. Ван Хельсинг должен остановить вампира до того, как он найдет манускрипт. Богатое приключение, в ходе которого он побывает в Лондоне, Египте, Австрии и через Карпаты попадет прямо в ужасающий дом Темного Принца.(   Читать дальше...   )Тип издания: Repack (Лицензии)Жанр: Adventure (Puzzle)Язык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737BFA7A22A84D1891EACB118C65D9B4BAF47365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603748   (996571) от 16.01.2013
-
-Sherlock Holmes vs. Jack the Ripper / Шерлок Холмс против Джека Потрошителя [En/Ru/Multi9] (L) 2009 | PROPHET
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Череда зверских убийств, захлестнувшая в 1888 году лондонский район Уайт-Чепел (Whitechapel), благодаря живому участию прессы в одночасье оказалась на слуху не только жителей Ист-Энда, но и далеко за пределами Британских островов. Проводимое полицией расследование попало под пристальное внимание общественности, требовавшей немедленной поимки маньяка, устроившего кровавую бойню уайт-чепельским женщинам лёгкого поведения. Такой ажиотаж стал причиной беспрецедентного количества подозреваемых, от студентов-медиков, мстивших проституткам за заражение сифилисом, и масонов, до таинственного доктора-американца и даже наследника российского престола! Но, несмотря на все старания, поймать Джека Потрошителя (Jack the Ripper), как его окрестили журналисты, так и не удалось. С 31 августа, когда было найдено тело Мэри-Энн Николс (Mary Ann Nichols), по 9 ноября жертвами маньяка стали, по крайней мере, пять жительниц Лондона, после чего убийства внезапно прекратились, вызвав новую волну слухов. Что заставило убийцу остановиться? Внезапная смерть? Страх быть пойманным? Покинул ли он пределы Великобритании? И самый главный вопрос - кем же он был на самом деле?
-
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: AdventureЯзык озвучки: Русский, Английский, Multi5Язык субтитров: Русский, Английский, Multi9Язык интерфейса: Русский, Английский, Multi9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C555D74B5DB7E2344458883AF25AF4CCE662F867
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1166651   (423455) от 17.09.2017
+
+Ultimate Marvel vs Capcom 3 (2017) [En] (1.0/upd1) Repack Mizantrop1337
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Marvel и Capcom объединились, чтобы организовать самые безумные битвы 3 на 3 в игре Ultimate Marvel vs Capcom 3. Версия игры для персональных компьютеров содержит весь выпущенный дополнительный контент. Выбирайте из самых популярных персонажей Marvel и Capcom и соберите команду на свой вкус в режиме «Heroes and Heralds». Отточив свои навыки, отправляйтесь в гущу (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Action, Arcade (Fighting)Язык озвучки: Английский, ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7946709F60988E0B69F549962E83CBCB21872E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411938   (422291) от 27.09.2020
 
 WWE 2K Battlegrounds (2020) [Multi] (1.0.3.0) Repack xatab
@@ -6,7 +32,7 @@ WWE 2K Battlegrounds (2020) [Multi] (1.0.3.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Rayman Origins (2012) [Ru/Multi] (1.0.32504.1.02) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Unravel Two (2018) [En] (1.0) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Starless (2022) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Human Fall Flat (2016) [Ru/Multi] (1.1.2G) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Galak-Z: The Dimensional (2015) [Multi] (1.01.04/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Dead Cells (2018) [Ru/Multi] (1.4.9/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +266,7 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +292,7 @@ Audiosurf [Ru/En] (RePack/1.0u31) 2009 | NSIS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +320,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +350,7 @@ Viktor (2014) [En] (1.06) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +376,7 @@ Dream Of The Blood Moon [En] (L) 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +403,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +429,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_390058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +455,7 @@ Zombie Driver: Summer of Slaughter / Смертельная гонка: Троп
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +481,7 @@ Shu (2016) [Multi] (1.1.0/u1) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +507,7 @@ Mortal Kombat Trilogy (1996) [En] (1.0hf) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +533,7 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +559,7 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +589,7 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +616,7 @@ My Memory of Us (2018) [Ru/Multi] (1.0) Repack xatab
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +642,7 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +668,7 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,38 +679,6 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479D32F4D1D539B259A37033EC278BC53234C3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567702   (377397) от 11.11.2012
-
-Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра Deadlight, — это альтернативный 1986-й, когда мир столкнулся с новой апокалиптической угрозой — загадочной вирусной инфекцией, обращающей людей в «тени», или попросту в зомби. При этом, в отличие от подавляющего большинства подобных проектов, Deadlight, вы не поверите, — пазл-платформер. То есть придётся не столько стрелять, сколько думать.
-
-«1986-й выбран не случайно, — поясняет исполнительный директор студии Рауль Рубио (Raul Rubio). — Это время запомнилось активным освоением космоса и выходом таких фильмов, как Rambo: First Blood и Day of the Dead. Смешайте всё это — и получите уникальную визуальную стилистику».
-
-Перемещаясь по полумёртвому северо-западному побережью Британской Колумбии (Канада) и США, Рэндэлл Уэйн будет искать оружие и других выживших. «Вам не нужно биться за правду или спасать мир, — продолжает г-н Рубио. — Это история Рэндэлла, его проблем, чувств и желаний». Сценарий написан испанским драматургом Антонио Роджано (Antonio Rojano), который вдохновлялся произведениями Стивена Кинга, Джеймса Балларда и Кормака Маккарти.
-
-«Вы поймёте, что в этом мире даже простое действие вроде перехода улицы становится невероятно сложным и опасным», — продолжают девелоперы. Обещана достоверная физическая модель, на которой и будут базироваться головоломки. Созданием «альтернативного мира паранойи и хаоса» занимается команда из 22 человек, прежде работавших в таких компаниях, как Blizzard, Pyro Studios, Sony..(   Читать дальше...   )Тип издания: RepackРазработчик: Tequila WorksЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

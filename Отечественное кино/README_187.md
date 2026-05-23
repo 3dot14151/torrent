@@ -1,3 +1,107 @@
+###  Публикация: 492545   (248004) от 05.05.2012
+
+Качели (2008) [1080p] BDRemux
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Уходя на работу, он не знает, вернётся ли домой. Потому что рисковать жизнью — его профессия. Но иногда смертельное ранение может нанести любовь, потому что любовь, как пуля, бьет прямо в сердце. Вся жизнь героев этой ленты — Качели. То, задыхаясь от любви, они взлетают в облака, то с самого пика наслажденья падают вниз, в грязь и пустоту… Качели раскачиваются всё сильнее, и остановить их они попытаются лишь тогда, когда это почти невозможно.Жанр: МелодрамаРежиссер: Антон СиверсАктеры: Андрей Мерзликин, Мария Миронова, Ксения Раппопорт, Полина Исаева, Борис Хвошнянский, Вячеслав Разбегаев, Анатолий Петров, Хельга Филиппова, Олег Гаркуша, Максим Бритвенков, Андрей Бабенко, Андрей Сиганов, Вадим Смирнов, Александр СтепинПродолжительность: 01:30:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637847   (247774) от 06.06.2023
+
+Доктор (2022) WEB-DL [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Ночью в психо-неврологическом отделении для подростков происходит ужасное событие — едва не гибнет один из пациентов. Взрослые предполагают, что виновник ночного происшествия — кто-то из ребят. Врачи опасаются, что история повторится и закончится трагедией. Есть версия, что подростки по ночам играют в «собачий кайф», игру с удушением. Разобраться во всем и остановить (   Читать дальше...   )Производство: Россия / АТ-ПродакшнЖанр: драмаРежиссер: Артём ТемниковАктеры: Сергей Пускепалис, Ольга Цирсен, Игорь Черневич, Денис Логинов, Вероника Устимова, Роман Коноплев, Елена Сусанина, Татьяна Гришкова, Татьяна Коровина, Анна БегуноваСубтитры: Русские (SDH)Продолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AA3A310D5518935BDEB00F8BDE797F7BA2988F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638750   (247686) от 09.06.2023
+
+Меньшее зло (2022) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Отношения Вики и Максима давно потеряли страсть. Максим пытается вернуть в отношения прежнюю близость. Он готов завести ребенка, но, к сожалению, бесплоден. Максим рассказывает о проблемах Павлу, бывшему любовнику его жены. Подруга Павла Алиса предлагает ему стать донором спермы, чтобы у Максима и Вики появился ребенок. Однако после этого Павел должен исчезнуть из (   Читать дальше...   )Производство: Россия, МТС Медиа, ЛУКФИЛЬМ / LOOKFILMЖанр: драма, мелодрамаРежиссер: Виктор ШамировАктеры: Алексей Розин, Виктор Добронравов, Полина Агуреева, Юлия ГревцоваСубтитры: отсутствуютПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F8B556559E50A96053B2C83A73AE59D53FA4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637261   (247684) от 09.06.2023
+
+Сокровища партизанского леса (2022) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В июне 1941 года немецкие оккупанты врываются в небольшие пограничные города и поселения, застав врасплох мирных жителей. В это время в одном из городов была представлена экспозиция редких старинных монет и орденов. Директор музея Дроздова с помощью детей Мариши и Миши пытается защитить бесценные экспонаты. Спасая их, женщина вместе с ребятами оказывается под завалами (   Читать дальше...   )Производство: Россия, АРК-ФильмЖанр: семейный, военный, приключенияРежиссер: Юрий ИльинАктеры: Василиса Немцова, Елена Захарова, Петр Нечипоренко, Руслан Ягудин, Андрей Межулис, Евгений Данчевский, Михаил Станкевич, Александр Печенин, Андрей Трушин, Максим ЕмельяновСубтитры: ОтсутствуютПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72758B6B477A5082DB18419A34F3C6988B4218D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639157   (247632) от 12.06.2023
 
 МаскЕрад (2023) WEBRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE7578F859E7A616E36F74877C2E828EA9C39A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833321   (246141) от 01.11.2025
-
-Почтарь (2025) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький город в тылу, цветущий май. Самые интересные и красивые женщины города не знают, что скромный почтальон защищает их от плохих новостей. Вот только долго так продолжаться не может — в военное время за почтой следит военное ведомство.Производство: Россия / Trikita Entertainment, KIONЖанр: драмаРежиссер: Андрей РазенковАктеры: Александр Петров, Инга Оболдина, Дмитрий Ковган, Александр Мичков, Юрий Беляев, Фёдор Лавров, Алексей Розин, Наталья Суркова, Полина Агуреева, Владислав АбашинСубтитры: отсутствуютПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF5FA49CE10BA6E9AFC95C85552495C635BDAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539921   (245975) от 27.03.2022
-
-Орлинская. Стрелы Нептуна (2022) WEBRip [H.264/1080p] (2 серии)
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий курортный городок Лиманск на берегу Черного моря выглядит сонно и безмятежно. Но старший оперуполномоченный Марина Орлинская знает многие его секреты — мрачные, опасные, неожиданные. Марина не первый год на службе, ее трудно чем-то удивить. Однако кому-то это удается. Город потрясен невероятным происшествием. Местного фотографа Аркашу застрелил из подводного (   Читать дальше...   )Производство: Россия / Приор ПродакшнЖанр: ДетективРежиссер: Наталия МикрюковаАктеры: Олеся Железняк, Михаил Полицеймако, Олег Андреев, Олег Метелев, Тимофей Кочнев, Андрей Мокеев, Александр Кульков, Денис Юров, Иван Чиров, Александр ТехановичПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 00:44:17 + 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7211C9D06DA181AA46DB070DAE29096AA39EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539602   (245861) от 27.03.2022
-
-Гипноз (2020) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Миша посещает сеансы гипноза у психотерапевта Волкова, чтобы вылечиться от лунатизма. В результате Миша попадает под влияние гипнолога до такой степени, что перестаёт понимать, где реальность, а где иллюзия. После таинственного исчезновения одной из пациенток Волкова Миша решает провести расследование, чтобы докопаться до истины. Но что делать, если сон (   Читать дальше...   )Производство: Россия, Финляндия / Мармот-фильмЖанр: Драма, триллерРежиссер: Валерий ТодоровскийАктеры: Максим Суханов, Сергей Гиро, Екатерина Федулова, Сергей Медведев, Полина Галкина, Степан Середа, Виктория Буцких, Александр Кузьмин, Кирилл БуханцевПеревод: Не требуется (Русский)Субтитры: английскиеПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538366D59C7C11A1152D970A2C470B1ED7E09693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539625   (245852) от 27.03.2022
-
-Ледяной демон (2021) BDRemux [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ксюша почти не помнит отца: он пропал, когда она была еще маленькой. Спустя 10 лет в горах находят его замерзшее тело. Невероятно, но он до сих пор жив и пребывает в странном анабиозном состоянии, напоминающем кому. Его привозят домой. Мама Ксюши уже давно в новом браке, и возвращение бывшего мужа разрушает спокойную жизнь семьи. Ксюша подозревает, что вместе с отцом (   Читать дальше...   )Производство: Россия / QS FILMS, Централ Партнершип, Iney ProductionsЖанр: Ужасы, триллерРежиссер: Иван КапитоновАктеры: Ольга Ломоносова, Алексей Розин, Алина Бабак, Глеб Калюжный, Игорь Хрипунов, Александра Черкасова-Служитель, Лера Володько,  Андрей МарусинПеревод: Не требуетсяСубтитры: английские (Full, SDH)Продолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC9766824C00A8CF321054467781554013AD4EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

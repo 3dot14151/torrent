@@ -1,3 +1,84 @@
+###  Публикация: 1823303   (125768) от 11.10.2025
+
+Photomath v8.46.0 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Научитесь решать математические задачи, проверять домашние задания и готовиться к предстоящим экзаменам и экзаменам ACT / SAT с помощью самого популярного в мире учебного ресурса по математике. Более 100 миллионов загрузок и миллиарды решенных задач каждый месяц!Тип издания: FullРелиз состоялся: 10.10.2024Разработчик: Photomath, Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68727B9CF21AE3CB8B3EEA67749101D13EAF8719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686795   (125496) от 27.12.2023
+
+Fishing Knots Pro / Рыбацкие узлы Pro v8.1.17 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Рыбацкие узлы" - это программа, показывающая как надо вязать узлы. Среди множества узлов рыбаку необходимо выбрать и использовать правильный. В каждом случае - он свой. Как сильно конкретный узел ослабляет леску? Какие узлы использовать для тонких рыболовных лесок, а какие - для толстых? Какие узлы вязать на плетенках? В справочнике собраны узлы для: связывания (   Читать дальше...   )Тип издания: Paid / FullРелиз состоялся: 24.12.2023Разработчик: MP FishПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F409771CA30BEC8969361440EC8D1F61003A2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683923   (124951) от 31.12.2023
+
+Tiny Scan: PDF Document Scanner 6.1.2 Mod by PieMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+TinyScan превращает ваш смартфоне в портативный сканер. Сканы сохраняются в вашем смартфоне как изображения или PDF-файлы. Вы можете называть сканы и распределять их по папкам, или же делиться ими через:
+- E-mail
+- Dropbox, Evernote, Google Drive или Box
+- Wifi, загружая напрямую на ваш компьютер(   Читать дальше...   )Тип издания: ProРазработчик: Beesoft AppsПоддерживаемая ОС: 5.0+Язык интерфейса: Русский, Английский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C569353583F8FFB284D1D7601D11649DB140008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689071   (124929) от 31.12.2023
 
 Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
@@ -6,7 +87,7 @@ Piano Melody vDua Lipa fix (268) Mod by TryRoom [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +116,7 @@ MD.emu 1.5.76 Mod by DAG-05 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +142,7 @@ VivaVideo Video Editor v9.13.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +168,7 @@ Colorfy PLUS - Coloring Book v3.24 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +194,7 @@ FBReader Premium v3.5.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +220,7 @@ Fraction Calculator Plus v5.7.1 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +249,7 @@ Grab Photos From Videos / Фото из видео v11.1.0 Mod by derrin [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +275,7 @@ Sense V2 Flip Clock & Weather v6.50.0 Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -221,7 +302,7 @@ SD Maid v5.6.3 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +328,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +354,7 @@ Smart AudioBook Player Pro v11.5.4 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +380,7 @@ Lighting calculations / Расчеты освещения v6.1.9 Mod by Balatan 
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +406,7 @@ Xiaomi Home (Ранее. MiHome) v10.9.708 Fix Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +461,7 @@ Astrological Charts / Астрологические Карты Pro v10.5 [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +487,7 @@ SnapEdit - AI photo editor 5.5.0 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +513,7 @@ Camera Translator / Переводчик камеры v2.1.6 Mod by vadj [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -458,7 +539,7 @@ Astrolapp Live Planets and Sky v5.2.1.8 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +565,7 @@ Display Tester v4.60 Mod by Balatan, serborkr  [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +591,7 @@ Plus Messenger (Telegram+) v10.5.0.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124085.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +644,7 @@ Perfect365 Video Makeup Editor v1.6.20 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +670,7 @@ Perfect365 Makeup Photo Editor v9.45.9 Mod by ModExPro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,84 +681,6 @@ Perfect365 Makeup Photo Editor v9.45.9 Mod by ModExPro [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB97DA3AC5AC8ADE72246FDFD17F4664607343EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690525   (123979) от 07.01.2024
-
-Санкт-Петербург Путеводитель и Карта v1.7.3 Mod by viktorovich31 [Ru][Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение “Санкт-Петербург Путеводитель и Карта” - это удобный аудиогид по самым интересным пешеходным маршрутам в центре Северной столицы, который поможет комфортно и бюджетно познакомиться с наиболее важными достопримечательностями города и существенно сэкономить на услугах гидов.Тип издания: FullРелиз состоялся: 16.08.2023Разработчик: Oleksandr ChaikinПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A14BEA102ABB2BCB3EA04BE1393DCB9D1083BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690647   (123853) от 08.01.2024
-
-Hear Clear / Услышать на расстоянии v1.1.6.9 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение, призванное помочь улучшить восприятие речи слабослышащим. В наличии возможность записи с встроенного микрофона, микрофона наушников или BT-микрофона. В наличии несколько предустановок эквалайзера и настройка предусиления. Обработанные звукозаписи можно сохранять в памяти устройства.Тип издания: PremiumРелиз состоялся: 22.12.2023Разработчик: Ronasoft MediaПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2F4B893F494588BA93A5463304044FBCF9CAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690676   (123797) от 08.01.2024
-
-Cake recipes / Рецепты тортов v11.16.426 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение рецептов торта предлагает вам множество легких и легких рецептов. К ним относятся рецепты бисквитного торта, ванильного торта, масляного торта, маффина, классического пирога, генозы, фунтового торта, а также рецепты без муки.Тип издания: PremiumРелиз состоялся: 07.01.2024Разработчик: Riafy TechnologiesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26318BB6DDA3462762584E1825A4639C36EC64A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

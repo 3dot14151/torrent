@@ -1,3 +1,81 @@
+###  Публикация: 1240666   (524258) от 12.08.2018
+
+Псы под прикрытием / Show Dogs  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серьезному детективу предстоит работа с необычным напарником - говорящим псом Максом, который не замолкает ни на минуту и фанатеет от рэпа. Вместе они отправятся в Лас-Вегас, где на элитной выставке собак проворачиваются аферы по перепродаже редких животных. И сядут мошенникам на хвост.Производство: Великобритания, США / Open Road Films (II), Riverstone PicturesЖанр: комедия, приключения, семейныйРежиссер: Раджа ГоснеллАктеры: Наташа Лионн, Стэнли Туччи, Алан Камминг, Уилл Арнетт, Шакил О’Нил, РуПол, Габриэль Иглесиас, Лудакрис, Делия Шеппард, Ронни Анкона, Джордин Спаркс, Омар ЧапарроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C585E0D879517DC98698C49885A4983F0A05C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240559   (524246) от 12.08.2018
+
+Государственное дело / Affairs of State  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Майкл Лоусон, молодой помощник сенатора Бейнса, сделает всё, чтобы занять высокий пост в Белом доме. Он опускается до шантажа сенатора, соблазняя его жену и дочь. Вскоре герой увязает в опасной и грязной политике настолько, что это начинает грозить ему смертью.Производство: США / American Film Productions, Head Gear Films, Metrol Technology, School PicturesЖанр: драмаРежиссер: Эрик БроссАктеры: Мими Роджерс, Бонни Джонсон, Тора Бёрч, Эдриан Гренье, Дэвид Джеймс Эллиотт, Фэй Грант, Роберт Шеперд, Брэндон Хардести, Джастин Кертис, Бетси Лэндин, Евгения Гонзалес, Морган Крайер, Грэйс Виктория Кокс, Чел БрикхаусПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AAAC958A568120747B666E19F783C67C7B7EFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240512   (524242) от 12.08.2018
+
+Дэдпул 2 / Deadpool 2  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Единственный и неповторимый болтливый наемник - вернулся! Ещё более масштабный, ещё более разрушительный и даже ещё более голозадый, чем прежде! Когда в его жизнь врывается суперсолдат с убийственной миссией, Дэдпул вынужден задуматься о дружбе, семье и о том, что на самом деле значит быть героем, попутно надирая 50 оттенков задниц. Потому что иногда чтобы делать (   Читать дальше...   )Производство: США / Donners' Company, Kinberg Genre, Marvel Entertainment, Maximum Effort, TSG Entertainment, Twentieth Century FoxЖанр: фантастика, боевик, комедия, приключенияРежиссер: Дэвид ЛитчАктеры: Райан Рейнольдс, Джош Бролин, Морена Баккарин, Джулиан Деннисон, Зази Битц, ТиДжей Миллер, Лесли Аггамс, Каран Сони, Брианна Хилдебранд, Джек Кеси, Эдди Марсан, Сиори КуцунаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9591CEC65ADD1F6725EBFFE8D60A25228ED9919C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240518   (524172) от 12.08.2018
 
 Дэдпул 2 / Deadpool 2  (2018) BDRemux [H.264/1080p] [Super Duper Cut] [EN / EN, Fr, Sp Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Z – значит Захария / Z for Zachariah (2015) WEB-DL [H.264/720p-LQ
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37696E6C8400F53F35D19704117F10254A984706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158388   (493399) от 15.08.2017
-
-Трансфигурация / The Transfiguration (2016) BDRemux [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудный подросток Майло одержим историями о вампирах. Однажды он встречает Софи, и дружба с ней начинает превращать фантазии Майло в реальность.Производство: СШАЖанр: ужасы, драмаРежиссер: Майкл О’ШиАктеры: Джеймс Лоринз, Кит Мэклер, Ллойд Кауфман, Анна Фридман, Дэн Флаэрти, Виктор Паган, Хлоя Ливайн, Хосе Лопез, Фрэнк Л. Мессина, Хосе Игнасио Гомез, Картер Редвуд, Аарон Мотен, Тайлер Росселл, Эрик Руффин, Ларри Фессенден, Сэмюэл Х. Ливайн, Нора ВулиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19CD5BEAA1480BF32C0AE56EACF3672EE705CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158319   (493316) от 15.08.2017
-
-Спасатели Малибу / Baywatch (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа пляжных спасателей работает на побережье Тихого океана. Они всегда находятся на своем посту и охраняют отдыхающих от несчастных случаев на воде. Главный герой, опытный спасатель Митч Бьюкеннон, и его молодой коллега Мэтт Броди случайно узнают, что их пляж находится под угрозой исчезновения. Большая нефтяная компания собирается разрушить побережье, преследуя (   Читать дальше...   )Производство: США, Paramount Pictures, Flynn Picture Company, Fremantle ProductionsЖанр: Боевик, Комедия, ДрамаРежиссер: Сет ГордонАктеры: Дуэйн Джонсон, Зак Эфрон, Приянка Чопра, Александра Даддарио, Келли Рорбах, Ильфенеш Хадера, Джон Басс, Яхья Абдул-Марин II, Хэннибал Бёресс, Роб Хюбель ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DA72A851F7CAD45B115BF816A4E08A5894AA7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243583   (491890) от 27.08.2018
-
-Невидимка / In Darkness  (2018) BDRemux [H.264/1080p] [EN / EN, Dan, Fin, Nor, Sw Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка в темноте, как называют слепую Софию, становится невольным свидетелем убийства дочери опасного международного преступника. Но несмотря на слепоту, София не так беззащитна, как считают мафия и спецслужбы.Производство: Великобритания, США / 42Жанр: триллерРежиссер: Энтони БирнАктеры: Натали Дормер, Эмили Ратаковски, Эд Скрейн, Джоэли Ричардсон, Джеймс Космо, Нил Мэскелл, Эмбер Андерсон, Ян Бейвут, Бернард Коллако, Олегар Федоро, Лекси Бенбоу-Харт, Дэниэл ИганПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, датские, финские, норвежские, шведскиеПродолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F72AAA25530B18696F34F68A18BE134BB47FD46
 ```
 
 https://mybot314.ru/tekegram_catalog/

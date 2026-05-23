@@ -1,3 +1,107 @@
+###  Публикация: 1764321   (35043) от 06.12.2024
+
+Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лица врачей и пациентов одинаково исчезают в этих кошмарных видениях мучительных воспоминаний. Эта реальность яичной скорлупы разрушена экспериментами, проводимыми в палате. Кровь, плоть и крики окружают вас, пока вы собираете воедино кусочки своей истории и сбегаете из лечебного центра «Яркий рассвет», а темный доктор с удовольствием наблюдает за вами. Вы - Уильям (   Читать дальше...   )Тип издания: RepackРазработчик: Memetic GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8305EAF78625A8218452A22EF70D9F598EF87ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764418   (34950) от 07.12.2024
+
+Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Человечество находится в осаде, орды Ментала распространяются по всему миру, уничтожая остатки сломленной и разбитой цивилизации. Последнее препятствие на пути захватчиков - Армия Обороны Земли, возглавляемая Сэмом Стоуном по прозвищу Крутой Сэм и его вооруженным до зубов отрядом солдат. Croteam возвращаются с мощнейшим приквелом к серии игр Крутой Сэм, увеличивая (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB3B463847349963B6FB3726E68A651333527E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764414   (34931) от 07.12.2024
+
+World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+World War Z - это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z - наследнице одноименного блокбастера от Paramount Pictures - вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: SceneРазработчик: Saber InteractiveЖанр: Action (Survival Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B836C6D81CF16DA93626CE66AF35F32ADE941A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756018   (34873) от 08.12.2024
+
+Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры Killing Time: Resurrected происходит в начале 1930-х годов. Студент, изучающий загадочный мир египтологии, оказывается в ловушке в поместье богатой наследницы Тесс Конвей. Обряд бессмертия, проведенный мисс Конвей, срывается, и ее друзья из высшего общества бесследно исчезают. Вам предстоит найти и уничтожить мистические египетские водяные часы, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Nightdive Studios, 3DOЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BE3C9E589FCC026178248BEC2109169D3DF922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684446   (34461) от 12.12.2024
 
 Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
@@ -6,7 +110,7 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2484/dlc) Repack Let'sРlay [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Battle Shapers (2023) [Ru/Multi] (1.0.0.9952) Repack FitGirl [Original Soundtrac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРla
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ HROT (2021) [Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Shadow Warrior Classic Redux (2013) [En] (1.1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Priest Simulator: Vampire Show (2022) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Medal of Honor Anthology (2002-2012) [Ru/En] Rip OneTwo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Mullet MadJack (2024) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Skydance's BEHEMOTH (2024) [Multi] (1.0/dlc) Scene Rune [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Skydance's BEHEMOTH - это оригинальная история, дейст
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84763FD3D3ECB90C8FA4F3BEF0974486492F4857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774116   (30498) от 19.01.2025
-
-Metro Awakening (2024) (1.0 build 16229071/dlc) Scene Rune [Deluxe Edition] [VR]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metro Awakening - это разработанный специально для VR сюжетный приключенческий шутер от первого лица. Погрузитесь в атмосферу вселенной Metro с элементами исследования, стелса и боев. 2028 год. Пережившие ядерный апокалипсис борются за существование в заброшенной московской подземке - последнем пристанище и могиле цивилизации, этом искусственно созданном чистилище, (   Читать дальше...   )Тип издания: SceneРазработчик: Vertigo GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C06B216EF88817FC4E1BFDBAE2629B11C32C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774323   (30364) от 20.01.2025
-
-The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saints & Sinners - игра, не похожая ни на одну другую во вселенной Walking Dead. Каждый вызов, с которым вы сталкиваетесь, и решение, которое вы принимаете, определяются вами. Сражайтесь с нежитью, собирайте мусор в затопленных руинах Нового Орлеана и сталкивайтесь с мучительным выбором для вас и других выживших. Живите темной драмой ходячих мертвецов. Новый (   Читать дальше...   )Тип издания: SceneРазработчик: Skydance InteractiveЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий, Испанский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CED4969626B4AFD4DC51E0098154352D6D94F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773491   (30186) от 22.01.2025
-
-Sons of the Forest (2023) [Ru/Multi] (1.0 53951) Repack Pioneer
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sons of The Forest - многопользовательский хоррор от первого лица с элементами выживания. Игра выступает сиквелом нашумевшего хита The Forest. Как и в предыдущей части, вам необходимо исследовать таинственный лес, который населяют кровожадные монстры. Выживайте, прячась от врагов и внимательно изучайте окрестные территории. Вооружитесь мощным оружием, чтобы противостоять (   Читать дальше...   )Тип издания: RepackРазработчик: Endnight Games LtdЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41BCBCDF4B593994902A6A12109A43EBF286119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774893   (30058) от 23.01.2025
-
-Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eximius представляет собой гибрид шутера от первого лица и стратегии в реальном времени с управлением отрядами. Eximius сочетает игровой процесс, характерный для шутеров от первого лица, с принятием решений на стратегическом уровне в духе стратегий в реальном времени. Ключевой особенностью игры является соревновательный режим, в котором команды игроков противостоят (   Читать дальше...   )Тип издания: RepackРазработчик: Ammobox StudiosЖанр: Экшены, СтратегииЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4052D8FC8922CF84F1EA01AC58AC8BC294F6F500
 ```
 
 https://mybot314.ru/tekegram_catalog/

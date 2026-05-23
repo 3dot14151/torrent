@@ -1,3 +1,107 @@
+###  Публикация: 1793757   (20230) от 26.04.2025
+
+Burial (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Вы верите в сверхъестественное? Главный герой игры, видеограф Василий Панин тоже не верил, пока не оказался в старой советской квартире, посреди ночи. Он получил задание - снять поминки, которые продлятся до утра. Люди будут приходить и прощаться с покойным и всё это нужно запечатлеть на пленку. Однако, когда Василий попадает в квартиру он понимает, что выхода из (   Читать дальше...   )Тип издания: RepackРазработчик: REVVALUTION StudioЖанр: Инди, СимуляторыЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, ИспанскийЯзык интерфейса: Русский, Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C88EE88387217E6B609352B5647C9A5573D85B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771234   (20226) от 26.04.2025
+
+Firmament (2023) [Ru/Multi] (2.0.8) Repack Let'sРlay [The Keepers' Bundle]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Firmament - новая игра-приключение с загадками от легендарной студии, создавшей хиты Myst и Riven. Глубокий сюжет и тщательно проработанные детали погрузят вас в атмосферу покинутого мира, где вас будут ждать загадки 3 уникальных земель… и не только! Игра окутана уникальной стимпанк-эстетикой, которая сразу же захватит ваше внимание своей красотой и загадочностью. (   Читать дальше...   )Тип издания: RepackРазработчик: Cyan Worlds IncЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C900DDEA1036A1B8288B77AF59097645E59E093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793934   (20105) от 27.04.2025
+
+True Fear: Forsaken Souls Part 3 (2025) [Ru/Multi] (1.1.1:11) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+True Fear: Forsaken Souls Part 3 завершает популярную трилогию триллеров с затягивающей механикой point-and-click, сложными головоломками и жуткой атмосферой. Получите ответы на все вопросы, встретьтесь с демоном семьи Стоунхаус и прочувствуйте незабываемый финал этой хоррор серии.Тип издания: RepackРазработчик: Goblinz Enterprises LtdЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B493DDE02724561BAC601CFECC807C726947744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794033   (20083) от 27.04.2025
+
+In Nightmare (2022) [Ru/Multi] (Build 18052202) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+In Nightmare - это повествовательная приключенческая игра в жанре платформера с элементами квеста и хоррора. Она рассказывает о мальчике, ищущем любовь, который спасает себя, преодолевая свой страх. Окунитесь в леденящий душу мир фантазий и ужасов. Убежав от реальности, наш главный герой погружается в глубокий сон и оказывается в кошмарном мире сновидений.Тип издания: RepackРазработчик: Magic Fish GamesЖанр: Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6DC6D240E95CEEDF68838D0B7B0AC141ECCE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794315   (19990) от 28.04.2025
 
 Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
@@ -6,7 +110,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +266,7 @@ House of Lost Souls (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +292,7 @@ BLACKSHARD (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Post Trauma (2025) [Ru/Multi] (1.05.02) Repack Let'sРlay [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (1.9.7:2369) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +370,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (2.0.12:608) Repack Let'sРlay [Part
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Raft: The Final Chapter (2018) [Ru/Multi] (1.1.03 Beta/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Moroi (2025) [Ru/Multi] (1.10) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack Other s [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Skogdal (2025) [Ru/Multi] (0.9.12) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ BrokenLore: DON'T WATCH (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Inspector Schmidt - The Ebbing (2025) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Back: Fade (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundt
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5DB777EBF81CAA11A959C5F7B5C1C09B5776F2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795436   (19301) от 05.05.2025
-
-Mother Hub (2025) [En] (16) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоррор-шутер от первого лица, вдохновленный такими классическими играми, как Half-Life, Doom 3, Fallout и Deadspace. Вы должны попытаться выжить и спасти последних представителей человечества, запертых в огромном хранилище далекого будущего. Путешествуйте по наполненным ужасом коридорам, сталкиваясь с ужасом внутри. Выживите, если сможете, и узнайте, что случилось (   Читать дальше...   )Тип издания: RepackРазработчик: ODale StudiosЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EB7CDD346A4330AD9357642B7C5DBA4CADF3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795520   (19252) от 05.05.2025
-
-Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузитесь в Card Summoner - одиночное JCC-приключение, где на кону стоит нечто большее, чем просто карты. Путешествуйте по шести деревням призывателей, создавайте свою колоду, зарабатывайте Гребни и докажите своё мастерство на Турнире Призывателей. По пути вы раскроете скрытую угрозу, способную поставить ваш мир под удар.Тип издания: RepackРазработчик: Happenstance GamesЖанр: Приключенческие игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A3449CB38B9D488780B2A8AAC2B4F32C72A7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795775   (19204) от 06.05.2025
-
-Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в программу «Первопроходец» от «Киндред Аэроспейс», 4-ой по рейтингам компании по исследованию космоса! Твоя задача - определить, пригодна ли планета ARY-26 для жизни. И пусть мы тебя не обучили и не снабдили нужным оборудованием, всё равно удачи!Тип издания: RepackРазработчик: TyphoonЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE5AC4870BD34214532BB6B709FBC1F06D3176D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795705   (19191) от 06.05.2025
-
-Cybernetic Fault (2020) [Ru/Multi] (1.1) Repack Let'sРlay
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cybernetic Fault – сатирическая приключенческая игра с антинаучным сюжетом. Игроку предстоит ощутить себя в роли учёного-романтика, который не стесняется своей некомпетентности и ставит смелые эксперименты над реальностью и здравым смыслом. На чтение инструкций к оборудованию и расчёты у него не остаётся времени! Без решительного разрыва с классической наукой мир (   Читать дальше...   )Тип издания: RepackРазработчик: Whale Rock GamesЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6606F27D8941EAD88358505EE981F3065B007B84
 ```
 
 https://mybot314.ru/tekegram_catalog/

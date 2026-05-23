@@ -1,3 +1,84 @@
+###  Публикация: 1756188   (39789) от 20.10.2024
+
+Monument Valley 2 NETFLIX v3.7.120 Mod by apkvision [En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Чудесный мир головоломок ждет вас снова! Исследуйте невероятную архитектуру вместе с мамой и ее ребенком в трогательном путешествии по новым уголкам мира.
+
+В продолжении любимой инди-головоломки Monument Valley, лауреата премии BAFTA, вас ждет совершенно новое приключение — в других частях мира, но с не менее невероятной архитектурой. Monument Valley 2 — трогательная (   Читать дальше...   )Тип издания: ModРелиз состоялся: 3 окт. 2024 г.Разработчик: Netflix, Inc.Поддерживаемая ОС: Android 8.0+Жанр: ГоловоломкаЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4E8EC7534FD483CD143177E23FB4AEF13885BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756338   (39785) от 20.10.2024
+
+Valiant Hearts: The Great War 1.0.4 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В этом интерактивном графическом романе, включающем боевые и приключенческие сцены, а также решение головоломок, вы погрузитесь в трогательную историю четырех невоспетых героев, подхваченных бурными волнами Первой мировой.
+Valiant Hearts: The Great War — это игра из четырех эпизодов, вдохновленная письмами участников Первой мировой. Дополнительные эпизоды можно приобрести (   Читать дальше...   )Тип издания: FullРазработчик: Ubisoft EntertainmentПоддерживаемая ОС: Android 4.0+Жанр: КвестЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3269B9AFCA85619EBC192B0C716A4AFF0F7E8D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756355   (39784) от 20.10.2024
+
+GTA 3 — Definitive Edition 1.83.44255649 Mod by apkvision [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Все начинается в Либерти-Сити. Grand Theft Auto III позволяет идти куда угодно и делать все, что вам захочется. Безжалостный криминальный мир станет вашим, если у вас хватит смелости его покорить.Тип издания: Full + MOD 60 FPSРелиз состоялся: 8 апр. 2024 г.Разработчик: Rockstar GamesПоддерживаемая ОС: Android 5.0+Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B33A8789665A56A43294F7A5625957C29AE92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756365   (39761) от 20.10.2024
 
 GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
@@ -6,7 +87,7 @@ GTA III – NETFLIX 1.83.44255649 Mod by apkvision [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +115,7 @@ Photo Mate R3 v3.8.0 b188 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +143,7 @@ Pencil Photo Sketch : Drawing v2.0.95 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +169,7 @@ Candleman 3.3.2 Mod by youarefinished [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +196,7 @@ Vanced Tube v5.2.80.113 Mod by TRUMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -141,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +248,7 @@ Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +274,7 @@ Magic Eraser / Магический ластик v2.11.1 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +300,7 @@ PhotoRoom v5.5.2 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -245,7 +326,7 @@ Real Guitar / Уроки игры на гитаре v8.32.1 Mod by MustHave [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +381,7 @@ Moon+ Reader Pro v9.7 (b907002) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +407,7 @@ IPTV Pro v8.2.3 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +433,7 @@ PowerDirector – Video Editor v14.5.2 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -378,7 +459,7 @@ SnapEdit - AI photo editor v7.2.2 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -404,7 +485,7 @@ Photo Editor v10.9 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +511,7 @@ LazyMedia Deluxe v3.338 Mod by Alex.Strannik [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +537,7 @@ Seven / 7 Минут Упражнение v9.20.01 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +563,7 @@ Photo Editor v10.9 Pro Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +589,7 @@ MobiOffice (ex. OfficeSuite) Premium + PDF v15.0.54205 Extra Mod by Balatan [Ru/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +641,7 @@ Ultimate Thumbnail Maker v1.7.5 Mod by Alex.Strannik [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -586,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -598,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C703C2FDD61E41CE533D4EE2568F67A3C521106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757646   (39005) от 28.10.2024
-
-Plus Messenger (Telegram+) v11.2.3.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Plus Messenger - неофициальное приложение для обмена сообщениями, на основе Telegram API. Весьма крутой альтернативный клиент для Telegram. Много настроек. Развивается. Вкладки. Категории. В наличии весьма немалое количество дополнительных настроек. Быстро обновляется. Plus без проблем синхронизируется со всеми вашими устройствами и может использоваться на планшетах (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.10.2024Разработчик: rafalenseПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E413B656D6286818653279AA777B65612E12387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757652   (38997) от 28.10.2024
-
-Узлы 3D / Knots 3D v9.4.1 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Завязывайте, развязывайте и вращайте пальцем более 190 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь!Тип издания: Mod / FullРелиз состоялся: 28.10.2024Разработчик: Nynix LLCПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734E4FAC66EB21FC0089AA237069C548F44090D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668856   (38878) от 30.10.2024
-
-Document Reader & Viewer 2024 v1.2.3 Mod by vadj [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38878.jpg" />
-</div>
-
-
-###  Подробнее
-
-📂 Document Reader & File Viewer 2024 — самое удобное приложение для чтения документов, позволяющее открывать и просматривать все файлы в формате: PDF, DOCX, XLS, PPT, TXT... из внутреннего хранилища, электронной почты, облака, Интернета и внешнего хранилища.Тип издания: FullРелиз состоялся: 12.07.2024Разработчик: Shark Studio - Awesome AppsПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7BB2BC2B4A98D79F0DB83ADDCB42D38063E5E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

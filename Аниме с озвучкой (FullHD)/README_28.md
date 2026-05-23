@@ -1,3 +1,83 @@
+###  Публикация: 1665841   (180628) от 02.10.2023
+
+Кот, мастер на все лапки, сегодня снова грустит | Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today [2023, TV, 13 из 13] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Когда Саку Фукудзава подбирала на улице милого котика, она даже не предполагала, что это маленькое чудо превратится в двухметрового говорящего кота. К тому же, ещё и хозяйственного! Пока наша Саку просиживает юбку в офисе, кот Юкичи следит за домом: стирает, убирается и готовит еду, ну прямо как самая настоящая домохозяйка! Так и живут наши герои мирной, хоть и немножко (   Читать дальше...   )Производство: Япония / Студия GoHandsЖанр: Комедия, повседневностьРежиссер: Кудо СусумуЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Crowley, Frederica Izzard, SlivciS (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C639718DA725CC8D9E90A895A3456BD9FC6D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644683   (180434) от 02.10.2023
+
+Маленькая сэмпай с моей работы | Uchi no Kaisha no Chiisai Senpai no Hanashi | My Tiny Senpai [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Зачастую в коллективе принято, чтобы старшие приглядывал за младшими. Вот и тут о парне Шинодзаки постоянно заботится старший член команды, Шиори. Она – великолепная, невероятно добрая, ласковая, любящая и совершенно… миниатюрная женщина. Ну а Шинодзаки же хочется верить, что делает она это не только из чувства долга. Надеясь на нечто большее и искренне радуясь проявленной (   Читать дальше...   )Производство: Япония / Студия Project No.9Жанр: Комедия, романтикаРежиссер: Сато МицутосиЯзык озвучки: Русский двухголосый, закадровый; Японский
+- Lobanow, SlivciS (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC32656908A43FA10A64B55AD85A3A3B3690EA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645263   (180423) от 02.10.2023
+
+Девушка на час [ТВ-3] | Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В их отношениях Казуи и Чизуру начался новый этап. Теперь они преследуют общую цель: поскорее снять собственный фильм, в котором Чизуру сможет сыграть главную роль. На пути к этой цели наших героев ждёт тяжёлый труд: сбор денег, поиски режиссёра, съёмки, продвижение и многое другое. Повезло ещё, что заниматься всем этим они будут не одни; на помощь к ним придут как (   Читать дальше...   )Производство: Япония / Студия TMS Entertainment, Studio CometЖанр: комедия, романтика, сёнен, школаРежиссер: Унэ СинъяЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб полные/надписи)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D42AF66594DF61FC02D78EFABD5BF9BE40E1AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593441   (180180) от 27.11.2022
 
 Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a Nation Out of Debt | Руководство гениального принца [2022, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +86,7 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +166,7 @@ Fruits Basket TV-2 | Корзинка фруктов ТВ-2 [2020, TV, 25 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_179442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +193,7 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +219,7 @@ Quan Zhi Gao Shou | Quanzhi Gaoshou | The King`s Avatar | Master of Skill | Ав
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -194,7 +274,7 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +300,7 @@ Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +326,7 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +380,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -326,7 +406,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -352,7 +432,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -379,7 +459,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я стала злодей�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -405,7 +485,7 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -431,7 +511,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -484,7 +564,7 @@ Fate/Stay Night | Судьба: Ночь схватки [2006, TV, 24 из 24] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +590,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -536,7 +616,7 @@ Fate/Zero | Судьба: Начало [2011, TV, 25 из 25] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +642,7 @@ Iria Zeiram The Animation | Iria: Zeiram The Animation | Ирия: Зейрам 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,7 +669,7 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,85 +682,6 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B9EE49B64D8BD65AB4BBA6BABE247EEB7E4B354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674804   (160826) от 06.11.2023
-
-Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повелителя тьмы [1998, OVA, 1 из 1] HDTV 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, на заре мира, Великая Мать родила Демонов, чтобы притеснять человечество, и Хранителей, чтобы его защищать. Братья и заклятые враги, они тысячелетиями служат своим миссиям...
-Когда Эйдзи Курадза, жених Сидзуки Татибаны, на ее глазах превратился в монстра и исчез, несчастная девушка обратилась к некоему Цунами Сидзё, таинственному эксперту по сверхъестественным (   Читать дальше...   )Производство: Madhouse / マッドハウス, Daume / 童夢Жанр: приключения, фэнтезиРежиссер: Симбо АкиюкиПеревод: iншыЯзык озвучки: японский, русскийСубтитры: русские, английскиеПродолжительность: 50 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6F842A0A554E503D82679CDD02B5CDCBF54BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674800   (160822) от 06.11.2023
-
-Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-ныряльщик: Демон-бодхисаттва [1997, OVA, 1 из 1] HDTV 1080p HEVC 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юки - молодая поп-звезда. Она страдает от насильственных воспоминаний и обнаруживает в себе психические способности, которые она не может контролировать. Босуджиме, психо-ныряльщику с исключительными талантами, предстоит спуститься в ее бурную душу, чтобы победить внутреннего демона. То, чего он не знает, что есть и другие, которые не остановятся ни перед чем, чтобы (   Читать дальше...   )Производство: Madhouse / マッドハウス, Studio Junio / スタジオジュニオЖанр: триллер, фантастикаРежиссер: Камбэ МаморуПеревод: p1nokkioЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 50 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35537BF81C15F29D30B279701E86E121AF283573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674653   (160736) от 06.11.2023
-
-Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (2023) | Атака титанов: Финал [2023, Web, 2 эп.] WebRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба мира висит на волоске, когда Эрен высвобождает высшую силу Титанов - "дрожь земли". С решимостью уничтожить всех, кто угрожает Элдии, он ведет за собой армию Колоссальных Титанов, которая направляется к Марли. Теперь разношерстная команда его бывших товарищей и врагов пытается помешать его смертоносной миссии, вопрос лишь в том, смогут ли они остановить (   Читать дальше...   )Производство: Япония, Студия: MAPPAЖанр: приключения, фэнтези, драмаРежиссер: Хаяси ЮйтироПеревод: DEEP (Эльвира Данилова)Язык озвучки: Японский и русский (DEEP (Студийная Банда, АниЛибрия))Субтитры: РусскиеПродолжительность: 1я часть: 61 мин., 2я часть: 85 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B1AC8B4248CD2E3D1810C10A2848074898EA33
 ```
 
 https://mybot314.ru/tekegram_catalog/

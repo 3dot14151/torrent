@@ -1,3 +1,57 @@
+###  Публикация: 840339   (576633) от 24.07.2015
+
+Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + Battle out of hell]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ты - Painkiller. Твоя работа - зачищать местность от всякой нежити. Твоя цель - найти и уничтожить три демонических артефакта, питающих своей энергией сотни порождений тьмы... Бей всё это неупокоенное отродье, пока на твоём пути не останется ни одного, затем пройди по их дымящимся телам к артефактам и уничтожь их - раз и навсегда!
+
+Тебе придётся делать эту неблагодарную (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык субтитров: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943D98E267E15A23CD52DEAB68A3E5B54D7920B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043254   (573983) от 15.08.2016
+
+Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нетривиальная и красочная игра, удачно сочетающая в себе стратегию в реальном времени и RPG с видом от третьего лица. Вашему персонажу, боевому магу-наемнику, предстоит принять участие в кровопролитной войне пяти богов. Выбрав одного из них, вы тут же попадете в немилось к остальным четырем.Тип издания: LicenseРазработчик: Shiny EntertainmentЖанр: Action, Strategy (Real-time), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043211   (573876) от 15.08.2016
 
 Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3E) License GOG
@@ -6,7 +60,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_564565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Max Payne Дилогия [En/Ru] (RePack) 2001-2003 | R.G. ReCoding
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_558330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +248,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +274,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +300,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +326,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +352,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +378,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +405,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +431,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +457,7 @@ Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) 
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +483,7 @@ Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +509,7 @@ Ghost Master / Повелитель ужаса (2003) [Ru/En] (1.0/upd1) License
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +535,7 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +561,7 @@ Strategic Command: European Theater / Вторая мировая: Страте�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +587,7 @@ Desperados: Wanted Dead or Alive / Desperados: Взять живым или ме
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +613,7 @@ Giants: Citizen Kabuto (2000) [Multi] (1.400) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545402.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,7 +639,7 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,7 +665,7 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,58 +676,6 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89660EB35E81C7F37B2479F53C4AE44C89F96C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154322   (542087) от 29.07.2017
-
-Battle Chess (1994) [En] (1.0) License GOG [Special Edition]
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battle Chess реализует идею живых шахмат в средневековом антураже. Фигуры имеют преимущественно человеческий облик (за исключением ладьи, которая представляет собой каменную башню, но при перемещении превращается в огромного голема), действия на доске сопровождаются соответствующей анимацией, при взятии разыгрывается бой между атакующей и защищающейся фигурами. В (   Читать дальше...   )Тип издания: LicenseРазработчик: Interplay ProductionsЖанр: Logic (Chess)Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC621BB62092290145D5D88B5934619BF42BDA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858709   (540418) от 06.08.2015
-
-Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f) Repack Mentaz
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир боли. Рай снова в опасности — ему угрожает дерзкая армия монстров из ада. И она ни перед чем не остановится. На этот раз только два героя могут спасти рай от полного разрушения: Дэниелю и Белиалу, двум чемпионам из предыдущих частей Painkiller, придется объединиться, чтобы положить конец старой вражде между раем и адом. К несчастью, армия ада (   Читать дальше...   )Тип издания: RepackРазработчик: Homegrown GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE681E75F3F6B46C5D664AA26B8F78269F58E49
 ```
 
 https://mybot314.ru/tekegram_catalog/

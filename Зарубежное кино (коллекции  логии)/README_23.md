@@ -1,3 +1,58 @@
+###  Публикация: 1575435   (154884) от 14.11.2023
+
+Робокоп / RoboCop (1987 / 1990 / 1992) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Американская супергеройская франшиза, представляющая футуристические приключения робота полицейского Алекса Мёрфи, офицера Детройта, штата Мичигана, которого убивает на задании банда Кларенса Боддикера. По поручению мощной мегакорпорации Omni Consumer Products труп Алекса превращают в киборга — названного Робокопом. Таким образом, Мёрфи сражается как с насильственными (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Tobor ProductionsЖанр: фантастика, боевик, триллер, криминалРежиссер: Пол Верховен, Ирвин Кершнер, Фред ДеккерАктеры: Питер Уэллер, Нэнси Аллен, Роберт Джон Бёрк, Дэн О’ХерлихиПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, Авторский, ЛюбительскийСубтитры: русские, английскиеПродолжительность: 01:43:19 | 01:56:40 | 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E0CE6670B0537DE506842DCEF51A2877485CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676524   (150619) от 17.11.2023
+
+Омен / The Omen (1976/1978/1981) BDRip [H.265/1080p] [10-bit] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Он был рождён в 6 часов 6 июня. Как предсказано в Книге откровений, настанет конец света, последнее противостояние сил добра и зла, и началом его будет рождение сына Сатаны в облике человеческом.
+У жены американского дипломата Роберта Торна рождается мёртвый ребенок, но мужчина неспособен сообщить ей трагическую новость, поэтому усыновляет младенца с родимым пятном (   Читать дальше...   )Дэмиену Торну теперь 32. Стремясь к власти над всем миром он предан только себе и своему родному отцу — Сатане. Чтобы достичь своей цели, он убивает всех на своем пути — будь то друг, враг, верный слуга или любовница.
+
+Темным силам противостоит лишь поклявшийся уничтожить дьявольское отродье старый монах с семью святыми кинжалами, выкованными специально для этого (   Читать дальше...   )Производство: UK, USA / Twentieth Century Fox Film CorporationЖанр: ужасы, детективРежиссер: Грэм БейкерАктеры: Сэм Нил, Россано Брацци, Дон Гордон, Лиза Хэрроу, Барнеби Холм, Мейсон Эдамс, Роберт Арден, Люин Уиллоби, Марк Бойл, Милош КирекПеревод: профессиональный (многоголосый закадровый), авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Английские, русские, китайские и другие языкиКачество: BDRip (1080)Продолжительность: 01:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF131A9F2A16185C39D283284EFA7AECB77A8180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 200014   (148128) от 24.12.2018
 
 Остин Пауэрс / Austin Powers (1997-2002) BDRip [H.264]  (трилогия)
@@ -6,7 +61,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -296,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4650538EE44A4E295575F6BD0989C82BB9EECB27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690886   (123726) от 09.01.2024
-
-Будни грузинских дорожников (Короткометражные фильмы Реваза (Резо) Габриадзе) (1974-1980) SATRip (серии 1-9 из 9) [H.264]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражные художественные фильмы Реваза (Резо) Габриадзе о веселых приключениях трех дорожных мастеров. Трудно дополнительно что-то сказать... Кто их видел - сразу вспомнит, а кто был слишком юн, или не родился ещё, то лучше один раз увидеть. Раньше (тогда!) часто показывали по телевизору смешные и трогательные истории про трёх друзей, работников асфальтовых (   Читать дальше...   )Производство: СССР, Грузия-фильмЖанр: короткометражка, комедияРежиссер: Баадур ЦуладзеАктеры: Кахи Кавсадзе, Гиви Берикашвили, Баадур ЦуладзеПеревод: ОтсутствуетЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C439C4EBF55BC2D1B3125D498AE900C6FCDAC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501154   (122680) от 16.01.2024
-
-Куб Трилогия: Куб, Куб 2. Гиперкуб, Куб Ноль / Cube, Cube 2: Hypercube, Cube Zero (1997-2004) [1080p,1080i] BDRip,HDTV
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа людей, которые никак друг с другом не связаны, неизвестным образом внезапно оказываются в странной кубической комнате, каждая грань которой снабжена люком, ведущим в другую такую же комнату. Единственная разница между комнатами — это их цвет и наличие разнообразных смертоносных ловушек. Совместными усилиями эти пятеро пытаются найти ключ к выходу из этого (   Читать дальше...   )Приквел культового философско-фантастического фильма "Куб"! Изоляция. Паника. Ужас. Любой кошмар имеет начало. Молодой человек, в чьи обязанности входит приглядывать за Кубом - чудовищным изобретением человечества, замечает невинную женщину, попавшую в ловушку в одной из комнат куба и решает попытаться спасти ее, несмотря на смертельную опасность, поджидающую (   Читать дальше...   )Жанр: Ужасы, фантастика, триллер, драма, детективРежиссер: Эрни БарбарашАктеры: Захари Беннет, Стефани Мур, Майкл Райли, Дэвид Хабэнд, Ричард МакМиллэн, Терри ХоуксПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D0D5DB5C2F7D1A6E2CCCF3E600017169318E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

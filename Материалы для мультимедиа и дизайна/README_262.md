@@ -1,3 +1,349 @@
+###  Публикация: 1180847   (337371) от 05.11.2017
+
+Векторный клипарт - Christmas vector banner with fir branches [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Рождественские векторные баннеры с пихтовыми ветвями и сверкающие красные шарики на фоне снега
+8 files EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FD5941512A4EF5AEE4B19D79096C0340B632B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581415   (337306) от 27.11.2012
+
+Шаблоны - Фотокнига Merry Christmas [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+11 PSD шаблонов зимней фотокниги - Merry Christmas. Сколько веселья и радости приносят нам новогодние и рождественские праздники! Запах ели, игрушки и подарки, конфеты и мандарины, папа в роли Деда Мороза! Фотографируйтесь и создавайте великолепные фотокниги о зимних праздниках! Слои закреплены.Формат: PSDРазрешение файлов: от 7085x3604 до 7854x4076
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC9429AB8CC420C2B88B28D9EBBF31E5981C008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840185   (337267) от 11.11.2014
+
+Векторный клипарт - Клоуны / Clowns [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красочные фигурки клоунов в векторе (36шт). Превью PNG и JPEG.Формат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAADE91531024FC4756DDE08246E453386C46F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180861   (337208) от 05.11.2017
+
+Векторный клипарт - Depositphotos - Winter Landscape [AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зимние пейзажи
+30 EPS/AI + PreviewФормат: AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F625F29415073A183D3819808A12607A40865C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180873   (337206) от 05.11.2017
+
+Растровый клипарт - Fotolia - Beautiful bride woman [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Свадебный портрет красивой невесты с вьющимися волосамиФормат: JPGРазрешение файлов: 3840x5760
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E89BF7B5CCF737E65691E70E49E45A0F76BE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180907   (337184) от 05.11.2017
+
+Шаблоны - Календарь с фоторамкой на 2018 год - Веселая компания [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Многослойная PSD Шаблон-рамка. для фото
+Автор: KoaressФормат: PSDРазрешение файлов: 3508x4961
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91386E9CEFBB98CDD5F9D2F53235DA21210FE062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180927   (337020) от 05.11.2017
+
+Экшены - GraphicRiver - Digitalbook Photoshop Action - 20875713 [ATN, ABR, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Digital book - Самый простой способ, чтобы стилизовать ваши изображения или фотографии с типографическим эффектом печатной продукции. Удачное решение для оформления всевозможных постеров для рекламных или декоративных целей. После того, как действие закончит работу, вы получите хорошо организованный и структурированный файл со множеством слоёв, папок с настройками, (   Читать дальше...   )Формат: ATN, ABR, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC946358975F103E01A0B26F1E49DB163AF76578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180914   (337002) от 05.11.2017
+
+Шаблоны - Календарь на 2018 год - Скоро сказка в дом войдет, скоро будет Новый год [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Многослойная PSD Шаблон-рамка. для фото
+Автор: lunar.elfФормат: PSDРазрешение файлов: 3508x4961
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EBEF4592BFE35D94840E419C1D878E27536E069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180893   (336893) от 05.11.2017
+
+Стили - GraphicRiver - 50 Bundle Dian_5 - 20823265 [ASL, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Большой пакет стилей для Photoshop.Формат: ASL, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:913FB85B0F551DA2193C6CAF044B5672CCF3549B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180863   (336886) от 05.11.2017
+
+Фоны и наложения - CreativeMarket - 45 fog and smoke photoshop overlays - 1937891 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+45 накладок тумана высокого качества для пост-обработки фото материала.Формат: JPGРазрешение файлов: 3840x2160 px
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABF4FFBE820213D310C5F59FDD0F2A9ABADF8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840191   (336709) от 11.11.2014
+
+Сборник - Абстрактные фоны и рамки / Abstract Backrounds & Frames [AI,EPS,JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Абстрактные фоны и рамкиФормат: AI,EPS,JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FD4B7EBB9DC5D9A4D3AF0F30B251FC09138DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955145   (336558) от 09.11.2015
+
+3D сцены - Evermotion - Archinteriors Vol. 036 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник сцен интерьеров от компании Evermotion!
+
+Данный сборник содержит 10 сцен, полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42B1C8DD4178DF08DC1FAA03A9F140BEC3C8BFFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330483   (336374) от 12.10.2019
+
+Waving Flags Bundle [PNG, AI, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник векторного и растрового клипарта флагов.Формат: PNG, AI, SVGРазрешение файлов: 785x959-1359x738
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACC2EFDBD58952658F226A52BE8A28E8311BD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258548   (336168) от 30.10.2018
 
 Экшены - GraphicRiver - Watercolor Splash Photoshop Action - 20114490 [ATN, ABR, PAT]
@@ -6,7 +352,7 @@
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -331,355 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB248E04BBBE72DFFB2743692D0581F31E2E0A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181213   (335371) от 06.11.2017
-
-Растровый клипарт - Steampunk #1 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт Steampunk на прозрачном фонеФормат: PNGРазрешение файлов: 85x299-1824x1866
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FEB55D05B1AF6D4CD88DAB09B3F144B7CC05A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181215   (335362) от 06.11.2017
-
-Векторный клипарт - Seamless vector gold ornament set [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Бесшовные вектор, золотой орнамент
-18 files EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08FB40117A312717193D6CD4A41C3370A45BA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180855   (335357) от 06.11.2017
-
-Векторный клипарт - Ornate Vintage Frames 48 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Старинные Рамы
-4 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FCCECBE1DC6619BE0B6644588604611B9C0812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840301   (335132) от 12.11.2014
-
-Векторный клипарт - Бактерии и Вирусы / Bacteria & Viruses [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бактерии и Вирусы
-(страшности - людей пугать  :wink: )Формат: EPS и превью в JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB693B19F6194408C1BAA26256B65F225A3618E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955334   (335007) от 10.11.2015
-
-Растровый клипарт - Отрисовки - Детки 2015 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Растровый клипарт с отрисовками детей. Подборка 2015 года.
-69 PNG файлаФормат: PNGРазрешение файлов: 2303х5000 - 5603х5000 pix
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546C8EC0E94E43B1869555BBFD10F1E359111D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181276   (334932) от 06.11.2017
-
-Экшены - GraphicRiver - Painting & Cartoon Effects - 20865260 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Painting & Cartoon Effects - простой в использовании экшен фотошоп в считанные минуты превратит ваши изображения в профессиональные художественные работы.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EBE9CC2A20FA9896003281B99718BC34993FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181090   (334911) от 06.11.2017
-
-Шаблоны - Подборка календарей на 2018 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334911.jpg" />
-</div>
-
-
-###  Подробнее
-
-подборка многослойных PSD шаблонов-рамок для фото
-от авторов lunar.elf, Koaress
-33штФормат: PSDРазрешение файлов: 2480x3508-5906x3543
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A1D944793343F0F2CBCEC3576E5102A7A9B506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181084   (334764) от 06.11.2017
-
-3D модели - 3DDD - Free models pack 2017 part 2 [Corona|V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky, загруженные пользователями оного!
-Данный же сборник содержит большое колличество самых разнообразных моделей со статусом FREE.
-Количество моделей: 1605Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49346C70D3F123DBF3D14F4CBA366CBB41C9F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955373   (334747) от 10.11.2015
-
-Растровый клипарт - Новогодние рамки и элементы [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодние рамки с вырезом под фото + немного элементов.
-23 PNG файлаФормат: PNGРазрешение файлов: 1971х1358 - 3600х3600 pix
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A63D1BF67DE2382595830679CA30338999AF5E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955286   (334723) от 10.11.2015
-
-Растровый клипарт - Скрап-набор ''Зона полетов'' [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительно красивый и нежный детский скрап-набор посвященный дню рождения.Формат: PNG, JPGРазрешение файлов: от 500х500 до 3600х3600 (300 dpi)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2B07D9877FAEAF227E5D26839995A11F192754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331112   (334665) от 13.10.2019
-
-JP Sample Line - Junior Porciuncula - Nord Stage 3 Ultimate Stage Pianos [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фортепиано для сэмплера Kontakt от Junior Porciuncula. Звуки, снятые с клавиатуры Nord, содержащие 43 фортепиано и 16 синтезаторов с современным скриптом, с возможностью легко менять пианино и синтезаторы.Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870E70135860C871CD527DC56CC03C3E58032363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331003   (334408) от 13.10.2019
-
-VfxCentral - Smokey Magic Effects [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smokey Magic Effects - 12 уникальных эффектов дыма. Предназначены для использования программах нелинейного видео монтажа.Формат: MOVРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3F1125440BB643E84D132A631BF57B0792AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331135   (334407) от 13.10.2019
-
-VfxCentral - 4K Bokeh Flares 20 Pack [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для создания этих потрясающих и уникальных эффектов бликов линз была задействована RED EPIC CAMERA. Клипы предназначены для использования в программах нелинейного видео монтажа с возможностью применения режимов наложения.Формат: MP4Разрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4DD1465B5FF31E5E60FFA08566EAA15B42A99C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1725958   (55303) от 26.05.2024
+
+Grimm Kumikyoku | The Grimm Variations | Вариации Гриммов [2024, ONA, 6 эп.] WEB-DL 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В антологию, созданную по мотивам сказок братьев Гримм, вошли шесть волшебных историй с мрачными поворотами сюжета, раскрывающих теневую сторону человеческих желаний.Производство: студия Wit Studio / ウィットスタジオЖанр: драма, триллер, ужасыПеревод: NetflixЯзык озвучки: Японский; Английский;Субтитры: Японские; Английские; Русские; Multi-SubПродолжительность: 6 эп. по 40 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE43B8DEF2F0F2358AF9CE2DC7B257011D947095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726106   (55219) от 27.05.2024
+
+Suki demo Kirai na Amanojaku | My Oni Girl | Моя подруга — демон [2024, Movie] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Хиираги Яцусэ, первокурсник старшей школы, который изо всех сил пытается завести друзей, несмотря на свои усилия угодить другим. Его жизнь принимает неожиданный поворот, когда однажды летним днем ​​он встречает Цумуги, девушку-они (демона), ищущую свою мать в человеческом мире. Таинственным образом начинает падать снег... и начинается их приключение.Производство: Япония, студия ColoridoЖанр: приключенияРежиссер: Томотака СибаямаПеревод: NetflixЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 94 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FF7573FCA82EB09D7ECB7BB873268435FE54AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726091   (55120) от 28.05.2024
+
+Garouden: The Way of the Lone Wolf | Легенда о голодных волках: Путь одинокого волка [2024, Web, 8 эп.] WEBRip 1080p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бегущего от преступного прошлого Джузо Фудзимаки шантажом заставляют принять участие в незаконном турнире, и ему предстоит сразиться с лучшими мастерами боевых искусств в смертельно опасных поединках.Производство: Япония, NazЖанр: приключения, экшенРежиссер: Итагаки АцусиПеревод: NetflixЯзык озвучки: Японский и английскийСубтитры: Английские; Русские; УкраинскиеПродолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4E0455517C9F90EFADF0AC96480C8303C19D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612865   (54622) от 02.06.2024
+
+Omamori Himari / Защитница Химари [2010, TV, 12 серий] BDrip Hi10p 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юто Амакава происходит из клана борцов с демонами, которые, как известно, существуют и делают все, чтобы извести немногих людей, способных причинить им вред. Родители мальчика погибли и успели лишь оставить маленькому сыну талисман, призванный хранить его от потусторонних сил – но только до 16 лет. Так Юто и дожил до совершеннолетия под присмотром подруги детства (   Читать дальше...   )Жанр: комедия, романтика, мистика, эттиРежиссер: Усиро СиндзиПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC26B6BEF5C5195295A31D0BFEAB35C72F2978E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712124   (53775) от 10.06.2024
 
 Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katte ni Ikiru Koto ni Shita / Бывший герой решил жить самостоятельно [2024, TV, 12] WEBRip 720p raw
@@ -6,7 +110,7 @@ Dekisokonai to Yobareta Moto Eiyuu wa, Jikka kara Tsuihou Sareta no de Suki Katt
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ One Room, Hiatari Futsuu, Tenshi-tsuki. / Studio Apartment, Good Lighting, Angel
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Boku no Kokoro no Yabai Yatsu | The Dangers in My Heart | Опасность в 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Jii-san Baa-san Wakagaeru / Grandpa and Grandma Turn Young Again / Дедушк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mahou Shoujo ni Akogarete | Gushing over Magical Girls | Становясь во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Re:Monster | Перерождение: Монстр [2024, TV, 12 эп.] WebRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Bartender: Kami no Glass | Bartender: Glass of God | Бармен: Бокал б
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Hananoi-kun to Koi no Yamai | A Condition Called Love | Любовная бол�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница эксц�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Astro Note | Записи Астро [2024, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ The Idolmaster Shiny Colors | Идолмастер: Яркие цвета [ТВ-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +450,7 @@ Shinigami Bocchan to Kuro Maid (2024) | The Duke of Death and His Maid (2024) | 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Kuroshitsuji: Kishuku Gakkou Hen | Black Butler: Public School Arc | Тёмны�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru / Переродившись арист
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +531,7 @@ Kami wa Game ni Uete Iru. / Gods' Games We Play / Богиня жаждет иг
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Unnamed Memory / Безымянное воспоминание [2024, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | П
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Date a Live V / Рандеву с Жизнью 5 [2024, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +639,7 @@ Kaii to Otome to Kamikakushi / Mysterious Disappearances / Мистика, юн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -561,7 +665,7 @@ Urusei Yatsura (2024) | Lum, the Invader Girl | Несносные пришел�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -572,110 +676,6 @@ Urusei Yatsura (2024) | Lum, the Invader Girl | Несносные пришел�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09C002697BE0D34BD5E35337949FDA74E34C9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714819   (51948) от 26.06.2024
-
-Seiyuu Radio no Uraomote/ The Many Sides of Voice Actor Radio / Другая сторона paдиocэйю [2024, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яcyми Утaтaнэ и Юxи Югypэ — cэйю-шкoльницы, вeдyщиe eжeнeдeльнyю paдиoпpoгpaммy. Kaк oднoклaccницы и cэйю, oни дeмoнcтpиpyют cлyшaтeлям cвoю бoльшyю дpyжбy. Пo кpaйнeй мepe, тaк кaжeтcя нa пepвый взгляд. Ha caмoм дeлe cпoкoйнaя дeвyшкa Чикa и вызывaющaя гяpy Юмикo — пoлныe пpoтивoпoлoжнocти и coвepшeннo нe вынocят дpyг дpyгa. Bнe эфиpa cыплютcя пocтoянныe ocкopблeния, (   Читать дальше...   )Жанр: комедия, повседневность.Режиссер: Татибана ХидэкиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC33EECECE2BDC547C799D4AA5326EB38E178137
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714273   (51944) от 26.06.2024
-
-Yoru no Kurage wa Oyogenai / Jellyfish Can't Swim in the Night / Медуза не может плавать ночью [2024, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёру Мицуки — иллюстратор, бросившая рисование, Нонока Тачибана — бывшая айдол, которая пытается заново найти себя в пении, Нокс Рюгасаки — самопровозглашенная «лучшая в мире» VTuber и Кимура-тян — загадочная композитор, желающая поддержать любимого человека. Они объединяются в анонимную арт-группу JELEE.Жанр: повседневность, музыкальный.Режиссер: Такэсита РёхэйЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9BBC04D6E6CB287C232AF76136E79B7C484C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714976   (51868) от 27.06.2024
-
-Kenka Dokugaku | Viral Hit | Борьба в прямом эфире [2024, TV, 12 эп.] WEBRip 720 raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51868.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эру компьютерных технологий блогеры с каждым днём обретают всё больше и больше популярности, зарабатывая на этом немалые деньги. Ю Хобин, неказистый старшеклассник, над которым издеваются в школе, в тайне завидует таким людям, а в особенности своим одноклассникам, известным в интернете. Всего один стрим или видео, и они могут позволить себе брендовую одежду, дорогую (   Читать дальше...   )Производство: студия Okuruto Noboru / オクルトノボルЖанр: приключенияРежиссер: Хисида МасакадзуПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Русские; Другие(CrunchyRoll Multisub)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5173AA3590EA92B0DD5216A7FDF743F3DA76CB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713106   (51770) от 28.06.2024
-
-Wind Breaker | Ветролом [2024, TV, 13 эп.] WEBRip 720 raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харука Сакура терпеть не может слабаков. Именно поэтому он поступил в старшую «Фурин», заработавшую себе репутацию школы с боями без правил, где ученики каждый день дерутся по причине и без. Его единственная цель — встать во главе этой полукриминальной школы. Какого же было удивление Сакуры, когда оказалось, что ученики здесь — всеми любимые защитники города, каждый (   Читать дальше...   )Производство: студия CloverWorksЖанр: приключенияРежиссер: Акай ТосифумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A22AF536EB1D19118717481EE26BF014539428
 ```
 
 https://mybot314.ru/tekegram_catalog/

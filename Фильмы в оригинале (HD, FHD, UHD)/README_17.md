@@ -1,3 +1,81 @@
+###  Публикация: 1124328   (785894) от 10.04.2017
+
+Бессонная ночь / Sleepless  (2017) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Коп со связями в преступном мире устраивает облаву в ночном клубе в поисках своего похищенного сына.Производство: СШАЖанр: боевик, триллерРежиссер: Баран бо ОдарАктеры: Мишель Монахэн, Гэбриэл Юнион, Дермот Малруни, Джейми Фокс, Скут МакНэри, Дэвид Харбор, Ти-Ай, Вероника МакКласки, Октавиус Дж. Джонсон, Тим Коннолли, Дрю Шир, Сала БэйкерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанские, французскиеПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA077C703F4C5E8A0FD4F17E539F459A08D36F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204569   (784582) от 06.02.2018
+
+Здравствуй, папа, Новый год! 2 / Daddy's Home 2 (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Отец и отчим, Дасти и Брэд, объединяются, чтобы организовать для своих детей идеальный рождественский праздник. Но их с горем пополам достигнутый нейтралитет оказывается под угрозой, когда к внукам приезжают олдскульный мачо-папаша Дасти и чувствительный и эмоциональный папочка Брэда. Они как нельзя кстати, чтобы превратить Рождество в кошмарный хаос.Производство: США, Paramount Pictures, Gary Sanchez Productions, Huahua MediaЖанр: КомедияРежиссер: Шон АндерсАктеры: Уилл Феррелл, Марк Уолберг, Мэл Гибсон, Джон Литгоу, Линда Карделлини, Алессандра Амброзио, Оуэн Ваккаро, Скарлет Эстевез, Диди Костин, Коннор УайзПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CE0B6A92A3BF1B1BE7BC100A33D4D3880B0584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204600   (784565) от 06.02.2018
+
+Темные времена / Darkest Hour (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+История о первом и решающем шаге Уинстона Черчилля на посту премьер-министра Великобритании, получившего власть при чрезвычайных обстоятельствах. Успехи нацистской армии взбудоражили британское сообщество, но вопреки давлению и страху других политиков Черчилль отказывается идти на соглашение с Гитлером.Производство: Великобритания, Perfect World Pictures, Working Title FilmsЖанр: Биография, Драма, История, ВоенныйРежиссер: Джо РайтАктеры: Гари Олдман, Кристин Скотт Томас, Бен Мендельсон, Лили Джеймс, Рональд Пикап, Стивен Диллэйн, Николас Джонс, Сэмюэл Уэст, Дэвид Скофилд, Ричард Ламсден ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97292504CC63842DDB3236903E778066CD0A1F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204334   (784541) от 06.02.2018
 
 Парадокс Кловерфилда / Частица Бога / The Cloverfield Paradox (2018) WEBRip [H.264/1080p-LQ] [EN / EN, POR, FRA, GER, ITA Sub]
@@ -6,7 +84,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE0C38AB76116CC463D385E5C1EFA7A244061FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207732   (780346) от 19.02.2018
-
-Смерть Сталина / The Death of Stalin (2017) WEB-DL [H.264/720p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780346.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!.. В общем, тоталитарная комедия в вольной трактовке.Производство: Великобритания, Франция / Quad Productions, Main Journey, GaumontЖанр: Комедия, ИсторияРежиссер: Армандо ИаннуччиАктеры: Андреа Райзборо, Джейсон Айзекс, Ольга Куриленко, Руперт Френд, Стив Бушеми, Джеффри Тэмбор, Пэдди Консидайн, Ричард Брэйк, Джонатан Арис, Майкл Пэйлин ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1B81943137B4F4802FBFD9EFC2314096772B34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207745   (780344) от 19.02.2018
-
-Смерть Сталина / The Death of Stalin (2017) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780344.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!.. В общем, тоталитарная комедия в вольной трактовке.Производство: Великобритания, Франция / Quad Productions, Main Journey, GaumontЖанр: Комедия, ИсторияРежиссер: Армандо ИаннуччиАктеры: Андреа Райзборо, Джейсон Айзекс, Ольга Куриленко, Руперт Френд, Стив Бушеми, Джеффри Тэмбор, Пэдди Консидайн, Ричард Брэйк, Джонатан Арис, Майкл Пэйлин ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CCDB05FDC5EDDCA66AB061C765700047B5E95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207785   (780334) от 19.02.2018
-
-Сердце из стали (Кровоточащая сталь) / Ji qi zhi xue / Bleeding Steel (2017) WEBRip [H.264/1080p-LQ] [EN, CHI / EN, CHI Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальный агент Линь, защищая гениального ученого, разрабатывавшего биологическое оружие, от внезапного нападения вооруженной группы элитных наёмников, возглавляемых беглым биороидом, получает тяжелые ранения и чудом остаётся жив, благодаря своевременной медицинской помощи и передовым технологиям. И теперь, работая под прикрытием, наш герой должен стать незримым (   Читать дальше...   )Производство: Китай, Гонконг / Heyi Pictures, Sparkle Roll Media, Village Roadshow Pictures AsiaЖанр: Боевик, Фантастика, ТриллерРежиссер: Чжан ЛицзяАктеры: Джеки Чан, Шоу Ло, Нана Оу-ян, Эрика Сяхоу, Каллэн Мулвей, Тесс Хобрич, Ким Джинджелл, Дэмиен Гарви, Боуи Лам, ElenaПеревод: ОтсутствуетЯзык озвучки: Английский, КитайскийСубтитры: Английские, Китайские (вшитые, не отключаемые)Продолжительность: 01:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140E9CF454CDB982DF5C8FA212184306B4B156F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

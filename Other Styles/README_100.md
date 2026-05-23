@@ -1,3 +1,206 @@
+###  Публикация: 1053009   (525966) от 17.09.2016
+
+Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Flight From The City (06:31)
+02. A Song For Europa (02:34)
+03. The Drowned World (02:21)
+04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157258   (525820) от 10.08.2017
+
+Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon
+2. Spirit of the Sea
+3. Renaissance Faire
+4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157274   (525466) от 11.08.2017
+
+Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Aesir (Ethnic Version) [04:49]
+02. Aesir (Orchestra) [04:50]
+03. Aesir (Instrumental) [04:51]
+04. Archangel (Instrumental) [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAACC363C457698011363A940A3CCDFD1CCA143D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 370570   (525281) от 02.08.2011
+
+VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Hava Nagila
+002. Israel
+003. Lamce Ram Ciam
+004. Ba Aretz(   Читать дальше...   )Жанр: FolkПродолжительность: 06:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157484   (525218) от 12.08.2017
+
+Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Better Than Myself
+2. Hellbent Hallelujah
+3. More Than Survival
+4. Freak Flag(   Читать дальше...   )Жанр: CountryПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927331   (524848) от 13.08.2015
+
+Era - The Best Of (2013) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix)
+02. Don't Go Away
+03. The Mass
+04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5001ACFBA474E11F7B4C8C43AFA35776B55C4C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927209   (524847) от 13.08.2015
+
+Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (Remix)
+02. Don't Go Away
+03. The Mass
+04. Mother (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C306D3B1FCE6FA62B9C671497A226DF1D0CB0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240433   (524462) от 12.08.2018
 
 VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian Samba, Reggaeton>
@@ -6,7 +209,7 @@ VA - Latin Fitness:Summer Edition (2018) [MP3|320 Kbps] <Rumba, Salsa, Brazilian
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Hildur Gudnadottir - Chernobyl / Чернобыль (Music from the HBO Miniseri
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Heilung - Discography 4 Releases (2015-2019) [FLAC|Lossless|tracks+.cue, tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Rondo Classico - Carnevalo (1990) [FLAC|Lossless|image + .cue] <Instrumental, Cl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Rondo Classico - Yellow River (2002) [FLAC|Lossless|image + .cue] <Instrumental,
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Sy
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, A
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +499,7 @@ Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native ame
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +525,7 @@ Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +554,7 @@ Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +583,7 @@ Kevin Monaco - Endless Sky (2018) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +612,7 @@ Atom Music Audio - Urban Warfare: Action Sci-Fi Epic Tracks (2018) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -438,7 +641,7 @@ Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +676,7 @@ Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Pian
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +705,7 @@ VA - Absolute 60's (2018) [MP3|320 Kbps] <Blue-Eyed Soul, Rhythm and Blues, Schl
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +734,7 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,209 +748,6 @@ VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:230318E1CD56D768B4E7C5B3DC185AB31EFEF381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241204   (518122) от 19.08.2018
-
-VA - 70's Soul: Classic Singles (2018) [MP3|320 Kbps] <Soul, Disco, Philly Soul, Rhythm and Blues, Funk>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben E. King - Supernatural Thing
-02. Donny Hathaway - The Ghetto
-03. Aretha Franklin - Im In Love
-04. Wilson Pickett - Engine Number 9(   Читать дальше...   )Жанр: Soul, Disco, Philly Soul, Rhythm and Blues, FunkПродолжительность: 01:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEBDB44C38333EDA6BCFF59C435DC72594A4D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314390   (518071) от 15.07.2019
-
-VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дарья Антонюк - Круг жизни (04:02)
-02. Hans Zimmer - Life's Not Fair (01:44)
-03. Hans Zimmer - Rafiki's Fireflies (01:53)
-04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1F1A650AECDCA185AD1AEFFC6E98F0A800E40A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314389   (517971) от 15.07.2019
-
-VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дарья Антонюк - Круг жизни (04:02)
-02. Hans Zimmer - Life's Not Fair (01:44)
-03. Hans Zimmer - Rafiki's Fireflies (01:53)
-04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCD54BE20175793046177C97202302C0D20EDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314716   (517031) от 16.07.2019
-
-Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517031.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Shaman's Dream (8:18)
-2.Running Barefoot (7:58)
-3.White Wolf Vision Quest (12:32)
-4.The Song of the Wind (8:20)(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F98E6DEEDFCEFED012DF431310140F59598E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314693   (516956) от 16.07.2019
-
-Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Electonic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Of Worlds
-02. Listening To A Rain
-03. Dreamland Express
-04. Return(   Читать дальше...   )Жанр: Electonic, New AgeПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314748   (516955) от 16.07.2019
-
-Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
-02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
-03. Wilbert Roget, II - Netherrealm Incursion (03:43)
-04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847D57A3360499193E561267777E218ADC0B15B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314749   (516948) от 16.07.2019
-
-Wilbert Roget, II - Mortal Kombat 11 (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilbert Roget, II - A Matter of Time (Mortal Kombat 11 Main Theme) (04:02)
-02. Wilbert Roget, II - Raiden's Wrath ~ Family Business (03:35)
-03. Wilbert Roget, II - Netherrealm Incursion (03:43)
-04. Wilbert Roget, II - Broken Blade ~ Kronika Revealed (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E9BD7D9600DB23B7E3B08F3BA949936330DD6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,342 @@
+###  Публикация: 1041448   (583173) от 08.08.2016
+
+Текстуры - CreativeMarket - Bokeh Blur Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Премиум текстуры для вашего творчества.Формат: JPGРазрешение файлов: 4500х3000 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E6E5962FE0AC91C32BCC50948A46CAC34D7CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041442   (583118) от 08.08.2016
+
+Текстуры - CreativeMarket - 169 Massive Premium Textures [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Премиум текстуры для вашего творчества.Формат: JPG, PNGРазрешение файлов: 2000х1200 - 3000х2500 / 300 dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4463FDD0D6CC1F4979F12E59868859EDA9F6CC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302011   (583077) от 13.05.2019
+
+Звуковые библиотеки - Epic Stock Media - Epic Movie Trailer [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Epic Movie Trailer -  сладкий и пряный кинематографический звуковой пакет SFX, который наполнен глубокими дозвуковыми ударами, прерывистыми басовыми ударами с гибридным кинематографическим звуком. Этот пакет готов подсластить Ваш следующий трейлер, игру, фильм и так далее.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5F00993F6BC0AD0267D0FA369C0FAE2C6522AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359235   (582717) от 05.07.2011
+
+Растровый клипарт - Японские мечи, древнее холодное оружие и антикварные боевые веера [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Японское старинное оружие: цубы для мечей, мечи катана и вакидзаси, антикварные боевые веера японских самураев. Каждый на отдельном слое на двух листах, всего 54 предмета, слои отключены.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50463BE8F2F9F34FC686B6867BC7FD5816F823F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919162   (582629) от 19.07.2015
+
+Boom Library - TROPICAL FORESTS [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Tropical Forests - эта седьмая библиотека звуковых эффектов в экстраординарной серии качественных и увлекательных записей природы от звукорежиссера Gordon Hempton.Для компиляции этого уникального сокровища тропических лесов, Хемптон не жалел усилий, Он искал места на земном шаре более трех десятилетий, чтобы записать звуки природы в наиболее древнем аспекте, и собрать (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023C479AF14FF2285ACC434B725A8C05E00C953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919170   (582628) от 19.07.2015
+
+Boom Library - PRAIRIES [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Prairies - библиотека высокого качества звуков удивительной природы, более чем 5 часов и состоящая из 105 файлов. Вы наверняка найдете то, что вам нужно. Библиотека содержит звуки различных животных,щебетание птиц, жужжание насекомых, воющих койотов.
+Собрание био-акустических сокровищ прерий включает, например: различных коренных животных, таких как широкий спектр (   Читать дальше...   )Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0502AC36C3D3129FD7AFE259662BC3BA2B2E572F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810762   (582361) от 06.08.2014
+
+Векторный клипарт - Львы / Lions [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Львы / LionsФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289B487FD0394B11CC099D4A8F2ED3D396A5647B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041681   (582345) от 09.08.2016
+
+Экшены - GraphicRiver - Bat Explosion Action [ATN, ABR, GRD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bat Explosion - экшен для Вашего творчества.Формат: ATN, ABR, GRD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663DCC5A856BAFEC82FF3518FC1D8ADBC7823FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810642   (582322) от 06.08.2014
+
+Растровый клипарт - Эффекты: Вспышки молний / Thunder Lightning Effects [PNG,PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эффекты: Вспышки молнийФормат: PNG,PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F28FA346EB53D1AE589111BF11B055B8F177B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302092   (582212) от 14.05.2019
+
+Растровый клипарт - Fishes #01 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт рыбки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 258x232-4999x2822
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F012DABA863780DA704547D13C05BB4E752ADD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302169   (582202) от 14.05.2019
+
+Растровый клипарт - Cute Kitty #20 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт милые кошечки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 170x300-1200x1217
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70DF8E9B6AAB673298AD47A2B1FF8516DCE97AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302096   (582196) от 14.05.2019
+
+Растровый клипарт - Flora #01 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт флора для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 188x700-1600x1236
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8328634AFB74ECD25F94376C0507698AC2BF36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302090   (582184) от 14.05.2019
+
+Растровый клипарт - Fantaisy #03 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт фентази для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 151x398-890x878
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B47C2CB6E34F55F741193108951EF7034602D821
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301890   (582152) от 14.05.2019
 
 Растровый клипарт - Elements #11 [PNG]
@@ -6,7 +345,7 @@
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +528,7 @@ Mattias Westlund - Sonatina Symphonic Orchestra (2011)
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -342,344 +681,6 @@ PSD клипарт для фотошопа облака и небо, облак�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5BA5E10EC6ACD44AEE7B516729DBD207798D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302803   (579324) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [LWO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LWO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449D88003EDF9FD1D598127FECBA04790A4E33C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302819   (579323) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [LXO]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: LXO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FCB53ACA9A523ACE2D4DF7EFB51F5E65C99F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302807   (579321) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [ATL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: ATL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91036D31A970151825E4794C6E46F9B2CD08657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302811   (579318) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [DAE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: DAE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD22A46604A54515A9A75351F831D72D0EECA3AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042509   (579310) от 12.08.2016
-
-Текстуры - Wall, gloomy background 2 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры объёмных стен для вашего творчества.Формат: JPGРазрешение файлов: 4500х2000 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF27958D3947390CB03FDA9AD9B496F79A92051A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042492   (579307) от 12.08.2016
-
-Текстуры - Old Urban Street Billboard [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры для вашего творчества.Формат: JPGРазрешение файлов: 3500х3500 - 6000х4000 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E337CEA7D098504A57909EE3767849DF84F3AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302825   (579274) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [U3D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: U3D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DB91393F9D2247CD1328A37BD8418EA570F342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302828   (579268) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599D713E8EC5F763574E3D00E9AA977CF60221AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302800   (579261) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [MAX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: MAX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282DEB418923AFC66ADD751E1FA8BB334330D44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042516   (579248) от 12.08.2016
-
-Текстуры - Wall, gloomy background 3 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры объёмных стен для вашего творчества.Формат: JPGРазрешение файлов: 4500х2000 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F60296002AF863D2E34762C26139B6BC437091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302802   (579205) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE166DE46C693F77B2676BBC0FB35E9FFCCE225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302824   (579144) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA48EC0E5B9A9C2A72C27E61A5D86D8758D7EB35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302829   (579141) от 17.05.2019
-
-3D модели - CGTrader - Dosch 3D - Heavy Machines [XSI]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: XSI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B8A7B431E9C48D72E80D035F09A5F6A3AEE616
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,109 +1,3 @@
-###  Публикация: 1242415   (515128) от 22.08.2018
-
-Святослав Сахарнов | Гак и Буртик в Стране бездельников (1964) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть где-то на востоке легендарная Страна Семи городов. Живут в ней мастера на все руки - плотники и ткачи, инженеры и механики, врачи и писатели. Нет места лени и безделью в Стране Семи городов! Однажды Глеб Смола и его друзья - мастер Буртик и мастер Гак - построили удивительный летающий корабль…
-Художник Юрий Вячеславович Смольников.Жанр: Сказки народов мираФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5B4DD57107F86B3DA65D3F7F321205D34059B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315354   (513970) от 19.07.2019
-
-Николай Семёнович Лесков | Повесть о богоугодном дровоколе (2013) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои рассказов Н.С. Лескова, вошедших в эту книгу — люди простые и безыскусные, стяжавшие великое смирение. А эта добродетель украшает всех праведников, которых любит Господь (см. Пс. 145, 8), хотя часто они могут казаться окружающим безумцами.
-Для среднего и старшего школьного возраста.Жанр: Религиозное духовно-просветительское издание для детейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4995E0679BB84961C59B683B29BD8B5CE1BC18BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242159   (513161) от 24.08.2018
-
-Борис Сергуненков | Лесные сторожа (1973) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание известной повести о жизни лесника на кордоне, об охране леса.Жанр: Проза для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6393D6B2C7ACFE0143AC0AE2F0B8293CB5DCDD70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931113   (513018) от 25.08.2015
-
-Иаков Глатц | Новые повести в пользу и удовольствие детей (1827) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второе издание весьма популярной в свое время детской книги предваряется предисловием автора: «Второе издание сей книжечки мною исправлено и умножено двумя вновь прибавленными к прежним повестями. Желаю, чтобы и сие издание принято было столь же благосклонно, как и первое». Русский переводчик, не пожелавший указывать своего имени, также приписывает к этому несколько (   Читать дальше...   )Жанр: Детская иллюстрированная книга XIX века, раритетФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A277A391BDAF1C920DA3E4678782CEAA5F59079B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931154   (512878) от 25.08.2015
 
 Чарльз Диккенс | Рождественская песня в прозе (1891) [PDF, DJVU]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -669,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,6 +576,111 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91FD932950D8A32D0E6675411944593989EB87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932101   (510270) от 28.08.2015
+
+Юрий Сотник | На школьном дворе. Приключение не удалось (1986) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книгу входит новая повесть «На школьном дворе» и ранее издававшаяся «Приключение не удалось».
+В новой.повести рассказывается о жизни школьников в небольшом сибирском городке, о директоре школы, человеке разностороннем, влюбленном в свое дело, который не только учит, но и воспитывает детей, увлекая их общественно-полезными делами. Эта повесть о любви учеников к (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DE38D81CFDD73B693F1D3C453622ED411237B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932066   (510264) от 28.08.2015
+
+Ганс Андерсен | Свинопас (1922) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обычно в описании книги Г. Х. Андерсена «Свинопас», иллюстрированной М. В. Добужинским, указывают годы издания 1921 — 1922, так как известны три варианта этого издания, трудно различимые даже для специалистов. В процессе работы художник демонстрирует своё мастерство иллюстратора, создавая целостный образ книги. Она мыслится как органичное сочетание всех графических (   Читать дальше...   )Жанр: Детская иллюстрированная книга XX века, сказкаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977D4CFA6C96E45CE1BFEF641859EB5F9896C313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932043   (510263) от 28.08.2015
+
+М.Ю. Лермонтов | Спор (1913) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Об атмосфере общения издателя с петербургскими художниками той поры сохранилось свидетельство художника Д.И. Митрохина: «Когда приезжал из Москвы И.Н. Кнебель, то собрания наши затягивались до 5 часов утра; распределялись работы, намечались книги для иллюстрирования... Предполагалось иллюстрировать классиков нашей литературы...». Одной из таких книг стала и эта, (   Читать дальше...   )Жанр: Детская иллюстрированная книга XX века, стихи, раритетФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC78FE26C16DA24C6BA0A44A92D1D2F621E7F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932085   (510189) от 28.08.2015
+
+Елена Журек | Сказки Изумрудного Леса (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Изумрудном Лесу происходят удивительные события. С маленькими друзьями – Зайчонком, Лисенком, Ежонком, Бельчонком и другими – случаются самые невероятные приключения. Они становятся настоящими следопытами, спасают заблудившегося котенка, знакомятся с эльфами и ловят падающие звезды. Друзья всегда выручают друг друга из беды, а помогает им Мудрая Сова и ее бездонный (   Читать дальше...   )Жанр: СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8473DEE90C4D75DF9AFCED20CE7B3DA4DEB2F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

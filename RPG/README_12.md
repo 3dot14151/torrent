@@ -1,3 +1,81 @@
+###  Публикация: 1111576   (847941) от 05.03.2017
+
+Ultima 9: Ascension (1999) [En] (1.00) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь отправиться в приключение, завершающее сагу Ultima – сверхпопулярную серию ролевых игр, на которых выросло не одно поколение игроков. Британния зовет – и вы, отважный Аватар, должны в последний раз спасти лорда Бритиша и его народ от зловещего Стража, принесшего в волшебную страну хаос и разрушение. Боевые навыки, владение магией и знание восьми добродетелей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Origin SystemsЖанр: Ролевая игра, Экшн, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D584E9D1C80FEAECA039682813D082DBEE052514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111477   (847761) от 05.03.2017
+
+Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Весь мир - театр, а люди в нём - актёры? Только не здесь! Здесь мир - тюрьма, и люди в нём - заключённые. И именно отсюда берёт своё начало великая легенда. Всё началось с войны с орками, для победы в которой людям была нужна руда. Её добывали заключённые, у которых отняли будущее: жестокий король приказал магам навечно закрыть их на рудниках под волшебным куполом. (   Читать дальше...   )Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63400F18A4A42F1E8056B2446867E1708FCD13E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111398   (847755) от 05.03.2017
+
+Gothic II: Gold Edition / Готика 2: Золотое издание (2005) [Multi] (2.6/2.7/dlc) License PROPHET
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Gothic II: Золотое Издание включает оригинальную игру Gothic II и официальное дополнение "Ночь Ворона"! Вы уничтожили магический барьер и освободили заключённых Долины Рудников. Вырвавшиеся на свободу бывшие заключённые стали терроризировать окрестности города Хоринис. У городского ополчения слишком мало сил, чтобы бороться с преступниками за пределами (   Читать дальше...   )Тип издания: LicenseРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2616DDBB3C79005EFCC612321B61AEF3A26A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 687623   (846696) от 27.03.2014
 
 The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack R.G. Catalyst
@@ -6,7 +84,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/Multi] (1.2.73c/7dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Iratus: Lord of the Dead (2020) [Ru/Multi] (1.0) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ BELOW (2018) [Ru/Multi] (1.1.0.82) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Rustler (2021) [Ru/Multi] (1.02.01) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Hyper Light Drifter (2016) [En] (1.0) License HI2U
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Divinity: Original Sin (2015) [Ru/Multi] (2.0.119.430/dlc) Repack =nemos= [Enhan
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Middle-earth Shadow of Mordor / Средиземье Тени Мордора (20
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Mana Spark (2018) [Ru/Multi] (1.1.08) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ Vagrus - The Riven Realms (2021) [En] (1.0.00.1004H) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Atelier Firis: The Alchemist and the Mysterious Journey (2017) [En] (1.0.0.9/dlc
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ The Incredible Adventures of Van Helsing II/2 / Van Helsing 2: Смерти во
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Torment: Tides of Numenera (2017) [Ru/En] (1.0.1/dlc) Repack R.G. Механик
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +399,7 @@ Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -347,7 +425,7 @@ Shadowrun: Dragonfall (2014) [Ru/En] (2.1.1.8) License GOG [Director's Cut]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -373,7 +451,7 @@ Children of Zodiarcs (2017) [Multi] (1.0.3.7-2f11118c226f) License GOG [Collecto
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Convoy (2015) [Ru/En] (1.1.51) Repack ARMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.10/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -451,7 +529,7 @@ Fallout [Ru] (P) 1997
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -477,7 +555,7 @@ Dungeon Encounters (2021) [Multi] (7222979) License DARKSiDERS
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -503,7 +581,7 @@ The Tenth Line (2017) [En] (1.0.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -529,7 +607,7 @@ DeathSpank Trilogy (2010-2011) [Ru/En] (1.0/dlc) Lossless Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -555,7 +633,7 @@ Wintermoor Tactics Club (2020) [En] (2020-05-04/dlc) License GOG [Wintermost Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -581,7 +659,7 @@ Dex (2015) [Multi] (5.3.0.0/dlc) Repack R.G. Механики [Enhanced Version]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -592,84 +670,6 @@ Dex - это двухмерный киберпанковский экшен с �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E23F17C67DA54A6F339B51A2DAA79E3DE8D6E62C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196376   (823728) от 02.01.2018
-
-Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бои игры Dragon’s Dogma: Dark Arisen разворачиваются в огромном открытом мире. Игроки отправляются в эпическое приключение по живописному краю с тремя ИИ-спутниками - «пешками». «Пешки» сражаются сами по себе, вырабатывая сноровку и боевое умение на основе черт, перенятых от того или иного игрока. Игроки могут публиковать своих «пешек», получая в обмен ценности, (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C511B3FD09D00E3C47BE54D5A72C68876BCCAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503032   (822695) от 17.10.2021
-
-Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшенная версия игры 2016-го Megadimension Neptunia VII предлагает графические красоты нового движка, обновленную боевую систему и совершенно новый опыт игры в VR. Наконец-то, игровые измерения объединились с вашим! Проводите время один на один с каждой из богинь Gamindustri, слушайте их разговоры и смотрите, как богини реагируют на вас.Тип издания: LicenseРазработчик: Idea Factory, Inc.Жанр: Ролевая игра, Пошаговая, JRPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9CFF5F56C6ED1A2FBF13E14EB72A2A4BF177E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116877   (820216) от 21.03.2017
-
-Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820216.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Tyranny великая битва между добром и злом уже завершилась: силы зла под командованием Владыки Кироса победили. Безжалостные армии Владыки держат в подчинении весь мир, а жители разрушенного войной королевства привыкают к новому порядку. Но раздор начинает прорастать в рядах самых могущественных архонтов Кироса.Тип издания: SteamRipРазработчик: Obsidian EntertainmentЖанр: RPG, Isometric, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8D2A7576CB7EE858FF070EF7CF277DBC9CA016
 ```
 
 https://mybot314.ru/tekegram_catalog/

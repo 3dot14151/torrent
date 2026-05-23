@@ -1,3 +1,55 @@
+###  Публикация: 1436477   (1042457) от 03.01.2021
+
+Леденящие душу приключения Сабрины / Chilling Adventures of Sabrina (2020) WEBRip [H.264/1080p-LQ] (сезон 4, серии 1-8 из 8) LakeFilms [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ведьма Сабрина пытается найти истинную себя между натурами смертной и ведьмы, при этом ей придётся противостоять злым силам, которые угрожают ей, её семье и всему миру людейПроизводство: США, Warner Bros. TelevisionЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роб Шейденгланц, Алекс Пиллаи, Крэйг Уилльям МакнейллАктеры: Кирнан Шипка, Росс Линч, Люси Дэвис, Чэнс Пердомо, Мишель Гомес, Джаз Синклер, Тати Габриэль, Аделин Рудольф, Ричард Койл, Миранда ОттоПеревод: Двуголосый любительский (LakeFilms)Субтитры: отсутствуютПродолжительность: ~01:00:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABA2726AA39A4C609D15EC4098CBF3B107EDD41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436499   (1042244) от 04.01.2021
+
+Леденящие душу приключения Сабрины / Chilling Adventures of Sabrina (2020) WEBRip [H.264/720p-LQ] (сезон 4, серии 1-8 из 8) Gears Media [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ведьма Сабрина пытается найти истинную себя между натурами смертной и ведьмы, при этом ей придётся противостоять злым силам, которые угрожают ей, её семье и всему миру людей.Производство: США / Archie Comics Publications, Warner Bros. TelevisionЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роб Шейденгланц, Алекс Пиллаи, Крэйг Уилльям МакнейллАктеры: Кирнан Шипка, Росс Линч, Люси Дэвис, Чэнс Пердомо, Мишель Гомес, Джаз Синклер, Тати Габриэль, Аделин Рудольф, Ричард Койл, Миранда ОттоПеревод: Двуголосый профессиональный (Gears Media)Продолжительность: ~01:00:00 серияРеклама: присутствуют видео, аудио, текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E326E1F691E4FB77393D5E042DD0219ED25BEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436500   (1042234) от 04.01.2021
 
 Леденящие душу приключения Сабрины / Chilling Adventures of Sabrina (2020) WEBRip (сезон 4, серии 1-8 из 8) Gears Media [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:788C6B0BD675AF700A1A6D1B27D06B09A66AFDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447312   (1031772) от 13.02.2021
-
-Король / Krol (2020) WEBRip (сезон 1, серии 1-8 из 8) Ultradox [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Варшава, 1937 год. Над Европой навис призрак фашизма. Город контролирует еврейская банда во главе с польским социалистом Кумом Каплицей. Главный герой — боксер Якуб Шапиро, любимец варшавских женщин и источник ревности и страха многих мужчин. Якуб втайне мечтает сменить Кума и стать криминальным королём Варшавы.Производство: Польша / Aurum Film, Canal+ PolskaЖанр: криминалРежиссер: Ян П. МатушинскийАктеры: Лена Гора, Миколай Кубацкий, Piotr Pacek, Александра Писула, Pawel Wolak, Аркадиуш Якубик, Борис Шиц, Михал Журавски, Andrzej Klak, Барбара КужайПеревод: Многоголосый любительский (Ultradox)Язык озвучки: русскийСубтитры: Польские (hardsub)Продолжительность: ~01:05:00 серияРеклама: Присутствует баннер и текстовые вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F5DD08843860C1DFD5C3497CB5393772043460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447569   (1031616) от 14.02.2021
-
-Капитани / Capitani (2019) WEBRip (сезон 1, серии 1-12 из 12) Baibako [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031616.jpg" />
-</div>
-
-
-###  Подробнее
-
-В люксембургской деревне, где у каждого есть секреты, инспектор полиции Люк Капитани расследует подозрительную смерть 15-летней девочки.Производство: Люксембург / Artémis Productions, Film Fund Luxembourg, RTL LuxembourgЖанр: криминалРежиссер: Кристоф ВагнерАктеры: Люк Шилтц, Софи Мусель, Клод Де Демо, Joe Dennenwald, Konstantin Rommelfangen, Жюль Вернер, Jil Devresse, Julie Kieffer, Бригитта Урхаузен, Тимо ВагнерПеревод: Многоголосый профессиональный (Baibako)Язык озвучки: русскийПродолжительность: ~00:30:00 серияРеклама: присутствуют вставки рекламы (аудио / видео / баннер)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B244CAC8DB76546D99F12E0CE55CB062533E846
 ```
 
 https://mybot314.ru/tekegram_catalog/

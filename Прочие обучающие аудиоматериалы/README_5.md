@@ -1,3 +1,111 @@
+###  Публикация: 1840929   (1047748) от 08.12.2025
+
+Виталий Третьяков | Как стать знаменитым журналистом (2025) [MP3, Филипп Матвеев-Витовский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Декан Высшей школы телевидения МГУ простым языком объясняет все тонкости профессии.
+Практическое руководство для тех, кто хочет добиться успеха в журналистике, избежав главных ошибок.
+Быть журналистом – не просто ремесло, это мастерство, которому можно и нужно учиться!
+Как стать настоящим, честным журналистом, расскажет Виталий Товиевич Третьяков, декан Высшей школы (   Читать дальше...   )Жанр: Выбор профессии, Журналистика, История журналистики, Писательское мастерствоИздательство: АСТПродолжительность: 13:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8119B7BCA1EB3698CA77D01E58B54D212459FA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840770   (1047458) от 07.12.2025
+
+Александр Прасол | Роботы. История развития машин (2025) [MP3, Максим Полтавский]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+От древних механизмов до искусственного интеллекта – захватывающая эволюция роботов. Как они изменили мир и что ждет человечество в эпоху умных машин?
+В этой книге представлен путь развития робототехники: от первых и самых примитивных механизмов до современных моделей, способных выполнять даже самые сложные задачи. Вы познакомитесь с большим и интересным миром роботов, (   Читать дальше...   )Жанр: Будущее и технологии, Высокие технологии, Информационные технологии (IT)Издательство: АСТПродолжительность: 04:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1990D684B86BE325BAF2DF16E57A8D3EDB76F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840262   (1047103) от 04.12.2025
+
+Роберт Вольке | О чем Эйнштейн рассказал своему повару (2019) [MP3, Арсений Лес]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Еда является для нас чем-то обыденным, мы редко задумываемся о том, что и как мы едим, что происходит с блюдами и продуктами до того, как они появляются на нашем столе, почему одни из них нам нравятся больше, другие меньше, почему одни из них полезны, а другие нет. Между тем каждый день на кухне случаются чудеса, которых мы не замечаем. Автор доходчиво, просто и (   Читать дальше...   )Жанр: Научно-популярная литература, кулинарияИздательство: Аудиокнига своими рукамиПродолжительность: 11:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99D027F393DB738203CE48B93432CD3E52250C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840122   (1047078) от 03.12.2025
+
+Михаил Ярин | Навыки выживания в дикой природе: Карманное руководство (2025) [MP3, Пётр Власов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если вы заблудились в лесу? Как развести костёр без спичек и подать сигнал спасателям? Михаил Ярин, эксперт с многолетним личным опытом походов и практики в условиях дикой природы, даёт ясные и проверенные рекомендации, которые могут спасти жизнь. Аудиокнига учит главному: сохранять физическое и психическое здоровье в экстремальной ситуации до прибытия (   Читать дальше...   )Жанр: Дикая природа, Искусство выживания, РуководстваИздательство: Альпина ПаблишерПродолжительность: 03:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A4C012698DADDCC19999CEFC8FBC4B20599E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840128   (1047076) от 03.12.2025
 
 Александр Невзоров | Происхождение гениальности и фашизма (2024) [MP3, Александр Невзоров]
@@ -6,7 +114,7 @@
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -505,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -568,112 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:536129652880AA637661DEEF9018F60421B32E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611552   (1041080) от 12.02.2023
-
-Клиффорд Пиковер | Искусственный интеллект (2022) [MP3, Станислав Концевич]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга рассказывает о том, как человечество постепенно, шаг за шагом шло к созданию искусственного интеллекта и как он стал неотъемлемой частью нашей жизни. Как представляли себе искусственный разум ученые, философы и писатели разных эпох? Какие механизмы создавали наши предки, чтобы облегчить решение умственных задач, и в чем сегодня алгоритмы превосходят нас (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 05:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F657C0E4BEF9AC6D5C785F1A58752BF53C8130EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611783   (1040757) от 13.02.2023
-
-Даршини Дэвид | Доллар всемогущий (2021) [MP3, Алексей Шмелев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы никогда не задумывались, почему мы можем позволить себе гораздо больше одежды, чем наши деды, но не дом, в котором ее хранить? Почему цена бензина может удвоиться за несколько месяцев, а падает гораздо медленнее? Почему правительства тех или иных стран игнорируют одни ужасные конфликты, происходящие на планете, но не стесняются вмешиваться в другие?
-За всем этим (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураПродолжительность: 09:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03CFB66A16A32CA3A95E72D8416CC1B7D18C792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612789   (1039881) от 17.02.2023
-
-Хоуп  Джарен | Темная сторона изобилия (2021) [MP3, Мария Ермакова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039881.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последние 50 лет население планеты удвоилось, производство пищи утроилось, потребление энергии выросло в четыре раза. Это спровоцировало климатические проблемы, большая часть из которых необратимы.
-Геохимик, профессор Университета Осло и автор бестселлера «Девушка из лаборатории» Хоуп Джарен провела основательное исследование. Опираясь на статистику, цифры и факты, (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 05:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EA76127B8B77EE09BD3D2CB8AB74C308B8EFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425107   (1039296) от 15.01.2021
-
-Диана Лиф Кристиан | Творим совместную жизнь, или Как создать Экопоселение или Общину Вашей Мечты (2020) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настольная книга создателей альтернативных поселений и идейных общин, таких как: кохаузинг, эко-поселение, коммуна и т.п. В книге рассмотрен опыт создания многих альтернативных поселений, обобщены правильные практики и рассмотрены допущенные ошибки.Тип издания: аудиокнига своими рукамиЖанр: Кохаузинг, Эко-поселение, Идейная общинаПеревод: Ольховой Дмитрий, Загоруйко Оксана, Болгаре Диана, Ольховой ПавелПродолжительность: 17:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633B64198793DA84012B9BA07C4DBF80D8DA65B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

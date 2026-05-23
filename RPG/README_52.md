@@ -1,3 +1,81 @@
+###  Публикация: 1717649   (59004) от 21.04.2024
+
+Lotus Lantern: Rescue Mother (2024) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+otus Lantern: Rescue Mother - это игра-рогалик с видом сверху, вдохновленная китайской мифологией. Игрокам предстоит пережить путешествие Чэньсяна, спасающего свою мать Саньшэнму после овладения навыками боевых искусств у Сунь Укуна. Игра, вдохновленная китайской мифологией. Игрокам предстоит пережить путешествие Чэньсяна, спасающего свою мать Саньшэнму после овладения (   Читать дальше...   )Тип издания: RepackРазработчик: Unstable GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Китайский (упрощенный)Язык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7AD13DEA619E6D0A27C53CE0AB0C5B24CF5112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370537   (58946) от 22.04.2024
+
+The Legend of Heroes: Trails of Cold Steel III (2020) [Multi] (1.06/dlc) License GOG [Digital Limited Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В потрясающем приключении The Legend of Heroes: Trails of Cold Steel 3, выполненном в японском стиле, игроки возьмут управление над могущественным героем. Путешествуйте по недавно открывшимся землям эребонской и сельской местности, а также встретьте старых друзей. В игре сочетается невероятный набор персонажей и усовершенствованная боевая механика с новыми функциями. (   Читать дальше...   )Тип издания: LicenseРазработчик: Nihon Falcom Corporation, Engine Software BV, PH3 GmbHЖанр: Приключение, Пошаговая, JRPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, ЯпонскийЯзык интерфейса: Английский, Французский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325792F2A96FD0BCF9C014DA28C80EFB9E566F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587758   (58922) от 22.04.2024
+
+Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Исследуйте обширный мир, стоящий на грани хаоса, в продуманной и эмоциональной японской ролевой игре. Отправляйтесь в эпическое приключение со щедрыми на награды пошаговыми сражениями и широкими возможностями индивидуализации в изумительном мире, вручную прорисованном в 4K. В плане боя представлена знакомая многим простая пошаговая система, которая позволяет во время (   Читать дальше...   )Тип издания: LicenseРазработчик: Artisan StudioЖанр: Ролевая игра, Приключение, JRPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Французский, Немецкий, Японский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5F8EA2BE35497EF7AACCCCAF6A625120C86CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718008   (58909) от 22.04.2024
 
 Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
@@ -6,7 +84,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Mato Anomalies (2023) [Multi] (rc3/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Demon Lord Reincarnation (2023) [En] (1.0.6.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Fallout 3 (2009) [Ru/En] (1.7.0.3/dlc) Repack dixen18 [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Kingsgrave (2024) [Ru/Multi] (1.0.0.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Bloody Spell (2022) [Multi] (20240414/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Decision: Red Daze (2022) [Ru/Multi] (1.3.3(4)) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Tamarak Trail (2024) [Ru/Multi] (1.0.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Eclipse: Echo of Dimension (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Life Eater (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Crimson Tactics: The Rise of The White Banner (2023) [En] (1.0.0b) Repack FitGir
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Sons of Valhalla (2024) [Ru/Multi] (1.0.21/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Royal Order (2024) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ SaGa Emerald Beyond (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Scene Rune [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Fallout 4 (2015) [Ru/Multi] (1.10.980/dlc) Repack FitGirl [Game of the Year Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Fall of the Dungeon Guardians (2015) [Ru/Multi] (1.0k) License GOG [Enhanced
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Scene FairLight
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ the Dwarf (2024) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ The Legend of Heroes: Trails of Cold Steel IV (2021) [Multi] (1.2.1/dlc) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ The Legend of Heroes: Trails of Cold Steel 4 – продолжение леге
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C3C8E81761D503E4EF1BAA3EE4EE4EA7763B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723111   (56615) от 14.05.2024
-
-King Arthur: Legion IX (2024) [Ru/Multi] (1.0.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56615.jpg" />
-</div>
-
-
-###  Подробнее
-
-King Arthur: Legion IX представляет собой сочетание пошаговых тактических боев и ролевой механики, ориентированной на персонажей. Игроки берут на себя роль Гая Юлия Менто, римского трибуна, ведущего нежить Девятого легиона через фантастическое царство Авалона. Это темное фэнтези с элементами артурианской истории приветствует новичков свежим повествованием и персонажами, (   Читать дальше...   )Тип издания: RepackРазработчик: NeocoreGamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF561542D9403438FDC58CBDE37E40F0C6F833D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723171   (56597) от 14.05.2024
-
-Bloody Heaven 2 (2024) [Multi] (0.04) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloody Heaven 2 – в основе сюжета заложена популярная мошенническая игра Hades. Где игрокам предстоит прорваться сквозь поля Бога и добраться до владений демонов, чтобы сразиться с Повелителем Танатосом в его морозном аду. Попросту говоря, перед вами традиционный рогалайт с построением рун. Игровой процесс, которого основан на четырех основных действиях.Тип издания: RepackРазработчик: ShaneGameЖанр: Экшены, Инди, Ролевые игрыЯзык субтитров: Английский, Китайский (упрощенный)Язык интерфейса: Английский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E438D46EE3DE538CE3A52F863382D4818940D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723270   (56472) от 15.05.2024
-
-Class of Heroes 2G: Remaster Edition (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважные искатели приключений, академия Кростини открывает для вас свои двери! Спуститесь в усовершенствованные подземелья классической игры, где ждут увлекательные бои и бесчисленные подвиги. Выбирайте уроки и задания и создавайте непобедимый отряд! Соберите идеальную команду из шести студентов и штурмуйте лабиринты. Вам доступно 10 рас и 18 профилей, каждый с уникальным (   Читать дальше...   )Тип издания: RepackРазработчик: ZerodivЖанр: Приключенческие игры, Ролевые игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA8581FDAD30BC320FEDC34167FEC7DD685D8DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

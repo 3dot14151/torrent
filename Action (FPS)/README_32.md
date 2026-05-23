@@ -1,3 +1,108 @@
+###  Публикация: 1262812   (290706) от 17.11.2018
+
+Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+От создателей творческих шедевров System Shock, Thief и Underworld. Команда авторов из OtherSide Entertainment, подарившая миру незабвенную серию Ultima Underworld, представляет Underworld Ascendant.Тип издания: RepackРазработчик: OtherSide EntertainmentЖанр: Action, RPG, Adventure, Fantasy, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC45D066A106F148631C9C1F69F2264359BEB55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185723   (290627) от 22.11.2017
+
+TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 2230 году промышленно-исследовательское судно Тартарус (MRS TARTARUS 220478) активирует протокол безопасности возле Нептуна без каких-либо признаков. Единственный шанс для выживания экипажа - добраться до мостика и перезапустить все системы один за другим, прежде чем корабль врежется в Нептун. Мы играем за Купера (повар и шахтёр корабля), у которого нет образования, (   Читать дальше...   )Тип издания: RepackРазработчик: Abyss GameworksЖанр: Adventure, Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, ФранцузскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089ABB9AC75F3992447E36629CAA130253671AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080209   (289639) от 06.12.2016
+
+Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в подземном Петербурге начала XX века - спустя 100 лет после нападения чудовищ на планету. Выжившие люди были вынуждены перебраться под землю и построить “новый мир”. Последующие поколения, полностью привыкшие к новой жизни, уже никогда не выбирались на поверхность.Тип издания: LicenseРазработчик: FazanЖанр: Action, Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139F7E91855FF81E53C8A4B81101F345FD3B1A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080291   (289284) от 06.12.2016
+
+Beastiarium (2016) [Ru/Multi] (1.0.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Beastiarium — погружение в таинственный мир, полный загадок и чудовищ, атмосфера которого будет держать вас в напряжении всю историю.
+Действие разворачивается в подземном Петербурге начала XX века - спустя 100 лет после нападения чудовищ на планету. Выжившие люди были вынуждены перебраться под землю и построить “новый мир”. Последующие поколения, полностью привыкшие (   Читать дальше...   )Тип издания: RepackРазработчик: FazanЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3960B58043FB486CB9DC59C8D2D953C25DECA1FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186052   (288868) от 23.11.2017
 
 Awe of Despair (2017) [En] (1.0) License PLAZA
@@ -6,7 +111,7 @@ Awe of Despair (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Call of Duty: Advanced Warfare (2014) [Ru/En] (1.22.0.1/upd12/dlc) Rip R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Agony Unrated (2018) [Ru/Multi] (1.0upd5) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Root Of Evil: The Tailor (2016) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Battlefield: Bad Company 2 (2010) [Ru/En] (795745) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Killing Room (2016) [Ru/Multi] (1.37.7) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Maize (2016) [En] (1.0.1310) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Outlaws (1997) [En] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +397,7 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +423,7 @@ Space Rift NON VR (2016) [En] (1.0) License CODEX [Episode 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +449,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.1) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +475,7 @@ I.G.I. 2: Covert Strike (2003) [Multi] (1.3.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +501,7 @@ Elena (2016) [En/Ge] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +527,7 @@ SOMA (2015) [Ru/Multi] (1.500) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +553,7 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270197.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +579,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12212) License PLAZA [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +605,7 @@ Far Cry 3 (2012) [Ru/En] (1.05/dlc) Repack xatab [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -526,7 +631,7 @@ SOMA (2015) [Ru/Multi] (1.500) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +657,7 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,110 +668,6 @@ Umfend (2018) [Ru/Multi] (1.0F) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F59E9B7E3D8ECA30E1E41C16D5DD1E69DEB530E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260871   (267271) от 05.12.2018
-
-OVERKILL's The Walking Dead (2018) [Ru/En] (2.0.1/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267271.jpg" />
-</div>
-
-
-###  Подробнее
-
-OVERKILL’s The Walking Dead — энергичный кооперативный шутер от первого лица, действие которого разворачивается в Вашингтоне после вспышки эпидемии, вернувшей мертвых к жизни. В этом испытании навыков, стратегического мышления и умения действовать сообща игроков ждут походы, поиск припасов и уцелевших людей, а также защита своего лагеря как от мертвых, так и от живых.Тип издания: RepackРазработчик: OVERKILL - a Starbreeze StudioЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C16433FFFD69BD0C0A3AE222FD37633675CBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190878   (265623) от 11.12.2017
-
-Hello Neighbor (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hello Neighbor — игра в жанре хоррор, в которой игроку нужно проникнуть в соседский дом и узнать, что скрывает его зловещий сосед. Твой противник - искусственный интеллект, который учится на всех твоих действиях: любишь забираться в дом через окно? — Не попадись в капкан. Пытаешься убежать? — Он найдёт способ перехватить тебя.Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Action, Survival, StealthЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF476B0D2882D7FACA1D83F6016B943ADB6BABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191244   (264757) от 08.12.2018
-
-Hello Neighbor (2017) [Ru/Multi] (1.3) Repack R.G. Механики
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hello Neighbor - это интерактивный ужастик, в котором действовать нужно скрытно. Проникните в дом своего жуткого соседа и узнайте, какие ужасные тайны хранятся в подвале. Ваш противник - продвинутый искусственный интеллект, который обучается, следя за вашими действиями. Любите влезать в дом через окно? Не удивляйтесь, если под ним вдруг окажется капкан. Часто пользуетесь (   Читать дальше...   )Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Экшн, Приключение, СтелсЯзык субтитров: Русский, Английский, Арабский, Бразильский и другиеЯзык интерфейса: Русский, Английский, Арабский, Бразильский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F42D8B8D6E6EF9F97FA6D42AD5971F96F9251B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191466   (264332) от 13.12.2017
-
-Hello Neighbor (2017) [Ru/Multi] (1.1.2) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hello Neighbor - это интерактивный ужастик, в котором действовать нужно скрытно. Проникните в дом своего жуткого соседа и узнайте, какие ужасные тайны хранятся в подвале. Ваш противник - продвинутый искусственный интеллект, который обучается, следя за вашими действиями. Любите влезать в дом через окно? Не удивляйтесь, если под ним вдруг окажется капкан. Часто пользуетесь (   Читать дальше...   )Тип издания: RepackРазработчик: Dynamic PixelsЖанр: Экшн, Приключение, СтелсЯзык субтитров: Русский, Английский, Арабский, Бразильский и другиеЯзык интерфейса: Русский, Английский, Арабский, Бразильский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4CC5079004B8EB86BF9D56721F04D929E0F137
 ```
 
 https://mybot314.ru/tekegram_catalog/

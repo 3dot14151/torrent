@@ -1,4 +1,57 @@
 https://t.me/izofen
+###  Публикация: 1871514   (1069644) от 
+
+Ильичева Н. (сост.) | О прелести. Как впадали в прелесть гордые и избегали ее смиренные (1997) [DJVU, PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Прельщение - самая большая опасность, стоящая на пути каждого христианина. В одно мгновение оно может свести на нет многолетний труд над своей душой и, казалось бы, предельно внимательного к себе монаха, и даже умудренного старца.
+В этой книге вы найдете и печальные примеры того, как падали падением великим возгордившиеся своими телесными подвигами затворники и пустынники. (   Читать дальше...   )Жанр: ПравославиеИздательство: ЗАО "Тираж-51"Формат: DJVU, PDF, FB2Качество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7844C9BDD71DE748FEAF06D10108BFE3627C1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871264   (1069553) от 
+
+Л. А. Юревичиене | Жизнеописание Петербургской старицы Матроны Петровны Мыльниковой (Матроны Босоножки) (2019) [DJVU, PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Настоящее издание представляет собой литературное описание документальных материалов, собранных специальной рабочей группой по подготовке к канонизации замечательной петербургской подвижницы Матроны Босоножки. Через тексты документов, образы мест, событий, рассказы людей, знавших блаженную старицу, социально-исторический фон того времени представлены этапы ее долгой (   Читать дальше...   )Жанр: ПравославиеИздательство: ООО «Издательство «Левша. Санкт-Петербург»Формат: DJVU, PDF, FB2Качество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF46D96F22BAE9D6D148A175A87CDA33513F0F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1868320   (1067510) от 30.04.2026
 
 Р. Хомейни | Изречения, афоризмы и наставления (1995) [PDF]
@@ -7,7 +60,7 @@ https://t.me/izofen
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -25,6 +78,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866914   (1066460) от 22.04.2026
+
+Джорджо Агамбен | Высочайшая бедность. Монашеские правила и форма жизни (2020) [PDF, FB2, DJVU, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Что такое правило, если оно как будто без остатка сливается с жизнью? И чем является человеческая жизнь, если в каждом ее жесте, в каждом слове, в каждом молчании она не может быть отличенной от правила?
+Именно на эти вопросы новая книга Агамбена стремится дать ответ с помощью увлеченного перепрочтения того захватывающего и бездонного феномена, который представляет (   Читать дальше...   )Жанр: Монашеская историографияПеревод: С.ЕрмаковИздательство: СПбГУ: Институт экономической политикиФормат: PDF, FB2, DJVU, EPUB, MOBIКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10305E91204E59709E3D164FAC6DBFA3FD2861C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865103   (1065190) от 15.04.2026
 
 Вагнер Н.П. | Евангельский свет. Истории об Иисусе Христе для детей (2017) [PDF, FB2]
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -211,6 +291,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861615   (1062772) от 27.03.2026
+
+СЗКЭО (изд.) | Библия изложенная для семейного чтения (2026) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Библия на протяжении всей человеческой истории остается главным источником познания Бога и Его творения — видимого и невидимого миров. Тысячи поколений изучают это Божественное Откровение, чтобы найти в нем ответы на главные вопросы бытия, чтобы отличать добро от зла и познать истину существования. «Библия, изложенная для семейного чтения» — это адаптированный пересказ (   Читать дальше...   )Жанр: Религиозная литература. Книги Священного Писания. БиблияИздательство: Издательство Сретенского монастыря и СЗКЭОФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522FD9780316AB81860D1F22F8B55BA96CB3E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857978   (1060191) от 08.03.2026
 
 Святитель Григорий Двоеслов | Диалоги о жизни италийских отцов и о бессмертии души. В четырех книгах (2025) [PDF]
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -533,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -570,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F21A7E3654E44D06934351B52FBF02844AE12328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846046   (1051012) от 05.01.2026
-
-Монах Арсений Святогорский | Духовные советы афонского старца иеросхимонаха Агафодора (2018) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателей предлагается книга «Духовные советы афонского старца иеросхимонаха Агафодора». Иеросхимонах Агафодор (в миру Александр Иванович Буданов; 1846–1920) – один из выдающихся подвижников Русского Свято-Пантелеимонова монастыря на Афоне, последние двадцать лет жизни главный духовник обители. Достойный ученик старца-духовника Иеронима и игумена монастыря (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815363669FB33359FDB1528F775EC6A615BB2B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845848   (1050991) от 03.01.2026
-
-Священномученик Ипполит Римский | О Христе и антихристе (2014) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священномученик Ипполит Римский – выдающийся богослов и церковный писатель III века, оставивший значительное наследие. Его труд «Слово о Христе и антихристе» занимает особое место в литературе, являясь важнейшим сочинением на тему о конечных судьбах мира и человека. Это произведение не только глубоко исследует вопросы о Спасителе и антихристе, но и служит основой (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95605297D499C918D547FE8D56CD1583F548075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845476   (1050643) от 31.12.2025
-
-Сибирская Благозвонница | Свидетели Воскресения Господня (2013) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Святые жены-мироносицы, всем сердцем уверовавшие в Господа, следовали за Ним в Его проповеднических странствиях, возлагая на себя все житейские заботы об Учителе. Мироносицы не оставили Христа и после Его смерти на кресте и потому стали первыми свидетельницами Воскресения Господа. Это великая заслуга их перед христианами. Настолько великая, что заслонила их человеческий (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F896E1E32CDA394BD100E72C2AE316454A3D964A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844772   (1050222) от 28.12.2025
-
-Джеймс Бернстайн | Удивленный Христом. Мое путешествие из иудаизма в православие (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это необычная автобиография священника, который вырос в США в иудейской культуре, в подростковом возрасте начал духовные поиски и через протестантство пришел к православию. Арнольд Бернстайн в детстве был шахматистом — и вся его жизнь похожа на красивую шахматную партию. Он был свидетелем Шестидневной войны в Израиле, борцом за гражданские права и протестантским (   Читать дальше...   )Жанр: Религиозная литератураИздательство: НикеяФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6B19F78A5A4E8B3E9A14AAAAE94743284CAC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

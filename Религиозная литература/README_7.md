@@ -1,3 +1,111 @@
+###  Публикация: 1467660   (1017759) от 04.05.2021
+
+В. Малягин (сост.) | Христос Воскресе! Пасхальный молитвослов (2016) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Богослужения и молитвословия православного церковного года подчинены строгому распорядку. Ведь в Церкви всё совершается по Уставу, основанному на божественных догматах и канонах святых отцов.
+
+Но есть в череде церковного годового круга одна седмица (неделя), когда как будто бы отменяются уставы и правила. Седмица, которую называют Светлой, Святой, Пасхальной. Седмица, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E2AE90476486ABAD300759C0C1262FA928150C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467460   (1017758) от 04.05.2021
+
+Александр Трофимов (сост.) | Воскликните Богу гласом радования. Акафисты с приложением сказаний об иконах Божией Матери и житий святых (2007) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли акафисты, составленные Александром Трофимовым, известным читателям по книгам: «Донская икона Божией Матери», «Икона Божией Матери «Прибавление ума», «Радуйся, Благая Вратарнице... Рассказы об Иверской иконе Божией Матери», «Святые жены Руси», «Старец иеросхимонах Серафим Вырицкий», «Блаженная старица схимонахиня Ольга», «Схимонахиня Нила», «Схимонахиня (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B9BBC3242C94C7B3ABA631F7C1A014E33F93A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468426   (1017249) от 07.05.2021
+
+Пётр Малков (авт.-сост.) | Пасха. Воскресение Христово. Антология святоотеческих проповедей (2018) [PDF, DJVU, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Антология святоотеческих творений на праздник Пасхи, а также на Великую Субботу включает произведения разных традиций и эпох, византийских, латинских и русских авторов — от святителей Григория Богослова и Иоанна Златоуста до Луки Крымского и Иоанна (Максимовича). Издание предваряет вводная статья П.Ю. Малкова, призванная в ясной и доступной форме познакомить читателя (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD520EA8C41AD901F404C02DD2D3F3E4E2380531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468466   (1017098) от 08.05.2021
+
+А. Логунов (сост.) | Книга пасхальной радости. 50 дней от Пасхи до Пятидесятницы. Вдохновение на каждый день (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В пасхальные дни спасительное свидетельство о Воскресении Христовом наполняет душу, звучит в поэтике богослужения, в оживающей после зимней смерти природе. Эта радость может согревать сердце на протяжении всего года, надо лишь суметь удержать её в себе.
+
+Как не растерять драгоценное пасхальное настроение, погружаясь в суету будничного мира? Собранные в этой книге (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BEC507774C3464FC03DCC762EFD96FA120901E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469056   (1016782) от 10.05.2021
 
 Архимандрит Рафаил (Карелин) | Тайна спасения. Беседы о духовной жизни (2018) [FB2, EPUB]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -489,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -515,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -569,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -580,113 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09A7246B82B65503CC42FD1AC40CB211DBCE1221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478552   (1010179) от 20.06.2021
-
-Пётр Малков (авт.-сост.) | Пятидесятница (день Святой Троицы) и сошествие Святого Духа. Антология святоотеческих проповедей (2019) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология святоотеческих творений на праздник Пятидесятницы и сошествие Святого Духа включает произведения разных традиций и эпох, византийских, латинских и русских авторов — от святителя Григория Нисского до святителя Луки Крымского. Издание предваряет вводная статья П. Ю. Малкова, призванная в ясной и доступной форме познакомить читателя с важнейшими богословскими (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93329661D80F8A251E37C858F0856992AE42DB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479149   (1009717) от 23.06.2021
-
-Л.А. Ильюнина (сост.) | Старец протоиерей Николай Гурьянов. Жизнеописание. Воспоминания. Письма (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009717.jpg" />
-</div>
-
-
-###  Подробнее
-
-От батюшки исходил свет и тепло, и всегда чувствовалось неземное происхождение этой силы, освещающей и согревающей души людей. А внешне он был необычайно скромен. Ходил всегда в стареньком выцветшем подряснике, в такой же скуфеечке, а в то время, когда ещё путешествовал — уезжал с острова для встречи с духовными чадами и друзьями, его видели в стареньком беретике, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5FE91786F26E8E5709009668F5C505DFF617B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479644   (1009326) от 26.06.2021
-
-Храм Рождества Пресвятой Богородицы (изд.) | Помоги Господи! 160 ответов на вопросы новоначальных христиан (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит ответы на вопросы новоначальных христиан.
-
-Что такое грех?
-Грех — это всё то, что делает нас противниками Богу, что разлучает нас с Богом: наши дурные мысли, слова, поступки. Почему же всё это так ненавистно Господу? Потому что одно из Его имён — Бог Любви. Любой грех — это в итоге нарушение закона любви к Богу или к ближнему. Поэтому так важно наше (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2EA7B5145FC0DFDB52E398F868E8E138F048CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481393   (1008287) от 03.07.2021
-
-Мустафа Акийол | Исламский Иисус. Как Царь Иудейский стал у мусульман пророком (2019) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поразительные связи между иудейским, христианским и исламским взглядами на Иисуса – одна из ключевых загадок в истории религии. То, что говорят об Иисусе и его матери Марии Библия и Коран, а также апокрифические источники, во многом разнится, и в то же время три великие авраамические религии в нашем раздираемом противоречиями мире, несмотря на все споры и напряжение (   Читать дальше...   )Жанр: Зарубежная религиозная литература, История религийФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71608976E9572B33C497DD3BED86B702073B4D5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

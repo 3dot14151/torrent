@@ -1,3 +1,108 @@
+###  Публикация: 97490   (452852) от 13.09.2020
+
+Harlock Saga: The Ring of the Nibelung - The Rhein Gold / Сага о Харлоке: Кольцо Нибелунга [1999, OVA, 6 эп.] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Миллионы лет назад во Вселенной бушевала Война Богов. Галактика шла к полному разрушению. Осознав это, один из богов – Один, погрузил себя и своих собратьев в вечный сон на Валгалле – планете вне времени. Единственное, что может разбудить богов – золотой слиток, укрытый на планете Рейн. Если перековать слиток в кольцо и доставить его на Валгаллу, боги проснутся и (   Читать дальше...   )Производство: Bandai Visual, 81 ProduceЖанр: фантастика, приключенияРежиссер: Такэути ЁсиоЯзык озвучки: ЯпонскийСубтитры: EN SRT (в контейнер), RU SRTФормат: MKV DVDRipПродолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FCF0400B1613A242D9FEE936C597CBB3D50ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408962   (451465) от 14.09.2020
+
+Isekai Quartet 2 | Четвёрка попаданцев 2 [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Кроссовер четырёх аниме: «Overlord», «Kono Subarashii Sekai ni Shukufuku wo!», «Re:Zero kara Hajimeru Isekai Seikatsu» и «Youjo Senki».
+В мирах каждого из героев этих аниме появляется странная кнопка. По стечению различных обстоятельств каждый нажимает на кнопку, после чего все переносятся в один мир. Им предстоит учиться в школе, налаживать контакт с каждым из новоприбывших (   Читать дальше...   )Производство: Studio Pu Yukai / スタジオぷYukaiЖанр: комедия, пародияРежиссер: Асина МиноруПеревод: ApostolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260240A909E2556C0B1157403C40C187B7A091BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679890   (450545) от 29.09.2013
+
+Kin`iro Mosaic / Golden Mosaic / Золотая Мозаика [2013, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+15-летняя Синобу Омия – обычная японская школьница, что очень любит западную культуру, пускай даже английский не отвечает ей взаимностью. Главная героиня включилась в программу обмена и прожила неделю в британской семье Картлет, где познакомилась со своей ровесницей Элис, застенчивой миниатюрной блондинкой. Учитывая простой и открытый нрав Сино, взаимопонимание наладилось быстро, языковый барьер не помешал девушкам понять друг друга и подружиться. Вот так Элис полюбила Восток, выучила японский, поработала над (   Читать дальше...   )Жанр: комедия, школаРежиссер: Танака МотокиПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C996468A628BF6C18F54E028CD01EBA591F840B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569843   (449561) от 14.08.2022
+
+Koi wa Sekai Seifuku no Ato de | Love After World Domination | Любовь после порабощения мира [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фудо Айкава — лидер супергеройского отряда «Пятёрка Джелато». Дэсуми Магахара — член злодейской организации «Геккон». Для всего мира они заклятые враги, которые воюют по разные стороны баррикад, но на самом деле втайне ото всех Фудо и Дэсуми встречаются друг с другом.Производство: Студия Project No.9Жанр: комедия, романтикаРежиссер: Ивата КадзуяПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E380A3F2A6E2F3361683029F3A062B5AB5D504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 885567   (448627) от 03.10.2015
 
 Shinmai Maou no Testament | The Testament of Sister New Devil | Завет Дьявольских Сестриц [ТВ-1][2015, TV, 12 эп. + 1 OVA] BDrip 1080p raw
@@ -6,7 +111,7 @@ Shinmai Maou no Testament | The Testament of Sister New Devil | Завет Дь�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Fate/Stay Night Unlimited Blade Works / Судьба: Ночь Схватки (�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +165,7 @@ Toaru Hikuushi e no Koiuta | The Pilot's Love Song | Песня любви од�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ Shashinkan | Фотоателье [2013, Movie] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +219,7 @@ Dantalian no Shoka: Ibarahime / Библиотека Данталиан OVA [201
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +245,7 @@ Robot Girls Z | Девочки-роботы Зет [2014, TV, 3 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +272,7 @@ Maoyuu Maou Yuusha / Archenemy and Hero / Герой при заклятом в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -195,7 +300,7 @@ Gangsta. | Гангстеры [2015, TV, 12] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +326,7 @@ Anime de Wakaru Shinryounaika | Comical Psychosomatic Medicine | Комична�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +352,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп: Алиса в саду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +378,7 @@ Servamp | Сервамп [2016, TV] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +404,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +430,7 @@ Daa! Daa! Daa! / UFO baby / Внеземной малыш [2000, TV, 78 из 78]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +457,7 @@ Pop in Q | Поп и Кью [2016, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +483,7 @@ Kakushigoto | Kakushigoto: My Dad's Secret Ambition | Скрытые вещи [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +509,7 @@ BPS: Battle Programmer Shirase | Боевой программер Сирасэ 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +535,7 @@ Dragon's Dogma | Догма дракона [2020, Web, 7 эп.] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +561,7 @@ Phantasy Star Online 2: Episode Oracle | Звёздная фантазия он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +589,7 @@ Sora Tobu Yuurei Sen / The Flying Ghost Ship / Летающий корабль-�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +615,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel - Lost Butterfly | Судьба: Но�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +643,7 @@ Danganronpa Kibou no Gakuen to Zetsubou no Koukousei The Animation [2013, TV, 13
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +669,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,110 +680,6 @@ Harukana Receive | Харука и Каната принимают подачу 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD5F4213BAB6E1F77D9F6B8A0D4AE1C66472688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410490   (435967) от 21.09.2020
-
-Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale | Легенда о Белом ките [1997, TV] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество пережило пик освоения космоса, теперь по просторам вселенной летают на высокой скорости ненужные, брошенные корабли "киты", а бравые парни "китобои" гарпунят их ради редких запчастей и грузов. И вот, в команду Ахава, капитана лучшего китобойного судна хочет попасть молодой парнишка (или не парнишка) Лакки Лак. Так начинаются приключения (   Читать дальше...   )Производство: Studio Junio / スタジオジュニオ, Annapuru / あんなぷるЖанр: приключения, фантастикаРежиссер: Дэдзаки ОсамуПеревод: GreymanЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F5334C9CA37DA0321A3275AB0A3191D91C9A1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235900   (434785) от 23.09.2018
-
-Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школу [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чио Миямо — обычная стеснительная девочка, которая обожает видеоигры и из-за того, что часто играет до поздней ночи, постоянно опаздывает в школу. Но даже идя по «обычному» пути туда, Чио регулярно попадает в разнообразные ситуации, иногда обычные, а иногда и не очень. Ей приходится иметь дело с бандой байкеров, строительными работами, острым желанием посетить уборную (   Читать дальше...   )Производство: Студия Studio Barcelona / ディオメディアЖанр: комедияРежиссер: Инагаки ТакаюкиПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956E8094370B8EBDE51737C2D4CEA29EBE09D6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063279   (434487) от 16.10.2016
-
-The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond the Brilliant Future! | Идолмастер: По ту сторону света! [2014, MV, 1] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло некоторое время после событий игры THE IDOLM@STER 2, кратко пересказанных в ТВ сериале. Идолы из 765ПРО уже добились многого и находятся в зените славы. Их следующий шаг – большой концерт на стадионе, после которого их Продюсер собирается уехать в Америку на стажировку. Так же на их плечи ложатся и проблемы совсем зеленых, ещё не закончивших "школу идолов", (   Читать дальше...   )Жанр: комедия, музыкальныйРежиссер: Нисигори Ацуси / Nishigori Atsushi / 錦織敦史
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082257E8504F8C50B68064C7942E9B8D1CF0A3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033956   (434388) от 16.10.2016
-
-Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из призамкового города [2015, TV, 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает о повседневной жизни девятерых наделённых сверхспособностями братьев и сестёр, принадлежащих вдобавок к королевской семье. При этом все они являются участниками эдакого реалити-шоу: две сотни телекамер следят за каждым их шагом и ведут трансляцию на всю страну. Делается это не просто так, а чтобы граждане, понаблюдав за жизнью принцев и принцесс, (   Читать дальше...   )Производство: Студия Production IMS / プロダクションアイムズЖанр: комедияРежиссер: Акитая НориакиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758C1A41E18E370A38B87282AE04596B3BB37150
 ```
 
 https://mybot314.ru/tekegram_catalog/

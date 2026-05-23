@@ -1,3 +1,107 @@
+###  Публикация: 1357835   (971720) от 05.02.2020
+
+Время первых (2017) BDRip [H.265/1080p-LQ] [10-bit] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1960-е, разгар холодной войны. Две супердержавы — СССР и США — бьются за первенство в космической гонке. Пока СССР впереди, на очереди — выход человека в открытый космос. За две недели до старта взрывается тестовый корабль. Времени на выявление причин нет. Опытный военный лётчик Павел Беляев и его напарник Алексей Леонов, необстрелянный и горячий, мечтающий о подвиге, (   Читать дальше...   )Производство: Россия / Базелевс ПродакшнЖанр: приключения, триллер, биография, историяРежиссер: Дмитрий КиселёвАктеры: Евгений Миронов, Константин Хабенский, Владимир Ильин, Анатолий Котенёв, Александра Урсуляк, Елена Панова, Александр Новин, Марта Тимофеева, Геннадий Смирнов, Юрий НифонтовСубтитры: Русские (форсированные)Продолжительность: 02:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D885787D04E32D59503011986E4456ED96CCB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357819   (971640) от 05.02.2020
+
+Рассвет (2019) BDRip [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У главной героини при загадочных обстоятельствах погибает брат. Девушку начинают преследовать реалистичные кошмары, и она отправляется в институт сомнологии, где ее вместе с другими пациентами погружают в совместное осознанное сновидение. Но после наступления рассвета они проснутся совсем в другой реальности, которая страшнее любого кошмара…Производство: Россия, KaroprokatЖанр: Ужасы, триллерРежиссер: Павел СидоровАктеры: Оксана Акиньшина, Александра Дроздова, Александр Молочников, Анна Слю, Олег Васильков, Кузьма Котрелев, Анастасия Куимова, Валерий Кухарешин, Мирослав ПенцовПеревод: Не требуется (Русский) - Лицензия BD GERСубтитры: ОтсутствуютПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484EB157E1B92D9B0B529E2FC2E9BE87D8870F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357722   (971528) от 05.02.2020
+
+Рассвет (2019) BDRip [H.265/720p] [10-bit] [GER Transfer] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У главной героини при загадочных обстоятельствах погибает брат. Девушку начинают преследовать реалистичные кошмары, и она отправляется в институт сомнологии, где ее вместе с другими пациентами погружают в совместное осознанное сновидение. Но после наступления рассвета они проснутся совсем в другой реальности, которая страшнее любого кошмара…Производство: Россия, KaroprokatЖанр: Ужасы, триллерРежиссер: Павел СидоровАктеры: Оксана Акиньшина, Александра Дроздова, Александр Молочников, Анна Слю, Олег Васильков, Кузьма Котрелев, Анастасия Куимова, Валерий Кухарешин, Мирослав ПенцовПеревод: Не требуется (Русский) | Лицензия (BD GER)Субтитры: ОтсутствуютПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24873D2B47D4A4FD5EBFDAEDD737DB8BB0F4F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357612   (971527) от 05.02.2020
+
+Рассвет (2019) BDRip [H.264] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У главной героини при загадочных обстоятельствах погибает брат. Девушку начинают преследовать реалистичные кошмары, и она отправляется в институт сомнологии, где ее вместе с другими пациентами погружают в совместное осознанное сновидение. Но после наступления рассвета они проснутся совсем в другой реальности, которая страшнее любого кошмара…Производство: Россия, KaroprokatЖанр: Ужасы, триллерРежиссер: Павел СидоровАктеры: Оксана Акиньшина, Александра Дроздова, Александр Молочников, Анна Слю, Олег Васильков, Кузьма Котрелев, Анастасия Куимова, Валерий Кухарешин, Мирослав ПенцовПеревод: Не требуется (Русский) - Лицензия BD GERСубтитры: ОтсутствуютПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A652B812622965778DB22B8E978DEE8B9A20197D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357754   (971454) от 05.02.2020
 
 Рассвет (2019) BDRemux [H.264/1080p] [GER Transfer]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,111 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E745A0A84BC276C12F55F61BB3435045B4F46ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976525   (968258) от 18.01.2016
-
-Иерей-сан. Исповедь самурая (2015) BDRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой - Такуро Накамура, в крещении отец Николай - священник японской православной церкви, в прошлом профессиональный спортсмен, а в настоящем - родной брат главы одного из влиятельных кланов якудза. Однажды он не смог пройти мимо насилия и защитил обычную девушку, вступив в схватку с людьми из враждебной брату группировки. Война кланов якудза неизбежна. (   Читать дальше...   )Производство: Россия / Студия ОртодоксЖанр: боевик, драмаРежиссер: Егор БарановАктеры: Кэри-Хироюки Тагава, Пётр Фёдоров, Иван Охлобыстин, Игорь Жижикин, Петр Мамонов, Дарья Екамасова, Любовь Толкалина, Людмила Чурсина, Надежда Маркина, Алина Бабак, Вадим МедведевПеревод: Не требуется (Русский, Лицензия BD RUS)Язык субтитров: РусскийПродолжительность: 01:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D6D1C7A6304AB539462743A2C1ED9319466545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618826   (968154) от 15.02.2013
-
-На Байкал 2: На абордаж (2012) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как мы помним, в первой части фильма студент питерского института кинематографии отправился на Байкал, чтобы снять там свою дипломную работу, а заодно от души повеселиться. Валентина и его друзей ждало множество самых немыслимых приключений, которые они запомнили на всю оставшуюся жизнь. Надо ли говорить, что в фильме «На Байкал 2: На абордаж» будет еще больше безумия, (   Читать дальше...   )Производство: Россия, SinemaЖанр: КомедияРежиссер: Михаил КозловАктеры: Сергей Никонов, Евгений Жамцуев, Михаил Козлов, Александр Хамнушкин, Максим Покровский, Евгений Ганелин, Дарья Прокопьева, Мария Галимова, Юлиана Шкабарова, Юлия Борисова, Наян Сагаев, Артем БурловПеревод: Не требуется (Русский)Продолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093BE42F04F0BD8EAE5794D2CCD4A6813148322E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168953   (968130) от 22.01.2010
-
-Обстоятельства (2009) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две супружеские пары собираются провести вечер за ужином. Однако в назначенный час в квартире оказываются лишь трое из них. Наконец, приходит и та, которую все заждались. Очень странной походкой. В очень странной шапочке. С нечеловеческим аппетитом и совершенно человеческой жаждой любви. Что могут скрывать друг от друга верные мужья и жены? На что готовы пойти ради вашего семейного счастья ваши закадычные друзья? И чем может обернуться тихий дружеский ужин, приготовленный из обид и подозрений, опасности и страха, нежности и настоящей любви?Жанр: Комедия
- Ссылка на IMDB /исправлено/Режиссер: Павел РуминовАктеры: Илья Любимов, Михаил Крылов, Полина Кутепова, Елена Морозова, Павел Руминов, Николай КуликовПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977097   (967297) от 19.01.2016
-
-Без комментариев / No comment (2015) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во имя первой любви к прекрасной турчанке молодой немец отказывается от своего прошлого, сжигая семейные фотографии. Он больше не Томас. Теперь его зовут Хамза. И он завербован. Алексей Басаргин — капитан российской армии, разведчик, любящий муж и отец. Они ведут видеодневники своей жизни. Две судьбы. Два мира. Столкновение неизбежно.Производство: РоссияЖанр: ДрамаРежиссер: Артём ТемниковАктеры: Александр Новин, Леонард Проксауф, Дмитрий Журавлев, Евгений ОреховПеревод: Не требуется (русский)Продолжительность: 01:47:15Реклама: Присутствуют голосовые и текстовые вставки рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4338A44CFD9D8B737909FEA9BD7BB15ED72272E
 ```
 
 https://mybot314.ru/tekegram_catalog/

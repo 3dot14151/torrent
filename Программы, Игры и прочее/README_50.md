@@ -1,3 +1,82 @@
+###  Публикация: 1202435   (789759) от 29.01.2018
+
+Flyme OS Update Checker (FUC) v0.4.2 Portable [En]
+
+>>Программы, Игры и прочее
+>>Прочее для мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чекер наличия новой версии прошивки FlymeOS (от компании Meizu) для вашего смартфона. Программа позволяет получить линк на скачивание новой прошивки, если такая доступна для вашего канала обновлений. Для работы программы необходимы установленные ADB-драйверы. Они необходимы для получения IMEI, S/N, модели телефона и маски прошивки.Тип издания: FreeРазработчик: AMSUserПоддерживаемая ОС: Windows 10 | 8.1/8 | 7 (x86 / x64)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D831C7F43A055FD12821136DF19388C6657E5F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510816   (789562) от 19.11.2021
+
+3D Анатомический атлас человека. Human Anatomy Atlas 2021: Complete 3D Human Body v2021.2.27 [Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+3D Human Anatomy Atlas - атлас анатомии человека представляет 3D-модели, которые помогают понять как выглядит и работает человеческое тело, и включает определения на уровне учебников. Выпущен для использования в качестве справочника вместо учебника по анатомии или для создания виртуальных лабораторных опытов.
+Содержит более 10 000 анатомических моделей с описаниями. (   Читать дальше...   )Тип издания: Paid (Куплена в Маркете)Релиз состоялся: 17 марта 2021 г.Разработчик: Visible BodyПоддерживаемая ОС: Android 4.2+Язык интерфейса: Английский, Французский, Китайский, Немецкий, Итальянский, Японский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B166D600ED9B6DF8450520FF7BFD9A1A2F14A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202844   (789403) от 30.01.2018
+
+Билеты ПДД 2017 Экзамен ABM CD v4.5.2 AdFree [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приложение содержит экзаменационные билеты по правилам дорожного движения РФ для подготовки к сдаче теоретического экзамена на право управления транспортным средством категорий "ABM (A1, B1)", "CD (C1, D1)" с изменениями от 8 ноября 2017 года, текст ПДД, описание дорожных знаков, дорожной разметки. Приложение предназначено в первую очередь для (   Читать дальше...   )Тип издания: Пиратка (удалена реклама)Релиз состоялся: 07.11.2017Разработчик: Sergei FedorovПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16784CFA45937712969253087E70213070453F2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275964   (789272) от 13.01.2019
 
 Конвертер единиц измерения v10.3.1 [Ru/Multi]
@@ -6,7 +85,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Garmin: City Navigator North America NT 2022.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +163,7 @@ Muscle & Motion - Strength Training 2.2.14 premium [Ru]
 >>Прочее для мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +192,7 @@ Garmin: TOPO Germany v9 PRO [De]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +244,7 @@ Garmin: Topo France v6 Pro [Fr]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прошивки для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +324,7 @@ Shadowsocks 5.2.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прошивки для др. мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +376,7 @@ Home Design 3D v4.0.8 Pro [Ru/Multi] - Создание и персонализ�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -352,7 +431,7 @@ App Backup & Share Pro 10.3.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -378,7 +457,7 @@ Volume Slider Like Android P Volume Control 3.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +640,7 @@ Wake me up! Умный Будильник v5.0.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -598,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F61B069F1AD28B6D6287302EF17B2B171FBED11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209266   (779482) от 25.02.2018
-
-Скороговорун v1.0 AdFree [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый ценнейший дар - это умение красиво говорить. В развитие речи вам помогут - скороговорки, стихи, упражнения, слоговые таблицы, дыхательная гимнастика.Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 26.11.2016Разработчик: ShAppПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B56766B9C552E2B45DCDAB900524F2B3F493DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975912   (779421) от 25.02.2018
-
-Электрика v2.2.4 Pro [Ru] - Подручный интерактивный справочник по электрике и автоматизации
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подручный интерактивный справочник по электрике и автоматизации. Наш проект создавался профессионалами для профессионалов и призван упростить Вашу работу и сэкономить время. Идея создания такого приложения пришла во время работы, когда приходится постоянно обращаться к информационным таблицам, характеристикам и справочным материалам.Тип издания: Pro и Ad-Free (удалена реклама)Релиз состоялся: 21.02.2018Разработчик: Evgeny ChestnovПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981AAE2260A6A1E898D5724B24D5F8AA097D6923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012879   (778253) от 02.05.2016
-
-Сложи весь мир v1.0.8 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложи весь мир Бумажного королевства и узнай невероятную историю о проклятии треугольника. Проведи Йоло через мир потрясающих головоломок, найди скрытые дорожки и обведи вокруг пальца коварного Повелителя Тьмы. «Сложи весь мир» - это захватывающая история Бумажного королевства, целый мир-головоломка, в котором с каждым шагом сюжет принимает все более закрученный (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 13.04.2016Разработчик: CrazyLabsПоддерживаемая ОС: Android 4.0.3+Жанр: Puzzle — Logic (Паззл, Головоломка)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168B7AD5EA637B5A41177B786DED25136F9E14E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

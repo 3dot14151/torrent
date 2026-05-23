@@ -1,49 +1,22 @@
-###  Публикация: 1505114   (808351) от 25.10.2021
+###  Публикация: 1504437   (811827) от 23.10.2021
 
-PowerPhotos 1.9.10 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808351.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AB52059696A75BF22B4DDD97F57FE5E22A55C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505048   (808350) от 25.10.2021
-
-Affinity Designer 1.10.3 [Multi/Ru]
+StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E644C1B13051B32FA99A2235F00A3749AF26F365
+magnet:?xt=urn:btih:3C17A74D1B0E1B160C9AB9AF995D478E5FE0D3EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504872   (808349) от 25.10.2021
+###  Публикация: 1504395   (811826) от 23.10.2021
 
-Pink Floyd - Relics (1996 Remastered Version) (1996) [AAC|~340 Kbps] <Rock>
+Демоник / Demonic (2021) BDRip [H.264/1080p-LQ] [Line, AD]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Arnold Layne (1996 Remastered Version) (2:56)
-02. Interstellar Overdrive (1996 Remastered Version) (9:42)
-03. See Emily Play (1996 Remastered Version) (2:54)
-04. Remember A Day (1996 Remastered Version) (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
+Благодаря технологии, способной создавать проекции сознания других людей, Карли придется заглянуть в разум своей матери, 20 лет назад убившей более 20 человек, и отыскать истинную причину её жестокости.Производство: Канада / AGC Studios, Stabiliti StudiosЖанр: Ужасы, фантастика, триллер, драмаРежиссер: Нил БломкампАктеры: Карли Поуп, Крис Мартин, Майкл Роджерс, Натали Болтт, Терри Чен, Кэндис МакКлюр, Джейсон П. Тремблей, Кинтон Бойсклер, Дерек Верстиг, Крис ФрозПеревод: Дублированный (Line)Субтитры: ОтсутствуютПродолжительность: 01:43:09Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FEDEA2ECFF25958D8A5D78E6696BA14E764A840
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505079   (808348) от 25.10.2021
+###  Публикация: 1118412   (811825) от 26.03.2017
 
-Клоун Коко. Это кошки / It's the Cats (1926) WEBRip
+Sad - Utter Nihil Worship (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Коко открывает свой театр-варьете и расклеивает по всему городу афиши. Правда расклеивает их на высоте не более полутора-двух футов. Ну и кто после этого придет на шоу? Ясно-дело со всего района собрались котейки. Шоу было довольно дурацким, но котики воспринимали все довольно благосклонно. Пока в финале клоун не придумал ничего умнее чем номер с дрессированными (   Читать дальше...   )Производство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв Флейшер, Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:43
+01. Tricked by the Light
+02. Immerse into Submission
+03. Apophenia
+04. Extended Lysergic Perception(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AA4D07E3BB440B32F4D4245C0C64D0DE3BD07CF
+magnet:?xt=urn:btih:B06A070EE84A4373CC22B5F82FBBD63B0BDDE2DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -106,26 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505102   (808347) от 25.10.2021
+###  Публикация: 1118417   (811824) от 26.03.2017
 
-Blocs 4.4.1 [En]
+Sacrificium Carmen - Ikuisen tulen kammiossa (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
-Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+01. Lucifer
+02. Öisen haahkan liekeissä
+03. Pimeän silmän goetia
+04. Kaaoksen käärme(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0740C05E9189DEC8087DB1DDB11466F86BA6DD0F
+magnet:?xt=urn:btih:2AE7386AE83AB409F612A57257C9E686C69E65B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504944   (808346) от 25.10.2021
+###  Публикация: 1118865   (811823) от 26.03.2017
 
-Kfir Ochaion - V (2019) [AAC|~333 Kbps] <Instrumental Guitar Rock>
+Uptown Jazz Tentet - There It Is (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Numb (3:08)
-02. Still Loving You (4:49)
-03. Don't Cry (4:47)
-04. Sweet Child O' Mine (6:01)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:55:06
+01. There It Is (4:17)
+02. All Too New (7:01)
+03. Lush Life (6:16)
+04. Like Someone In Love (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E37D1028E01BE3047693FCADEBFF8743730FBDE
+magnet:?xt=urn:btih:1EB2F1301C8D2394C1410EE3CD3AFFF3DC628B2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504984   (808345) от 25.10.2021
+###  Публикация: 1118440   (811822) от 26.03.2017
 
-Kfir Ochaion - IX (2020) [AAC|~343 Kbps] <Instrumental Guitar Rock>
+Poltergeist - Back to Haunt (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Hotel California (6:14)
-02. Titanic (5:00)
-03. Careless Whisper (Metal) (5:22)
-04. Bella Ciao (3:02)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:01:46
+01. Back to Haunt
+02. Gone and Forgotten
+03. Patterns in the Sky
+04. And So It Has Begun(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA26CABDE1351CDBF439CC07B7BEC2E8D9E208A4
+magnet:?xt=urn:btih:BAB092398D779236660E5B4C1243F539A5957A41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,28 +166,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504916   (808344) от 25.10.2021
+###  Публикация: 1118423   (811821) от 26.03.2017
 
-Kfir Ochaion - II (2017) [AAC|~325 Kbps] <Instrumental Guitar Rock>
+Ofard - Words From The Dead (2012) Reissued, 2013 [FLAC|Lossless|image + .cue] <Folk Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Heathens (3:15)
-02. Animals (3:49)
-03. Boulevard of Broken Dreams (4:20)
-04. Billie Jean (3:42)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:47:17
+01. Words From The Dead (The Living Won't Listen)
+02. Völvans spådom
+03. Man Of Iron (Bathory cover)Жанр: Folk MetalПродолжительность: 00:12:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0958C9043C1FA935F7391CD79472DAD875548B5E
+magnet:?xt=urn:btih:477BEE8E9BD276D503462AF03B2BBD1D4D5A5A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,28 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504940   (808343) от 25.10.2021
+###  Публикация: 1118677   (811820) от 26.03.2017
 
-Kfir Ochaion - IV (2018) [AAC|~294 Kbps] <Instrumental Guitar Rock>
+Fred Astaire - Golden Greats (1930-e - 1940-e) 3CD, 2002, Disky [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Dance Band, Easy Listening>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Believer (3:23)
-02. Rockstar (3:39)
-03. Perfect (3:36)
-04. In the End (3:52)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:44:10
+CD1:
+01.Cheek To Cheek [03:17]
+02.Let's Face The Music And Dance [02:29]
+03.Let's Calle The Whole Thing Off [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Dance Band, Easy ListeningПродолжительность: 03:32:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26A3DFBFDCFB2B434831DCD4093377BD42252D0D
+magnet:?xt=urn:btih:3E43DC6831CFF5F0979C7C1BD2C7E94B4529E263
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -249,28 +223,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504951   (808342) от 25.10.2021
+###  Публикация: 1118689   (811819) от 26.03.2017
 
-Kfir Ochaion - VI (2020) [AAC|~328 Kbps] <Instrumental Guitar Rock>
+Новые атомные часы на базе трехмерной оптической решетки будут обладать высочайшей точностью и стабильностью
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Поговорим
+>>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome to the Jungle (4:32)
-02. Bohemian Rhapsody (6:00)
-03. Sultans of Swing (4:12)
-04. Sultans of Metal (4:33)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:07:24
+Существующие сейчас технологии построения атомных часов на основе оптической решетки из атомов стронция позволяют производит одновременный "опрос" миллионов атомов, что обеспечивает им спектроскопическую добротность (показатель качества работы) на уровне 1*10^4. Взаимодействия между отдельными атомами оптической решетки вынуждают разработчиков атомных часов (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A86A07F7F4F4D542627F634A88B493FB0F0829E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -278,28 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504920   (808341) от 25.10.2021
+###  Публикация: 1118447   (811818) от 26.03.2017
 
-Kfir Ochaion - III (2017) [AAC|~323 Kbps] <Instrumental Guitar Rock>
+Helion Prime - Helion Prime (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Radioactive (3:08)
-02. Centuries (3:46)
-03. Bring Me to Life (4:02)
-04. Careless Whisper (5:10)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:44:24
+01. Into the Alien Terrain
+02. The Drake Equation
+03. Life Finds a Way
+04. Into the Black Hole(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FB2B2AA7BA848DD89AB67EBC9181CF03AC21540
+magnet:?xt=urn:btih:ED5D7206A2059E4B943DB2E1E1BF07B7BE2E7BF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,188 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505008   (808340) от 25.10.2021
+###  Публикация: 1118378   (811817) от 26.03.2017
 
-Александр Мазин | Сказка о принцессе Белой Лилии и Серебряном Пламени (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808340.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном маленьком, но уютном королевстве, в небольшом прекрасном замке жили король и королева. Король был щедр и справедлив, а королева очень добра и была у них дочь-принцесса, которую звали Белая Лилия... И однажды принцесса полюбила — но не рыцаря (который оказался совсем не таким, как положено в сказках), она полюбила... дракона.
-Как вы думаете, дракон и принцесса (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DC3E9DDA7BFBFFE947AA50C61A13AA621AA2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504986   (808339) от 25.10.2021
-
-Timeline 3D 5.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляйте исторические события с помощью Timeline 3D, чтобы выявить связи и прояснить отношения. Составьте графики всемирной истории, генеалогических деревьев, вымышленных историй или предельных сроков ведения дел. Хронология поможет вам понять и представить историю с новой точки зрения.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2021Разработчик: BEEDOCSПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E40A276EC794E50CC655C1C268F242E9D08969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504979   (808338) от 25.10.2021
-
-Notability 4.4.4 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac. Notability – мощное средство для ведения заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2021Разработчик: © Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F41447B2EBF5855C81A551F28AE735B7A55945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505021   (808337) от 25.10.2021
-
-Анна Старобинец | Котлантида (2021) [MP3, Алексей Багдасаров]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете, говорят, что у котов девять жизней? Это чистая правда! Точнее, было правдой в незапамятные времена… Давным-давно был в океане прекрасный остров Котлантида. Вечное лето стояло на Котлантиде, а населяли ее красивые и могущественные котланты. Но однажды там начались кото-клизмы, а затем и вовсе случилась страшная кото-строфа – остров ушел под воду! Немногие (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 03:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B92CAC25A2D0EDE82A567DC184AE7FCD2A51AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505111   (808336) от 25.10.2021
-
-Reeder 5 v5.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для чтения новостей на Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 24.10.2021Разработчик: © Silvio RizziПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1414E6713D6E5F68D50A80AD0C916155ECB066D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505005   (808335) от 25.10.2021
-
-Laura Taylor - Dancin' In My Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Love (4:47)
-02. Dancin' In My Feet (6:01)
-03. All Through Me (6:38)
-04. Follow Your Own Star (3:23)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41155E5F7B03F08CD9997FF9393A35C1A8F4025A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504785   (808334) от 25.10.2021
-
-Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red Bullet [FLAC|Lossless|tracks] <Hard Rock, Classic Rock>
+Stuart Smith - Heaven & Earth (1999) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Vanilla Queen (Early Version) [00:10:06]
-02. Radar Love (Basic Track) [00:06:30]
-03. The Song Is Over (Basis Track) [00:05:17]
-04. Are You Receiving Me (Basic Track) [00:09:33](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 2 CD, 02:07:10
+01. Don't Keep Me Waiting (05:10)
+02. Heaven & Earth (04:14)
+03. See That My Grave Is Kept Clean (04:23)
+04. When A Blind Man Cries (05:29)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'HeavyПродолжительность: 01:05:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
+magnet:?xt=urn:btih:39A7FC8213596D7ECFB7FA0D1FB8538BF0170B57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,28 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504958   (808333) от 25.10.2021
+###  Публикация: 1118692   (811816) от 26.03.2017
 
-Kfir Ochaion - VII (2020) [AAC|~340 Kbps] <Instrumental Guitar Rock>
+Molybaron - Molybaron (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Prog, Prog-metal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_808333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Final Countdown (5:41)
-02. Crazy Frog (2:46)
-03. Pirates of the Caribbean (3:13)
-04. Smooth Criminal (3:31)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:48:48
+01. Fear Is Better Business Than Love (3:09)
+02. Moly (4:23)
+03. Let's Die Together (3:28)
+04. Dance (Addicted To The Disco) (4:49)(   Читать дальше...   )Жанр: Heavy Prog, Prog-metalПродолжительность: 00:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5884B6CDF69460AB2D0C0F1DD678A64A4FAAA3A
+magnet:?xt=urn:btih:EFFF95614AA9BA299A36EFD93CCB2EBB666348A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,57 +336,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504882   (808332) от 25.10.2021
+###  Публикация: 1118416   (811815) от 26.03.2017
 
-Pink Floyd - The Piper at the Gates of Dawn (2016) [AAC|~370 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astronomy Domine (4:12)
-02. Lucifer Sam (3:07)
-03. Matilda Mother (3:08)
-04. Flaming (2:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC69326A9534962CDAA832EFA5A62EAFC174C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778091   (808325) от 17.04.2014
-
-Boards Of Canada - 9 Альбомов (1996 - 2006) [FLAC|Lossless] <IDM, Downtempo, Leftfield, Ambient>
+Chris Duarte Group - Romp (2003) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1996 - Hi Score
-1998 - Aquarius EP
-1998 - Music Has The Right To Children
-1999 - Peel Session(   Читать дальше...   )Жанр: IDM, Downtempo, Leftfield, AmbientПродолжительность: 05:53:46
+01| Do the Romp  (04:13) 
+02| 101  (05:18) 
+03| Fire's Gone Out  (04:15) 
+04| Like Eric  (03:49) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20790B7E891707C5BA70C733DABF6531135F3A64
+magnet:?xt=urn:btih:13786645A9BE63936E1FEBE025957BA77A7DE8B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777979   (808322) от 17.04.2014
+###  Публикация: 1118712   (811814) от 26.03.2017
 
-Снегурочка (2013) DVD9
+Harold Melvin & The Blue Notes - I Miss You (1972) 2010, Big Break Records [FLAC|Lossless|tracks + .cue] <Soul>
 
->>Отечественное кино
->>Отечественные Фильмы (DVD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В одночасье испарилось и потеряло цену все, к чему стремился и чего достиг за неполные сорок лет жизни Алексей Нечаев, руководитель, лауреат, профессор, член государственных комиссий, фондов, советов при президенте, включая дом и семью. Имя этому наваждению — запретная любовь. Влюбившись в девушку, годящуюся ему в дочери, внешне обаятельную, по-детски дурашливую (   Читать дальше...   )Производство: РоссияЖанр: Драма, мелодрама, триллерРежиссер: Дмитрий СветозаровАктеры: Анна Хилькевич, Валерий Дегтярь, Евгений Катаев, Алиса Миронова, Ирина Полянская, Даниил Ануфриев, Сергей Мардарь, Рудольф Фурманов, Лев Елисеев, Вадим Лобанов...Перевод: Не требуется (русский)Субтитры: НетПродолжительность: 01:44:11
+01. I Miss You (8:39)
+02. Ebony Woman (3:41)
+03. Yesterday I Had The Blues (7:34)
+04. If You Don't Know Me By Now (3:28)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:51:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BBA1995FEAFDB959282DFC1095AA86A4B20C220
+magnet:?xt=urn:btih:DEF492ECFF10AF2203A507DB11233573330DFA8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,25 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777354   (808318) от 17.04.2014
+###  Публикация: 1118700   (811813) от 26.03.2017
 
-Театр (1978) DVDRip [H.264]
+Kaprekar's Constant - Fate Outsmarts Desire (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog Rock, Folk>
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Постановка по роману Сомерсета Моэма. Великая актриса Джулия Ламберт внезапно понимает, что она, увы, стареет. Что может помочь женщине, у которой есть абсолютно все? Только новая любовь. И Джулия влюбляется в первого встречного: в амбициозного молодого человека, у которого за душой ни гроша. Так начинается новая жизнь...Жанр: ДрамаРежиссер: Янис СтрейчАктеры: Вия Артмане, Гунар Цилинский, Эльза Радзиня, Ивар Калныньш, Раймонд Паулс, Эдуард Павулс, Майя Эглите, Валентин Скулме, Петерис Гаудиньш, Илга Витола, Лилита Берзиня, Эвальд Валтер, Байба Индриксоне, Юрис Стренга, Ольга Круминя, Янис СтрейчПродолжительность: 02:16:15
+01. Hors D'oeuvre (3:29)
+02. Bluebird (17:54)
+03. Pearl Of The Lake (5:11)
+04. Hallsands (14:18)(   Читать дальше...   )Жанр: Prog Rock, FolkПродолжительность: 01:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09A73923660B21D6A3E66443F93DD93417934B91
+magnet:?xt=urn:btih:E03D53AB6E93F010431F299BF1DFDADE2E12E3E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +423,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 778029   (808317) от 17.04.2014
+###  Публикация: 1118652   (811812) от 26.03.2017
 
-Перри Мейсон / Perry Mason (1963-1964) DVDRip [H.264] (Сезон 7, 30 серий из 30)
+The Oscar Peterson Trio - Walking The Line (1970) 2005, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Судебный адвокат в системе института американского правосудия — явление особое, не имеющее аналогов в европейской юридической практике. Герой Э. Гарднера не просто адвокат, он активно участвует в процессе расследования: собственноручно добывает улики, спешит попасть на место преступления раньше полиции, подчас даже скрывает на время вещественные доказательства. В (   Читать дальше...   )Жанр: ДетективРежиссер: Уильям Рассел, Бернард Ковальский, Джон Инглиш и др.Актеры: Рэймонд Бёрр, Барбара Хейл, Уильям Хоппер, Уильям Толмэн, У. Блэк, Р. Слэнтон, Г. Хенри.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: СВ-ДубльПродолжительность: ~00:50:00 серия
+01.I Love You [05:15]
+ 02.Rock of Ages [05:33]
+ 03.Once Upon a Summertime [05:20]
+ 04.Just Friends [03:59](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72EB695F72DA294BBF13B0F889B24EFE48182D33
+magnet:?xt=urn:btih:29E8CEAE68E221A84C819852A791726B942BF696
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +452,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 317993   (808308) от 03.04.2011
+###  Публикация: 1118565   (811811) от 26.03.2017
 
-VA - CLUBная Жар vol.5 (2011) [MP3|256 kbps]<Club, Dance, House>
+VA - 7 Days: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Sarah Decourcy - Face Of Summer
+002. Paul van Dyk & Ronald van Gelderen - Everyone Needs Love
+003. Somna - Awakening (Assaf Remix)
+004. Xten - Love Is The Answer (Air Project Remix Radio Edit)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 07:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFAD34C027537A79286E76BC28391FDE27CC395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118750   (811810) от 26.03.2017
+
+Chris Duarte Group - Love Is Greater Than Me (2000) [FLAC|Lossless|image + .cue] <Blues Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Club, Dance, HouseПродолжительность: 03:46:10
+01| Baddness  (04:06) 
+02| Brand New Day  (03:09) 
+03| All Night  (04:55) 
+04| Metaphor Song  (05:14) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E747F442D7047051C06F6A78F5679EEED8E32319
+magnet:?xt=urn:btih:5496781EBD034F042A979DA8D55A9C56436F9EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +510,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198401   (808301) от 11.01.2018
+###  Публикация: 1118401   (811809) от 26.03.2017
 
-Арундати Рой | Бог Мелочей (2017) [MP3]
+Stryper - Soldiers Under Command (1985) Japan [FLAC|Lossless|image + .cue] <Hair Heavy Metal>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Дебютный роман Арундати Рой, который заслуженно сравнивают с произведениями Фолкнера и Диккенса, – это современная классика, которую читают, слушают и любят по всему миру. Глубокая семейная сага, история запретной любви и пронзительная политическая драма, эта аудиокнига рассказывает о зажиточной индийской семье, жизнь которой раз и навсегда меняется в один судьбоносный (   Читать дальше...   )Жанр: ПрозаПродолжительность: 11:51:50
+01 Soldiers Under Command 5:03
+02 Makes Me Wanna Sing 2:53
+03 Together Forever 4:04
+04 First Love 5:51(   Читать дальше...   )Жанр: Hair Heavy MetalПродолжительность: 00:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AFEA30258C15287D6806A054BCC8112677717AC
+magnet:?xt=urn:btih:2A8527A809DBBB1564C7154A8AB9124B13EEF167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118950   (811808) от 26.03.2017
+
+Charlie Patton's War - Charlie Patton's War (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодая группа со звучанием в традициях старой школы блюза, к тому же, подающая большие надежды (с таким то названием).
+Charlie Patton's War сформировалась 2010 году, когда музыканты Аарон Фрейзер (вокал, барабаны), Блейк Рейн (вокал, гитара), Кайл Хоупт (гитара), и Джастин Хублер (клавишные / фортепиано) обнаружили общий интерес в блюз, джаз, и рок-музыке. В то (   Читать дальше...   )01. Git Gone (2:52)
+02. Fatties (2:39)
+03. Say Ya Mine (3:49)
+04. Highway Blues (3:02)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBEC25BFD99AE8118A1BFB8C2EB61F0AF90BAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118836   (811807) от 26.03.2017
+
+Chris Duarte Group - Vantage Point (2008) [FLAC|Lossless|tracks + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01| The Best I Can Do  (03:39) 
+02| Satisfy  (03:56) 
+03| Slapstick  (05:55) 
+04| More Boogie  (00:00) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB924347BAF2CD80F6979C00267B87173BC1778B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118834   (811806) от 26.03.2017
+
+The Snake Charmers - Been Gone Too Long (2008) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Nothin' But The Blues (5:35)
+02. No Mercy (4:20)
+03. Can't Trust A Heart (4:53)
+04. Big Big Love (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E941D5C14F69FF4D661094B83194C6DAA5E9592C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009108   (811805) от 20.04.2016
+
+Wise Care 365 Pro 4.15.401 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программный пакет для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать список приложений автозагрузки и пр.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC2C1EBD75FC314C549222ED8D51FCB7D4CE054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008951   (811803) от 20.04.2016
+
+Geraldine Cordeau - Space And Time (1984) [MP3|320 кб/с] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Альбом "Space And Time" (Пространство и время) канадской исполнительницы Geraldine Cordeau, многими сравнивается с первыми нашумевшими космическими композициями  Dee D. Jackson  и был весьма популярен на родине исполнительницы, а так-же в Европе, особенно у горячих южан. К сожалению, в том "Времени и Пространстве" эпохи СССР, не многие успели ознакомиться (   Читать дальше...   )01. Space And Time   (5:28)
+02. Maybe Tonight   (5:46)
+03. Do It For You   (4:33)
+04. What Can I Do   (4:40)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A1F253266BB153222A5813632DC9CBD97BB35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009119   (811801) от 20.04.2016
+
+Джон Локк | Список желаний (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Донован Крид – бывший агент ЦРУ, охотник на террористов, а ныне – высококлассный наемный убийца. Это человек со стальными нервами. Он безжалостен и действует строго в рамках контракта. До тех пор, пока не задето за живое его обостренное чувство справедливости…
+
+В жизни обычного банковского клерка со смешным именем Бадди Блинчик начали происходить удивительные вещи. (   Читать дальше...   )Жанр: Современные детективы, Триллеры, Зарубежные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0851D18064502EEE27E3A5C5699158CC29E2BE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009116   (811799) от 20.04.2016
+
+Wise Care 365 Pro 4.15.401 Final RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Программный пакет для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать список приложений автозагрузки и пр.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0596B78A2592788D044BF76A0D8975DD4FCD9BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

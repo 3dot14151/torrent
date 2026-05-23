@@ -1,3 +1,83 @@
+###  Публикация: 1585579   (204925) от 22.10.2022
+
+Udemy, Jose Moreno | Blender & Substance - Modeling and Texturing Videogame Props (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Изучите полный рабочий процесс создания 3D моделей для видеоигр и создайте пять ассетов используя Blender и Substance Painter.
+В этом курсе мы создадим пять ассетов: кружку, рог, топор, щит и шлем. Мы изучим такие темы кам моделирование, UV развертка, оптимизация моделей для игр, текстурирование, создание рендера и импорт в игровые движки.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 14:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA46F046FE9F693E9FC9C92E5C501F642C1CCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585774   (204867) от 23.10.2022
+
+Udemy, Victor Deno | Blender: Ultimate Game Art Creation Guide (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Хотите создать готовый к игре арт для своего портфолио и игрового движка только с помощью Blender?
+В этом курсе рассматривается процесс создания готовых к игре PBR ассетов в Blender и экспорта его в ваш любимый игровой движок, такой как Unreal, Unity, Godot & Sketchfab. Я создал этот курс как ответ для начинающих создателей, чтобы они могли начать свою творческую (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 07:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F21F5916B5F914C1F5933C58CFBF4FFD56D2AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585991   (204855) от 24.10.2022
+
+YouTube, Rachel | Scifi Hardsurface Glove Time-Lapse in Blender 2.9 (2022) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Таймлапс процесса создания Sci-Fi перчатки в Blender 2.9.Производство: YouTubeЖанр: 3D моделированиеЯзык озвучки: Озвучки нет, только музыкаПродолжительность: 02:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B732D69B7C384FCC03886B8715ABC2AB0A5835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585990   (204854) от 24.10.2022
 
 Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
@@ -6,7 +86,7 @@ Gumroad, Rachel | Modeling a Scifi Helmet in Blender 2.8 (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -33,7 +113,7 @@ Udemy, Sime Bugarija | Complete Blender beginner workflow for Cinematic animatio
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -61,7 +141,7 @@ Skillshare, Harry Jones | Blender 3D for Beginners: Create a 3D Vaporwave Animat
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -88,7 +168,7 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -114,7 +194,7 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -143,7 +223,7 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -172,7 +252,7 @@ Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -198,7 +278,7 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -226,7 +306,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -254,7 +334,7 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -280,7 +360,7 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -309,7 +389,7 @@ School of Motion, Nol Honig | After Effects Kickstart (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -335,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -364,7 +444,7 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -393,7 +473,7 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -421,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -450,7 +530,7 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -479,7 +559,7 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -505,7 +585,7 @@ Breezzly, Анастасия Свеженцева | Создание экскл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -532,7 +612,7 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -561,7 +641,7 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -588,7 +668,7 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -617,7 +697,7 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -631,91 +711,6 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64D20A112AEA0675B6641B0372E286942DD898F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609549   (203168) от 03.02.2023
-
-Фотошкола "Друзья", Александр Заморин, Соня Лебедева | Ретушер (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет «Продвинутый»
-Включает 41 занятие + Raw исходники + Бонусы
-
-Начни обрабатывать так как всегда мечтал!(   Читать дальше...   )Производство: Фотошкола "Друзья"Жанр: Обработка фотографийЯзык озвучки: РусскийПродолжительность: 13:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A3813543597E93C7ABA8E52D39D0B252841DBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609316   (203156) от 03.02.2023
-
-Waqas Qazi | Master DaVinci Resolve NODE TREE. Live Training Session 2 (2020) WEB-DL [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203156.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом живом обучении я собираюсь показать свое дерево узлов подписи, которое я практически использую на каждом концерте. И мы собираемся построить это дерево узлов с нуля, чтобы вы могли узнать все, что вам нужно знать об узлах внутри DaVinci Resolve.
-Мы завершим тренинг разделом «Вопросы и ответы», где вы получите индивидуальные ответы на свои конкретные вопросы. (   Читать дальше...   )Жанр: Видео, ЦветокоррекцияЯзык озвучки: Английский, РусскийПродолжительность: 03:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6F801278CDB57A8AABBD782E966B185D7106E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609734   (203135) от 04.02.2023
-
-Художник Онлайн, Дарья Куцаева | Перспектива. Маркеры (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа обучения
-
-История перспективы. Теория. Курс начнется с серии теоретических уроков. На первом занятии Дарья расскажет о том, какие виды перспективы использовали художники прошлого.
-(   Читать дальше...   )Производство: Художник ОнлайнЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 16:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10063C225BFFCB4A2083850ECFFF97A613720276
 ```
 
 https://mybot314.ru/tekegram_catalog/

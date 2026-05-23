@@ -1,3 +1,85 @@
+###  Публикация: 824297   (468458) от 23.09.2014
+
+Profileschool | Пейзажная симфония (2013) [PCRec]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Многие даже не задумываются, что скрывается под словом «пейзаж», не говоря уже о том, благодаря каким таинствам он появляется перед нашими глазами в виде фотографий. Именно этим вопросам и будет посвящена первая часть мастер-класса Александра Киценко. Во второй части мы познакомимся с его авторской методикой художественной ретуши пейзажных фотографий, в которой будут (   Читать дальше...   )Жанр: Фото, пейзажПродолжительность: 3:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BC445F32FBE014331953BFD796C89EC16238BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566957   (465740) от 06.08.2022
+
+Udemy, Mrawan Hussain | BLENDER: Creating the Dune Ornithopter from start to finish (2022) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Всем привет, меня зовут Марван Хуссейн , и я приветствую вас на моем новом фантастическом курсе.
+
+Как создать орнитоптера Дюны с помощью Blender и Substance Painter от начала до конца.
+(   Читать дальше...   )Производство: UdemyЖанр: 3D-моделированиеЯзык озвучки: АнглийскийПродолжительность: 49:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4565B35FA29200CB5909B02B2916620F9E9C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568092   (465738) от 06.08.2022
+
+Skillshare, 3D Tudor | Blender 3 to Unreal Engine 5 Dungeon Modular Kitbash (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в путешествие по 3D-моделированию игрового окружения в Blender и Unreal Engine 5.
+Являетесь ли вы поклонником RPG или игроком dungeons and dragons (DND) или геймдизайнером, который хотел бы создать средневековое окружение подземелий для игр, этот курс идеально подходит для вас! Вы станете мастером подземелий! Постройте замысловатую конструкцию с извилистыми (   Читать дальше...   )Производство: SkillshareЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 26:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE3F74216B2F0B2DE254EECF278C67F9F3E52D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408179   (457682) от 11.09.2020
 
 Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
@@ -6,7 +88,7 @@ Robby Branham | Multi Pass Rendering and Compositing (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +114,7 @@ CG Cookie | Текстурирование оружия в Blender 2.79 и Subst
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +140,7 @@ Udemy | Создание катаны для игр в Blender 2.83 и Substance
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +166,7 @@ CG Cookie | Моделирование оружия для шутера от п�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +192,7 @@ Denis Kozhar | UE4 by Denis Kozhar (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +221,7 @@ Profileschool | Графический планшет для ретушера (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +275,7 @@ CG Cookie | Создание карт нормалей для игр в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +301,7 @@ CG Cookie | Текстурирование и шейдинг Sci-Fi шлема �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +329,7 @@ CG Cookie | Моделирование пост апокалиптическог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +358,7 @@ CG Cookie | Моделирование Sci-Fi шлема в Blender 2.71 / Model
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +384,7 @@ Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +411,7 @@ Groove3, Эрик Кинл | Creating Game Audio with Pro Tools (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +438,7 @@ Artstation, Aleksandr Kirilenko | Becoming An Expert In Marvelous Designer (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +495,7 @@ Udemy, ChamferZone, Tim Bergholz | Revolver Tutorial - Industry Ready Weapon & A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +549,7 @@ CG Forge, Tyler Bay | Destruction I - RBD simulation (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +576,7 @@ Entagma, Moritz Schwind | Mograph Liquids: Controlling FLIP Fluids Via Curve For
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -520,7 +602,7 @@ Entagma, Moritz Schwind | Axiom Solver: Dissolving Logo (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -546,7 +628,7 @@ Udemy, Hardy Fowler | Line Art Master (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +655,7 @@ Masterclass, Will Wright | Will Wright Teaches Game Design and Theory (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -600,7 +682,7 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -611,87 +693,6 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F942E2C87135C03B6E84819AA548EE5C822BD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569663   (448606) от 14.08.2022
-
-The Gnomon Workshop, Aaron Sims | Real-Time Filmmaking in Unreal Engine 5 — THE EYE: CALANTHEK (2021) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Режиссер Аарон Симс исследует возможности повествования в Unreal Engine 5 и предлагает студентам открыть для себя его рабочий процесс UE5 и процесс создания отмеченного наградами короткометражного фильма THE EYE: CALANTHEK.
-Охватывая весь спектр кинопроизводства UE, этот курс охватывает всё: от разработки сюжета в Unreal до создания персонажей и мира, мокапа и анимации (   Читать дальше...   )Производство: The Gnomon WorkshopЖанр: ВидеоурокЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 05:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5E68A595656CAAF1D0AA8C7F0478A70A55E297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409355   (447226) от 16.09.2020
-
-Will Wallace | Разрушение дома / Destruction Training with Thinking Particles (2014) HDTV [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специально для любителей разрушать с голливудским размахом всего вокруг, в 3D-пространстве конечно. Будет полезно для изучающих спецэффекты. Также тут рассказывается в подробностях обо Thinking Particles, что есть большим плюсом.
-Один из голливудских специалистов по FX с опытом более 6 лет и участвующий в создании фильмов: Pompeii, The Avengers, Looper, Captain America: (   Читать дальше...   )Производство: TheHouseFXЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 16:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE40766315045E2C8D7A65F516A7CE4FF0C0D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409276   (447026) от 16.09.2020
-
-Джама Джурабаев | Рисование поверх 3D рендеров / Painting Over 3D renders (2019) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447026.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом уроке я покажу, как рисовать поверх 3D-рендеров - это то, что я делаю почти ежедневно в качестве концепт-художника фильмов.
-3D очень помогает установить перспективу, освещение, текстуры и многие другие важные детали в вашем арте, но всегда есть момент, когда вам кажется, что вам нужно нанести на него немного краски, чтобы продвинуть его дальше.Производство: GumroadЖанр: Рисование, Концепт-артПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 03:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:898B3F7F868B467089054F108117BB5F456392DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

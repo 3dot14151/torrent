@@ -1,3 +1,56 @@
+###  Публикация: 1833800   (247864) от 02.11.2025
+
+PBS. American Experience: Осуждение Роберта Оппенгеймера / The Trials of J. Robert Oppenheimer (2008) WEB-DL [H.264/1080p] (сезон 21, серия 1 из 10)
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Биография Роберта Оппенгеймера - одной из ключевых и неоднозначных фигур в американской науке ХХ столетия. Номинант Оскара, актер Дэвид Стрэтэйрн («Доброй ночи и удачи», «Ультиматум Борна») исполняет роль Роберта Оппенгейма. В фильм также вошли интервью с бывшими коллегами ученого и его выдающимися учениками. Прослеживается жизненный путь Оппенгеймера: детство в (   Читать дальше...   )Производство: США, David Grubin Production Inc., WGBHЖанр: документальный, военный, биография, история, наукаРежиссер: Дэвид ГрубинУчастники: Дэвид СтрэтэйрнПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2ADC613831AA3DC213064484F404735EE5162BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 366905   (247757) от 06.06.2023
+
+NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (сезоны 1-8, серий 42)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+У каждой культуры существуют свои традиции и свои правила жизни. Мы знакомимся с самыми странными и порой неприемлемыми для природы человека обрядами и ритуалами, которые являются неотъемлемой частью культуры некоторых народностей на нашей земле.
+Что заставляет некоторых людей вставлять  стальные рыболовные крючки  в кожу на спине своего приятеля, чтобы подвесить его (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: ДокументальныйПеревод: Профессиональный одноголосый (студия АРК ТВ)Субтитры: нетПродолжительность: ~00:45:00-00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1AB63CE2B1EEA590329B7ECE9CFCEED6E0A48F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 203036   (246960) от 15.07.2023
 
 О сексе / Sex Sense (1999 - 2008) TVRip [61 серия]
@@ -6,7 +59,7 @@
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -34,7 +87,7 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +113,7 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -86,7 +139,7 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -112,7 +165,7 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +243,7 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -216,7 +269,7 @@ Discovery: Разрушители автолегенд / Motor MythBusters (2021
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -268,7 +321,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -294,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -320,7 +373,7 @@ NG. Затерянные города с Альбертом Лином / Lost Ci
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -346,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +425,7 @@ NG. Смертельно опасные монстры Австралии / Aust
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -450,7 +503,7 @@ NG. Море надежды. Подводные сокровища Америк�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -476,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -502,7 +555,7 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +581,7 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -554,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -580,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -606,7 +659,7 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -617,58 +670,6 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A7E65D3C45FB85AB46D0256E03109248EC61C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549691   (233400) от 23.05.2022
-
-Динозавры: Последний день с Дэвидом Аттенборо / Dinosaurs - the Final Day with David Attenborough (2022) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>Доисторический мир
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сэр Дэвид Аттенборо представляет этот знаменательный документальный фильм, в котором с беспрецедентными подробностями оживает затерянный мир самых последних дней существования динозавров. Обыскивая холмы Северной Дакоты, палеонтолог Роберт ДеПальма делает невероятное открытие на доисторическом кладбище, известном как Танис, — окаменелые существа, удивительно хорошо (   Читать дальше...   )Производство: ВеликобританияЖанр: ДокументальныйРежиссер: Мэттью ТомпсонПеревод: Двуголосый закадровыйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A2E1F0703C6EFE5F59227320F5672D5DD291A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506487   (232490) от 28.05.2022
-
-NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий океан - самый большой и глубокий океан на нашей планете. Эта серия фильмов демонстрирует множество невероятных существ, которые стали называться тихоокеанским домом.Производство: Новая Зеландия / Natural History New Zealand Ltd.Жанр: Документальный, Природа, Фауна, ФлораРежиссер: Лорн ТаунендПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 2 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CB9ADF69CFAC568C4C1BDCCA17F8B50C0043CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

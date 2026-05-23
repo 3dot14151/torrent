@@ -1,3 +1,107 @@
+###  Публикация: 1145891   (618090) от 27.06.2017
+
+И. М. Ермаков | Правда о религии (1960) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В брошюре речь идет о действительной природе религии как продукта извращенного, искаженного понимания природы и общества, раскрывается ее роль в обществе как опиума народа, показывается полная несовместимость научного коммунизма и религиозной веры, строительства коммунистического общества и религиозной проповеди о «счастье» человека в загробном мире. Автор счел необходимым (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01B72B317E1803E34022FE61F8D5FFFC1C3E9744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145703   (618082) от 27.06.2017
+
+Д. М. Матяс | Отношение христианства к войне и миру [материал в помощь лектору] (1977) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В брошюре представлены материалы, отражающие отношение христианства к проблеме мира и войны.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939EDB0968AC5AE36A20C28118AA7428FA33A436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145930   (617976) от 27.06.2017
+
+Монах Митрофан | Как живут наши умершие и как будем жить и мы по смерти (2000) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Для скорбящего сердца человечества, за живую струну которого постоянно затрагивала грозная смерть, автор и счел, и даже нашел естественным противоядием понятию “смерть” поставить на вид понятие “жизнь” и мнимое небытие заменить живым сознанием бытия (Лк. 7, 14; 8, 52-53; Ин. 11, 11-44) и выразиться соответственно внутреннему голосу скорбящего сердца так, как таинственно (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4519FFB680B39E9E13A336E74E7C803D63942737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034996   (617048) от 22.07.2016
+
+Роберт Френсис Тафт | Литургический лексикон (2013) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+основу данного иллюстрированного словаря положены статьи проф. архим. Роберта Тафта, написанные для «Оксфордского словаря Византии», вышедшего в 1991 г. в Великобритании под ред. А. П. Каждана, и для «Энциклопедии католицизма ХарперКоллинз», увидевшей свет в США в 1995 г. под ред. проф. Р. МакБрайена. Статьи охватывают темы литургики и связанные с ней отдельные аспекты (   Читать дальше...   )Жанр: Литургика, словарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ABBA5967E75AABB04E56176D1BF2BA67A36A32E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295343   (617027) от 14.04.2019
 
 К.Е. Скурат | Лампада Глинская. Старчество в современном мире (2005) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -224,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614243.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -517,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -543,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D105452D7D80CD68A6341CEBB350A0EEDAF9AEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037308   (613862) от 24.07.2016
-
-В. В. Коник | Иллюзии свидетелей Иеговы (1981) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613862.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кандидата философских наук В. Коника на большом фактическом материале убедительно раскрывается сущность религиозного сознания и миссионерской деятельности свидетелей Иеговы. Автор показывает неоригинальность, антигуманный характер, научную и логическую несостоятельность их вероучения и проповедничества, а также антикоммунистическую и антисоветскую направленность (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5022784803233539B2AF06A09A360CDCEB1B118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912345   (612677) от 25.06.2015
-
-Н. Ф. Усков | Христианство и монашество в Западной Европе раннего Средневековья [Германские земли II/III - середина XI в.] (2001) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является первым в отечественной историографии исследованием раннесредневекового монашества, которое рассматривается в широком контексте религиозного, социального и политического развития. Географически монография охватывает германские земли. Их исследование, однако, не изолировано от изучения христианства и монашества в Галлии (с ней они составляли королевство (   Читать дальше...   )Жанр: Христианство, Общие представленияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CB6002968C0BB9310B5842119E4AF6B565B47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037867   (612225) от 25.07.2016
-
-Жан-Мари Вианней (Иоанн Мария Вианней) | Чему учил Жан-Мари Вианней (1970) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит не все проповеди Ж. М. Вианнея, но все они упоминаются и иногда приводятся в кратком изложении с цитатами избранных мест. Составители ограничились избранными местами, чтобы иметь возможность ознакомить читателей и с уроками Закона Божия Арсского пастыря, ещё более знаменитыми, чем его проповеди. На обложке церковь, в которой проповедовал Арсский (   Читать дальше...   )Жанр: Проповеди и уроки Закона БожияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30838421446B84F307EB47D33BB0F6B81184DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037872   (612140) от 25.07.2016
-
-Д. С. Бирюков (ред.) | Иросанфион, или Новый Рай [Собрание текстов монашеской агиографии Палестины, Египта и Византии V-XV вв.] (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание объединяет произведения древнехристианской монашеской литературы Египта, Палестины и Византии: Лавсаик Палладия Еленопольского; тексты, связанные с обителью Хозива; новеллы, не вошедшие в основной корпус Луга Духовного; Новый Митерикон - собрание нравоучительных историй, посвященных женскому монашеству, и другие памятники монашеской письменности. Все тексты (   Читать дальше...   )Жанр: АгиографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8050074832335BE55695BC4EB5B59303CA524017
 ```
 
 https://mybot314.ru/tekegram_catalog/

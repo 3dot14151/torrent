@@ -1,3 +1,107 @@
+###  Публикация: 1297500   (549279) от 21.06.2019
+
+Невезучие / La Chevre (1981) BDRip [H.264] [PR]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Существует тип людей, страдающих хроническим невезением. Они опаздывают на поезда, проливают красное вино на белую одежду, на них падают кирпичи. Единственная дочь миллионера Мари, как раз из таких. Не повезло ей в очередной раз - пропала где-то в Латинской Америке.Производство: Франция, Мексика, Мальта / Conacite Uno, Fideline Films, Gaumont InternationalЖанр: комедия, криминал, приключенияРежиссер: Франсис ВеберАктеры: Пьер Ришар, Жерар Депардье, Педро Армендарис мл., Коринн Шарби, Марица Оливарес, Андре Валарди, Хорхе Луке, Серхио Кальдерон, Мишель Робен, Робер ДальбанПеревод: Дублированный, Многоголосый, ДвухголосыйСубтитры: русские, английские, французскиеПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284A6200B19F323DBDF53BBDF6886BB958E07078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044904   (549093) от 30.08.2016
+
+Каламити Джейн и Сэм Басс / Calamity Jane and Sam Bass (1949) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бродяга Сэм Басс проявляется в Дентоне, штат Техас, в поисках работы. И привлекает к себе внимание сразу двух женщин: сестры шерифа Кэтрин Иган, и дикой женщины прерий Каламити Джейн. Вскоре Сэм богатеет, благодаря скаковым лошадям. Но везение с лошадьми и женщинами приводит его к беде. Он вынужден переступить черту.Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джордж ШерманАктеры: Ивонн Де Карло, Говард Дафф, Дороти Харт, Уиллард Паркер, Норман Ллойд, Ллойд Бриджес, Марк Лоуренс, Хаусли Стивенсон, Милберн Стоун, Клифтон ЯнгПеревод: Многоголосый закадровый (6-й канал СТС)Язык субтитров: АнглийскийПродолжительность: 01:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99413E71EC198BCD6E8113AD736957F34C5E986E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045666   (548118) от 31.08.2016
+
+Морские дьяволы / Sea Devils (1953) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1804 год. Английский контрабандист Гиллиатт однажды соглашается перевезти красивую девушку к французскому побережью. Она рассказывает ему трогательную историю о том, что надеется спасти своего брата от гильотины. На самом деле она — английский шпион и выдает себя за французскую графиню. Цель — добыть сведения о наполеоновском флоте и планы вторжения в Англию. Гиллиатт (   Читать дальше...   )Производство: США, Великобритания / Coronado ProductionsЖанр: Боевик, Драма, ПриключенияРежиссер: Рауль УолшАктеры: Ивонн Де Карло, Рок Хадсон, Максвелл Рид, Денис О’Ди, Майкл Гудлифф, Брайан Форбс, Жак Б. Брюниус, Айвор Барнард, Артур Уонтнер, Жерар УриПеревод: Одноголосый закадровый, любительский (erogg)Язык субтитров: РусскийПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317D82D83A6CEAF91C3A5573E69C9BB557B0A5AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652040   (547956) от 31.08.2016
+
+Вилли Вонка и шоколадная фабрика / Willy Wonka & the Chocolate Factory (1971) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Владелец шоколадной фабрики – Вилли Вонка устраивает лотерею. Он прячет в пяти из шоколадок, выпускаемых своей фабрикой, золотые билеты. Вскоре пятеро счастливцев отправляются на экскурсию по фабрике, где делают столь прекрасный и любимый всеми шоколад. Из пятерых претендентов только один получит главный приз – запас шоколада, которого ему хватит на всю жизнь. Среди (   Читать дальше...   )Производство: США / David L. Wolper ProductionsЖанр: Мьюзикл, Фэнтези, СемейныйРежиссер: Мэл СтюартАктеры: Джин Уайлдер, Джек Альбертсон, Питер Острам, Рой Киннер, Джули Доун Коул, Леонард Стоун, Денис Никерсон, Нора Денни, Парис Теммен, Урсула Райт, Майкл Боллнер, Дайэна Саул, Обри Вудс, Дэвид Баттли, Гюнтер Майснер, Питер Капелла, Вернер Хейкинг, Питер Стюарт, Дора Альтман, Руди Боргсатллер, Тим Брук-Тейлор, Джордж Клэйдон, Пэт Кумбс, Фрэнк Делфино, Малкольм Диксон, (   Читать дальше...   )Перевод: Многоголосый закадровый, профессиональныйЯзык субтитров: РусскиеПродолжительность: 01:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210D9C3A6AAC6957C98782013958BE1BF96C0E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603720   (547597) от 28.08.2014
 
 Пригородные поезда / Les tortillards (1960) [H.264] DVDRip
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -298,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,114 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7785CDF8C7C600F1552A825333E8B3921B7C610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592406   (537909) от 04.09.2013
-
-Квартира для девочек / L'appartement des filles (1963) DVDRip [H.264] [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очаровательные стюардессы Элена, Лолотта и Мелани в промежутках между авиарейсами живут втроём в одной квартире. Жюльен Тибер — обольстительный контрабандист, которому во что бы то ни стало необходимо с помощью одной из подруг переправить двадцать килограммов золота в Бомбей. Но тут в дело вмешивается любовь...
-
-"Квартира для девочек" - один из самых ранних (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ) / Transcontinental Films, Produzioni Intercontinentali, Consul FilmverleihЖанр: Комедия, Мелодрама, КриминалРежиссер: Мишель ДевильАктеры: Жан-Франсуа Кальве, Даниэль Секкальди, Милен Демонжо, Рената Эверт, Сами Фрей, Сильва КошинаПеревод: Одноголосый (humbert sound studio)Продолжительность: 01:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4E0A443B48C883AAAFD45B071DCCD394CE76B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532533   (537867) от 07.08.2012
-
-Сексмиссия (Новые амазонки) / Seksmisja (Sexmission) (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ловкий ловелас Альберт и интеллигент Максимилиан соглашаются стать участниками эксперимента профессора Куппельвайзера: они, двое молодых мужчин лет 30-ти, в интересах науки должны быть заморожены сроком на 3 года. Однако за время, проведенное ими в специальных капсулах, на Земле многое изменилось, и потому Альберта с Максом разморозили не через три года, а через (   Читать дальше...   )Производство: Польша, ZRF "Kadr", Zespól Filmowy "Kadr"Жанр: Комедия, ФантастикаРежиссер: Юлиуш МахульскийАктеры: Ольгерд Лукашевич, Ежи Штур, Божена Стрыйкувна, Богуслава Павелец, Ханна Станкувна, Беата Тышкевич, Рышарда Ханин, Барбара Людвижанка, Мирослава Мархелюк, Ханна МикуцьПеревод: Профессиональный многоголосыйСубтитры: нетПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5E928F605FD4098D3C80D709E3FCF80108855C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555698   (537319) от 17.06.2022
-
-Кавалеристы / The Horse Soldiers (1959) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полк кавалерии во главе с полковником Марлоу готовится к решительному наступлению. Майор Кендалл, полковой хирург, испытывает растущую неприязнь к своему жесткому и непримиримому начальнику.
-Отношения обостряются, когда в расположении полка появляется красавица Ханна Хантер. Выяснение отношений грозит вылиться в кровавую драму, но времени до начала боевых действий (   Читать дальше...   )Производство: США / Mahin-Rackin, The Mirisch CorporationЖанр: Приключения, Мелодрама, Вестерн, ВоенныйРежиссер: Джон ФордАктеры: Джон Уэйн, Уильям Холден, Констанс Тауэрс, Джадсон Прэтт, Хут Гибсон, Кен Кертис, Уиллис Бучи, Бинг Расселл, О. З. Уайтхед, Хэнк УорденПеревод: Двуголосый профессиональный, авторскийСубтитры: Русские, английскиеПродолжительность: 02:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC7783166A0E283CBD9870548878A78D75B5DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925912   (537032) от 08.08.2015
-
-Месть Розовой пантеры / Revenge of the Pink Panther (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537032.jpg" />
-</div>
-
-
-###  Подробнее
-
-По Франции разносится слух, что старший инспектор Клузо погиб. Вся страна скорбит, ликует лишь один инспектор Дрейфус… Наконец-то, он избавился от ненавистного коллеги! Однако его радость быстро заканчивается. Оказалось, что смерть Клузо — всего лишь мистификация, задуманная им самим, чтобы поймать опаснейшего преступника.
-Пятый  фильм из цикла «Розовая пантера». (   Читать дальше...   )Производство: Великобритания, США / Jewel Productions Ltd., Pimlico Films, Sellers-Edwards productionsЖанр: Комедия, КриминалРежиссер: Блейк ЭдвардсАктеры: Питер Селлерс, Херберт Лом, Берт Квук, Дайан Кэннон, Роберт Уэббер, Тони Бекли, Роберт Лоджа, Пол Стюарт, Андре Маранн, Грэм СтаркПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE7E11811359BCDC3314587B3338851B3CD1969
 ```
 
 https://mybot314.ru/tekegram_catalog/

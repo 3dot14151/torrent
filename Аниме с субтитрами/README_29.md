@@ -1,3 +1,110 @@
+###  Публикация: 1495350   (882293) от 11.09.2021
+
+Haha o Tazunete Sanzenri | 3000 Leagues In Search of Mother | 3000 лиг в поисках матери [1976, TV, 52 из 52] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в конце XIX века. Мальчик по имени Марко живёт со своей семьей в порту города Генуя (Италия). Его отец, Пьетро Росси, — врач, который всё свое время посвящает лечению бедных пациентов, поэтому семья испытывает финансовые трудности. Мать Марко, Анна Росси, отправляется в Аргентину, где нанимается на работу служанкой. Через некоторое время от неё (   Читать дальше...   )Производство: Nippon Animation / 日本アニメーションЖанр: приключения, драмаРежиссер: Такахата ИсаоПеревод: ЕленаЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 52 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC21D383C0C7E532EDDA6791231FA892971DCE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495514   (880615) от 12.09.2021
+
+Zombie Land Saga Revenge | Зомбиленд. Сага: Месть [2021, TV, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В эпоху Хэйсэй Сакура Минамото вместе с другими девушками-зомби провела концерт в выставочном зале Фурусато Карацу, Арпино, на пятьсот зрителей. Тогда их популярность взлетела до небес, первый диск продавался как горячие пирожки!
+Они выступали на множестве различных площадок, а месяц спустя их продюсер Котаро Тацуми решил устроить концерт на стадионе недвижимости (   Читать дальше...   )Производство: MAPPAЖанр: комедияРежиссер: Сакай МунэхисаПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5562090083B63D40FD8F6BFB2871E71B2D69E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373354   (880336) от 06.04.2020
+
+Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, монстр могучей природы [1984, Special, 1 эп.] BDRip 720p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Баги, «монстр могучей природы» – продукт генетического моделирования, гибрид человека и пумы, сверхчеловек или сверхкошка, существо доверчивое, трогательное и смертельно опасное.
+Пытаясь найти своих «родственников» (таких же мутантов, как она), Баги ввязывается сама (и втягивает своего единственного друга, мальчика Рёсукэ) в конфликт с секретной правительственной (   Читать дальше...   )Производство: студия Tezuka Productions / 手塚プロダクションЖанр: приключения, фантастика, романтикаРежиссер: Тэдзука ОсамуПеревод: Orphan-M74; 1) Andy Switch 2) filmov 3) KirЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 86 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FD59FD8CD82918498B5E176E21562DA1F1D6AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373355   (880335) от 06.04.2020
+
+Daishizen no Majuu Bagi | Bagi, the Monster of Mighty Nature | Баги, монстр могучей природы [1984, Special, 1 эп.] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Баги, «монстр могучей природы» – продукт генетического моделирования, гибрид человека и пумы, сверхчеловек или сверхкошка, существо доверчивое, трогательное и смертельно опасное.
+Пытаясь найти своих «родственников» (таких же мутантов, как она), Баги ввязывается сама (и втягивает своего единственного друга, мальчика Рёсукэ) в конфликт с секретной правительственной (   Читать дальше...   )Производство: студия Tezuka Productions / 手塚プロダクションЖанр: приключения, фантастика, романтикаРежиссер: Тэдзука ОсамуПеревод: Anime Sols; 1) Andy Switch 2) filmov 3) KirЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 86 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034E887C1A28AFC231416F79C57A752BD0C5413B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996173   (880272) от 13.03.2016
 
 Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призрак в Доспехах: Новый Фильм [2015, MV] BDRip 1080p Hi10P raw
@@ -6,7 +113,7 @@ Koukaku Kidoutai: Shin Gekijouban | Ghost in the Shell New Movie  | Призра
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -34,7 +141,7 @@ Chihayafuru 3 | Игра Тихайи (ТВ-3) [2019, TV, 24 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -60,7 +167,7 @@ Haikyuu!! To the Top | Волейбол [ТВ-4, часть I ] [2020, TV, 13 и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +193,7 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и гроб [2014, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +219,7 @@ Kaze o Mita Shonen / The Boy Who Saw the Wind / Парящий на ветру [
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +245,7 @@ Mizuiro / The Color of Water / Цвет воды [2003, OVA, 2 из 2] DVDRip 48
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +273,7 @@ Shadow Skill - Movie / Искусство тени OVA-2 [1996, OVA, 3 ep.] DVDR
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -192,7 +299,7 @@ Shadow Skill - Epilogue / Искусство тени OVA-1 [1995, OVA, 1 ep.] D
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +325,7 @@ Shadow Skill - Eigi / Искусство тени [1998, TV, 26 ep.] DVDRip raw 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +351,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 эп. + 13 SP] BDrip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +377,7 @@ Nekomonogatari (Kuro) | История кошки (чёрная глава) [201
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +403,7 @@ Future War 198X Nen | Future War Year 198X | Будущая война 198x-го
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +431,7 @@ Jigoku Sensei Nube / Hell Teacher Nube / Адский учитель Нубэ [1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -350,7 +457,7 @@ Munou na Nana | Talentless Nana | Бездарная Нана [2020, TV, 13 эп
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +483,7 @@ Kuragehime / Princess Jellyfish / Принцесса-медуза [2010, 11 эп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +510,7 @@ Sousei Kishi Gaiarth / Genesis Survivor Gaiarth / Гайярт происхож�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +536,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +562,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +588,7 @@ D4DJ First Mix | Первый микс [2020, TV, 13 из 13] BDRip 1080p 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +614,7 @@ Tantei wa Mou, Shindeiru. / The Detective Is Already Dead / Детектив у�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +640,7 @@ Ore, Tsushima | Я — Цусима [2021, TV, 12 эп.] WebRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +666,7 @@ Tokyo Revengers | Токийские мстители [2021, TV, 24 + SP] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,111 +677,6 @@ Tokyo Revengers | Токийские мстители [2021, TV, 24 + SP] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:095B0D7AD38822B268B3EE981619B1448EC53851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766835   (868881) от 15.03.2014
-
-Bakuman. 3 / Бакуман [ТВ-3] [2012, TV, 25] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моритака Масиро и Акито Такаги, верные друзья и соавторы, не зря работали, как проклятые, совершенствуясь на ходу, сражаясь в конкурсах и создавая собственный стиль. Ребята, фактически вчерашние школьники, уверенно застолбили место в крупных журналах, их последняя манга «Компания лучших проказников» набрала темп и получает неплохие отзывы. Первая часть пути пройдена (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Касай Кэнъити / Kasai Kenichi / カサヰケンイチПродолжительность: 25 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6F4B4CC002342987069EC40680D015CB985BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332334   (868614) от 12.04.2020
-
-Tsuujou Kougeki ga Zentai Kougeki de Nikai Kougeki no Okaasan wa Suki Desuka? | Okaa-san Online | Tы же любишь мамочку и её двойную атаку по нескольким целям? [2019, TV, 12 эп. + OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масато Осуки — обычный старшеклассник, которого вдруг отправляют в игровой мир… вместе с его мамой! И за время путешествия ему предстоит наладить с ней отношения. Но это не так просто, как может показаться: Масато сейчас в том самом возрасте, когда дети стесняются дружить с родителями. Только вот… сможет ли Масато, даже в игре не обладающий выдающимися способностями, (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ивасаки ЁсиакиПеревод: SovetRomantica (TV), Wakanim (OVA)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE88512BA5DAE69B52588F2C0B65B5671CF8B5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998925   (868225) от 20.03.2016
-
-Moetan / Моэтан [2007, TV, 11 + 3SP] BDRip 1080p x265 raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавная пародия на сериалы о девочках-волшебницах, с большим количеством отсылок на популярные сериалы (Shakugan no Shana, Sailor Moon, Jigoku Shoujo и т.д.).
-Трансляция шестой серии на ТВ была отменена вследствие чрезмерной степени эротизма - эта серия вышла позднее в качестве DVD-спешлела. Вместо отменённого эпизода транслировался так называемый эпизод 5.5, состоявший (   Читать дальше...   )Производство: ACTAS, Inc.Жанр: комедия, магия, махо-сёдзё, эттиРежиссер: Кавагути КэйитироЯзык субтитров: Русский (отключаемый), Английский (отключаемый), Китайский (отключаемый)Продолжительность: 11 серий по 25 минут + 3 спецвыпуска
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBAA4E0B70B43D6F65D644D6615894F515733FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496265   (867883) от 20.09.2021
-
-Kuma Kuma Kuma Bear | The Bears Bear a Bare Kuma | Ми-ми-ми-мишка [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867883.jpg" />
-</div>
-
-
-###  Подробнее
-
-15-летняя затворница Юна коротает время в VRMMORPG под названием World Fantasy Online. Но однажды при входе в игру её каким-то образом забрасывает в паралельный мир, как две капли воды похожий на мир игры. Поскольку Юна и так была достаточно опытным игроком, а к тому же теперь получила практически читерский «Комплект медвежонка», она легко осваивается в ставшей реальностью (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: приключения, комедия, фэнтезиРежиссер: Нобута ЮПеревод: AniLibria.TVЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC60730F09C34F4B1291FFCFCA2E54ACAFE32B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

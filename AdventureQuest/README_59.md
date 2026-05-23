@@ -1,3 +1,107 @@
+###  Публикация: 1623318   (200513) от 01.04.2023
+
+Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Солнечные ветры обдувают ваше лицо, когда мистические силы проталкивают величественный галеон сквозь атмосферу в эфир пространства Реальности. Выглянув за пределы палубы, вы будете потрясены красотой удаляющейся планеты Торил, родины Забытых Королевств. "Корабль начеку!" - кричит наблюдатель. Ужасный силуэт "улитки" - военного корабля неоги - (   Читать дальше...   )Тип издания: LicenseРазработчик: CybertechЖанр: Ролевая игра, ПриключениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AEFFEB117C65913D8FFC6EB339C87826DCFD891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624575   (200193) от 06.04.2023
+
+Oxide Room 104 (2022) [Ru/Multi] (1.0.5) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Oxide Room 104 — это сочетание экшена и жанра «эскейп-рум»: леденящий душу боди-хоррор для одного игрока. Действие разворачивается в старом мотеле. Вас похитили, вы находитесь во власти безумного ученого, и теперь по пятам за вами следует ужасающее создание. Прибегните к здравому смыслу, как бы вы сделали в реальной жизни, и постарайтесь сбежать. Сумеете ли вы выбраться (   Читать дальше...   )Тип издания: RepackРазработчик: WildSphereЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский, ИспанскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CF95CA46947EBECD3C37F068EEF42396311E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415212   (200003) от 24.10.2025
+
+Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+У немцев есть слово Schadenfreude, означающее «смех над чужими ошибками». В Neighbours From Hell именно это вам и предстоит! Станьте проказником, измывающимся над соседями. Замените свечу на фейерверк! Замените пену для бритья на взбитые сливки! Фантазируйте!Тип издания: LicenseРазработчик: FarbWorks, THQ NordicЖанр: Приключение, Квест, КомeдияЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CAA2362EE9EF9A98AA7388AC4037BFB41E16C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631642   (198871) от 06.05.2023
+
+Before I Forget (2020) [Multi] (1.0.1) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Before I Forget - детективная история, рассказывающая про женщину, которая находится одна в доме. Узнайте ее историю любви. Изучайте помещения в настоящем времени, чтобы она вспомнила свое прошлое. Воспоминания девушки постепенно тускнеют или смешиваются воедино. Геймплей Before I Forget можно описать как симулятор ходьбы, который содержит огромное количество пространственных (   Читать дальше...   )Тип издания: LicenseРазработчик: 3-Fold GamesЖанр: Приключение, СимуляторЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631492   (198799) от 06.05.2023
 
 Everlight: Of Magic & Power / Хроники Мелвина. Проклятье эльфов (2008) [En] (1.1) Scene ViTALiTY
@@ -6,7 +110,7 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Backfirewall_ (2023) [Ru/Multi] (10567133) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Infliction: Extended Cut (2018) [Ru/Multi] (3.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Hello Goodboy (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (1.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Basements n' Basilisks: Storms of Sorcery (2023) [Multi] (1.2.1(9)) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Scorn (2022) [Ru/Multi] (1.2.2.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Harmony: The Fall of Reverie (2023) [Multi] (1.01.1279966) Scene Tenoke [Soundtr
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Amnesia: The Bunker (2023) [Ru/Multi] (11394767) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Deadly Delivery (2023) [En] (Build 11444090) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +474,7 @@ The Case of the Golden Idol (2022) [En] (2.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Forgotten Fields (2021) [En] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Unwording (2023) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.9) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Livestream: Escape from Hotel Izanami (2023) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Drake Hollow (2020) [Ru/Multi] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Sludge Life 2 (2023) [Ru/Multi] (230630) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645148   (196026) от 08.07.2023
-
-The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра о тайне неизвестного, действие которой происходит на запретном острове, полном ужасов. Основанная на работах Г.Ф. Лавкрафта, история включает в себя многие из его самых известных творений. Игроки увидят мир глазами Эндрю, отца, ищущего свою потерянную дочь. Погружаясь всё глубже, вы столкнётесь с неопределимыми трудностями, которые заставят вас усомниться в (   Читать дальше...   )Тип издания: SceneРазработчик: Ares DragonisЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Греческий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Греческий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637839   (195974) от 07.07.2023
-
-To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы играете за Рока Бейли, потрясающе красивого блондина, который систематически отказывается от всех ухаживаний. И на то есть веская причина: он упорно держится до того дня, пока ему не исполнится 20 лет. Однажды ночью всё меняется, когда его накачивают наркотиками и похищают возле джаз-клуба Zooty Slammer, после чего он просыпается в незнакомой больнице. Кто может (   Читать дальше...   )Тип издания: LicenseРазработчик: La Poule Noire, ARTE FranceЖанр: Приключение, Квест, ДетeктивЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:813A56BD35E91AF3012389630F11761FCB6487E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630495   (195961) от 08.07.2023
-
-Stay Out of the House (2022) [Ru/Multi] (1.1.7) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_195961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stay Out of the House предлагает пережить настоящий кошмар от лица хрупкой девушки. Играем за Роксану. После вынужденной остановки машины она отправилась на поиски своего водителя Брендона и наткнулась на старый дом. Женщина зашла внутрь и была оглушена кем-то неизвестным. После этого она проснулась в самодельной темнице. Задача геймера: сбежать из логова серийного (   Читать дальше...   )Тип издания: LicenseРазработчик: Puppet ComboЖанр: Экшны, Приключение, ХоррорыЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D356C10AAE0800C1C9D2ADC7F1405D1C55A933AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646701   (195684) от 16.07.2023
-
-GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воплощайте страхи… Бойтесь воплощений. GYLT - мрачная история о том, как фантазии и реальность переплетаются в странном печальном мире, способном воплотить наяву ваши кошмары. Прячьтесь от страшных существ или сражайтесь с ними, чтобы преодолеть испытания этого жуткого мира. GYLT - это повествовательное приключение, сочетающее головоломки, стелс и экшен. События (   Читать дальше...   )Тип издания: SceneРазработчик: Tequila WorksЖанр: Adventure, PlatformerЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C63ACFEB295C174A698E8C84A7CE61983586A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

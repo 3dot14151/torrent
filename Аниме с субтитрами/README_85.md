@@ -1,3 +1,111 @@
+###  Публикация: 259856   (331570) от 19.11.2010
+
+Moonlight Mile 2nd Season - Touch down / Лунная миля 2 [2007, TV, 14] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наши дни.Международной Космической Ассоциацией (ISA - International Space Association) на Луне был открыт новый источник энергии - Гелий-3.
+На поверхности Луны планируются постройки реакторов, которые будут работать на этом ресурсе и вырабатывать электроэнергию для Земли.
+Наш главный герой - 27-летний японец Саруватари Горо - неисправимый бабник и любитель выпить, (   Читать дальше...   )Жанр: Приключения/фантастикаРежиссер: Судзуки ИкуПродолжительность: ТВ, 14 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B5CE17512BDF3E7942595219722889F4FFFEB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580707   (329838) от 02.10.2022
+
+Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Такаги [ТВ-3] [2022, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ученик средней школы Нищиката постоянно испытывал унижение из-за того, что его дразнила Такаги — девочка, которая сидела за соседней партой. В конце концов постоянные издевательства настолько довели его, что он решил отплатить ей той же монетой и поклялся, что в один прекрасный день сможет задразнить её сам.
+
+Третий сезон приключений. Скачать первые два сезона можно (   Читать дальше...   )Производство: Студия Shin-Ei Animation / シンエイ動画Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиПеревод: AnilibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C6368942C98FA2543F7D2B1A77886DA5707803C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546331   (329536) от 02.10.2022
+
+Summer Time Render / Summer Time Rendering / Летний рендер / Летнее время [2022, TV, 25] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Потерявший родителей Щинпей Адзиро некоторое время жил на острове Хитогащима с сестрами Кофуне — Мио и Ущио, а затем переехал в Токио. Но получив весть о гибели Ущио из-за несчастного случая, он возвращается. Однако увидев синяки на теле погибшей девушки, он начинает сомневаться в причинах её смерти. И вскоре Щинпей убеждается, что есть другое объяснение. Опасные (   Читать дальше...   )Жанр: триллер, драма, мистика.Режиссер: Ватанабэ АюмуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 25 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB3B58246B0D49726FEEAC37BE790CB15F6D561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742380   (328898) от 17.11.2014
+
+Aoki Hagane no Arpeggio: Ars Nova | Arpeggio of Blue Steel | Мелодия воронёной стали | Арпеджио Синей Стали [2013, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом мире ледяные шапки Земли в XXI веке тоже подтаяли, но по морям-океанам особо не поплаваешь – откуда ни возьмись, явился «Флот Тумана» из разумных кораблей. Пришельцы, ведомые искусственным интеллектом, превосходящие землян технически, блокировали привычные водные и воздушные пути, в результате люди стали пленниками сухопутья. Совершенные боевые корабли Тумана, (   Читать дальше...   )Производство: Студия SanzigenЖанр: приключения, фантастика, романтикаРежиссер: Киси СэйдзиПеревод: HUNTA & FratelliЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE37A2ECF74E7A33CEE356C92F545C5F2CA9972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543213   (328593) от 03.10.2022
 
 Kingdom 4 / Царство [TB-4] [2022, TV, 26] WEBRip 720p raw
@@ -6,7 +114,7 @@ Kingdom 4 / Царство [TB-4] [2022, TV, 26] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +143,7 @@ Kanokon / Канокон [2008, ТВ, 12 серий + 12 sp] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +169,7 @@ One Piece 3D2Y: Ace no shi wo Koete! Luffy Nakama Tono Chikai | 3D2Y: Переж
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +195,7 @@ Tomie | Томиэ [2018, Special, 2 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +221,7 @@ Panda Kopanda: Amefuri Circus no Maki | Panda! Go, Panda!: Rainy Day Circus | Б
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +247,7 @@ Panda Kopanda | Panda! Go, Panda! | Большая панда и маленьк�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +274,7 @@ Machikado Mazoku | The Demon Girl Next Door | Городская дьяволи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +300,7 @@ Try Knights | Упорные рыцари [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +326,7 @@ Bessatsu Olympia Kyklos | Экстра Олимпия Киклос | Олимп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +352,7 @@ Mahou Sensei Negima! | Negima! | Волшебный учитель Нэгима!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +378,7 @@ Meitantei Conan | Detective Conan | Детектив Конан [1996, TV, 810-8
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +404,7 @@ Boku no Hero Academia / My Hero Academia / Моя геройская акаде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +430,7 @@ Hyakumannen Chikyuu no Tabi Bander Book | One Million-year Trip: Bander Book | �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +456,7 @@ Sora to Umi no Aida | Space Fish: Between the Sky and Sea | Между небо�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +482,7 @@ Bakuman / Бакуман [ТВ-1] [2010, TV, 25 из 25] BDrip 1080p Hi10p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +508,7 @@ Kimi ni Todoke / Reach You / Дотянуться до тебя [2009, TV, 25 э
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +534,7 @@ Kidou Keisatsu Patlabor (1990) | Mobile Police Patlabor - The New Files | Пол
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +560,7 @@ Macross Zero | Макросс Зеро [2002, OVA, 5 эп.] BDRip 1080p Hi10P ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +587,7 @@ Kiseijuu: Sei no Kakuritsu | Parasyte: The Maxim | Паразит [2015, TV, 24]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +613,7 @@ Natsume Yuujinchou / Тетрадь дружбы Нацумэ (первый се
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +641,7 @@ Karas /  Crow /  Карас  [2005, OVA,  6 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +667,7 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,110 +681,6 @@ Fumiko no Kokuhaku | Fumiko's Confession | Признание Фумико [2009
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59DA10DEBE88DB93570908832DB1B6DB4EE81EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583054   (316657) от 12.10.2022
-
-Kannagi | Kannagi: Crazy Shrine Maidens | Каннаги [2008, TV, 13 + SP] BDRip 720p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316657.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве Дзин Микурия любил играть в старом синтоистском храме под вечнозеленой священной нагеей. Парень вырос, храм снесли, а дерево спилили. Художник-любитель Дзин, тонко чувствующий природу и не чуждый сверхъестественного, выпросил кусок священного дерева, чтобы вырезать из него статую девушки. Обняв свое творение, Дзин вознес горячую молитву богам, прося их (   Читать дальше...   )Производство: A-1 PicturesЖанр: комедия, романтика, мистикаРежиссер: Ямамото ЮтакаПеревод: MatadorЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. + SP по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA0E79F7F3EE347FC2C263BA1CF17BF95569C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259941   (316626) от 05.11.2018
-
-Alice or Alice | Алиса или Алиса [2018, TV, 12 эп. + OVA] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая семья, в которой растут близнецы, хотя бы раз в своей жизни встречается с вопросом от посторонних людей: "А как вы их отличаете?” Кто-то не знает, что и сказать на это, а у кого-то уже заготовлен стандартный ответ. Но братику из этого аниме такой вопрос лучше не задавать! Иначе вам же будет хуже! Он не только с удовольствием расскажет вам, чем похожи, (   Читать дальше...   )Производство: студия EMT Squared / EMTスクエアードЖанр: комедия, повседневность, эттиРежиссер: Кобаяси КосукэПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 3 мин. + OVA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965425C05F95E7F1CABBF94BB25F2A285109F06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259966   (316624) от 05.11.2018
-
-Paulette no Isu | Стульчик Полетты [2014, Другое] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая короткометражная зарисовка к десятилетию блока NoitaminA, рассказывающая о логотипе канала, весёлом бегающем стуле, который помогает заводить друзей.Производство: студия Studio Colorido / スタジオコロリドЖанр: повседневностьРежиссер: Исида ХироясуПеревод: не требуетсяЯзык озвучки: ЯпонскийСубтитры: нетПродолжительность: 1 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C21F83B8FB1FF85C941D14DE07ABC280E0C9F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259962   (316618) от 05.11.2018
-
-Hinata no Aoshigure | Солнце сквозь дождик [2013, Movie] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милая история, повествующая о Хинате — обыкновенном ученике четвёртого года обучения, и о его попытке признаться в чувствах однокласснице Шигуре.Производство: студия Studio Colorido / スタジオコロリドЖанр: романтикаРежиссер: Исида ХироясуПеревод: TimecraftЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 18 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB55F823D70FE1FF8738E0D2A528515D6F77F822
 ```
 
 https://mybot314.ru/tekegram_catalog/

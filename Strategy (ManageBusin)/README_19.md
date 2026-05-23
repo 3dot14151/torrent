@@ -1,3 +1,55 @@
+###  Публикация: 1797543   (17999) от 17.05.2025
+
+Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10457) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Yes, Your Grace 2: Snowfall - кинематографичная игра про управление королевством. Примерьте на себя роль Короля! Распоряжайтесь ресурсами, поддерживайте близких и принимайте трудные решения, чтобы ваше королевство процветало - или потерпело крах. Окунитесь в мир, вдохновленный славянским фольклором, и разберитесь с чередой подданных, которые принесут в ваш тронный (   Читать дальше...   )Тип издания: RepackРазработчик: Brave At NightЖанр: Инди, Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2360167C328B8FD997A5926FF79554022ABE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583531   (17843) от 19.05.2025
+
+LEGO Bricktales (2022) [Ru/Multi] (2.0 r21673) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Осваивай новаторскую механику строительства «кирпичик за кирпичиком» в LEGO® Bricktales и используй воображение для решения головоломок. Смотри, как твои творения оживают в прекрасном мире LEGO, где на каждую проблему найдется строительное решение. Отправляйся в эпичное кругосветное путешествие по фантастическим биомам, любуйся собранными по кирпичику диорамами и (   Читать дальше...   )Тип издания: LicenseРазработчик: ClockStoneЖанр: Приключение, Строительство, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14FD92D0353F1B061630F4C6B739AE035654AB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756259   (17757) от 20.05.2025
 
 Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
@@ -6,7 +58,7 @@ Mini Settlers (2024) [Ru/Multi] (1.3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (20250324) Scene SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Microtopia (2025) [Ru/Multi] (1.0.9d) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Kingdoms and Castles (2017) [Ru/Multi] (123r6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Terraformers (2022) [Ru/Multi] (1.6.21/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Farm Together 2 (2024) [Ru/Multi] (Build 18675684/dlc) Repack FitGirl [Soundtrac
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Caves of Qud (2015) [En] (2.0.210.20/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ InfraSpace (2021) [Ru/Multi] (1.52.450) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Empires of the Undergrowth (2017) [Ru/Multi] (1.1010742/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ ANOXIA Station (2025) [Ru/Multi] (1.0.1.4) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Death and Taxes (2020) [Ru/Multi] (1.2.59) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Tavern Manager Simulator (2024) [Ru/Multi] (1.4.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Masterplan Tycoon (2023) [Ru/Multi] (1.4.200) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (2.2.0 r22519/dlc) License GOG [Royal Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Scene Rune [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Dungeons 4 (2023) [Ru/Multi] (1.9/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:471C0BA83C64A2924E516C2B7B91B8E6A65410FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804802   (12806) от 02.07.2025
-
-Post-Apo Builder (2025) [Ru/Multi] (1.0001) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Post-Apo Builder показывает постапокалиптический мир, где пользователям придется заниматься обустройством собственного города. Игра выполнена в жанре стратегии в реальном времени с элементами песочницы, где нужно выживать и восстанавливать павшую цивилизацию. Человечество в прошлом пережило глобальный катаклизм, который привел поверхность планеты к опустошению. Людям (   Читать дальше...   )Тип издания: RepackРазработчик: Septarian GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51B38B6E315A17C7885766F7C7DA97E230BFBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625230   (12613) от 04.07.2025
-
-Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Градостроительный симулятор Kainga: Seeds of Civilization переносит игрока в фантастический мир, где обитают вымышленные существа и присуща магия. Каждая сессия происходит в опасных местах, где опасные звери, погодные условия или другие племена могут уничтожить жителей города игрока. В новом прохождении меняется культура, технология, внешний вид строений и горожан (   Читать дальше...   )Тип издания: LicenseРазработчик: Erik RempenЖанр: Стратегия, Строительство, RoguelikeЯзык субтитров: Английский, Немецкий, Китайский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Китайский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47046E6E05B2335F2146359614CB174605382957
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1763117   (35766) от 29.11.2024
+
+Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.16140) Repack dixen18 [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Совершенно новая история о самых неподходящих кандидатах на роль спасителей галактики, которых зовут Звездный Лорд, Гамора, Дракс, Ракета и Грут. В руки будущих Стражей галактики попадает артефакт огромной силы. У каждого есть свои причины присвоить его, однако эпической битвы уже не избежать - их невероятно могущественная соперница не остановится ни перед чем, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13205782986D20A980BDCB852978CD7F678C350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763234   (35688) от 30.11.2024
+
+The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вы родились в новом мире. Люди давно вымерли, но их культура продолжает жить в городе роботов. Вам предстоит отправиться в захватывающее приключение и открыть секреты огромного загадочного сооружения, которое таит в себе огромную силу. Чем больше вы узнаете, тем чаще будете задаваться вопросами о природе вселенной и предназначении цивилизации. Несбывшиеся обещания (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747589   (35667) от 30.11.2024
+
+A pet shop after dark (2022) [Ru/Multi] (1.051) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+A pet shop after dark скрещивает два жанра. Это гибрид квеста и хоррора. В этом тайтле также имеются элементы визуальной новеллы. У инди-игры двухмерная рисованная графика в мультяшном стиле. Управление заточено под использование мыши. Изучение локации и взаимодействие с окружением происходит с видом от первого лица. Спрайты персонажей появляются только во время (   Читать дальше...   )Тип издания: LicenseРазработчик: npckcЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Японский, Корейский и другиеЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC414B1BE4BA7DF6FCB915F15D7679AAFC2B8540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763301   (35640) от 30.11.2024
+
+Puppet House (2024) [Ru/Multi] (build 16153348) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Puppet House - это приключенческая хоррор-игра с элементами квест-комнаты. Возьмите на себя роль детектива Рика, расследующего серию загадочных исчезновений местных жителей. Все улики ведут к заброшенному дому чревовещателя, полному темных секретов и ужасающих сюрпризов.Тип издания: RepackРазработчик: Vecube Studio, Spirit Games StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F4020E261A78E8F6CDA5DF8B8968F05B58E043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763204   (35610) от 30.11.2024
 
 Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
@@ -6,7 +110,7 @@ Puppet House (2024) [Ru/Multi] (build 16153348) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ A Quiet Place: The Road Ahead (2024) (1.1.0-45746.11849/dlc) Repack Decepticon
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Unforeseen Incidents (2018) [Multi] (1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1128.ffO6.pc/dlc) Repack Let'sРl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.248.905/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Lorn's Lure (2024) [Ru/Multi] (Build 16415308) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.1.18.0/dlc) Scene Razor1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Devil's Way (2024) [Ru/Multi] (build 16096646) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.0.0/dlc) Scene Rune [P
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Fatal Midnight (2024) [Ru/Multi] (Build 16185793) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ CONSCRIPT (2024) [Ru/Multi] (1.0.1.2/dlc) Repack Let'sРlay [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Go Home Annie (2024) [Ru/Multi] (build 16636802) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Caravan SandWitch (2024) [Multi] (1.12.71.30) License GOG [Digital Collector's E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Moon Mystery (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Painscreek Killings (2017) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Baby Blues Nightmares - Toddler Horror Game (2024) [En] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.06) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Forbidden Fantasy (2024) [Ru/Multi] (Build 16582417/dlc) Repack Let'sРlay [Supp
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Forbidden Fantasy - визуальная новелла для взрослых,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755118   (33954) от 17.12.2024
-
-3 Minutes to Midnight - A Comedy Graphic Adventure (2024) [Ru/Multi] (1.1.0a/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33954.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 Minutes to Midnight – казуальное инди-приключение с всевозможными головоломками, наполненное сатирой и пародиями на современное общество, юмором (порой чёрным и грубым) и непредсказуемыми сюжетными поворотами. Этот проект использует вид сбоку, что позволяет передвигаться в двух измерениях. Задние фоны проработаны и выполнены в трёхмерном стиле. Доступно управление (   Читать дальше...   )Тип издания: LicenseРазработчик: Scarecrow StudioЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8721F9B4A288E09922E8AF71EEF3D8F3311CB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752562   (33927) от 17.12.2024
-
-DEVOUR (2021) [Ru/Multi] (5.1.3) Repack Pioneer
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33927.jpg" />
-</div>
-
-
-###  Подробнее
-
-DEVOUR - кооперативный выживастик от первого лица, позволяющий объединиться до четырех игроков. В этом атмосферном и страшном хорроре ваша задача состоит в том, чтобы остановить темный культ, превращающий людей в кровожадных и одержимых существ. Отыщите лидера и уничтожьте его, пока он сам не затащил вас в ад. Бегите, прячьтесь и пытайтесь оказать сопротивление. (   Читать дальше...   )Тип издания: RepackРазработчик: Straight Back GamesЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0F252D8B7638EAFDF1AD810E8657E0ACC2AA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717077   (33841) от 18.12.2024
-
-Harold Halibut (2024) [Ru/Multi] (1.1.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harold Halibut - созданная вручную нарративная игра о дружбе и о жизни на космическом корабле на дне инопланетного океана. Уже 250 лет прошло с тех пор, как ваш дом - космический ковчег - улетел с Земли на грани холодной войны, чтобы найти пригодную для жизни планету и спасти человечество. Вас зовут Гарольд, вы молодой ассистент научной руководительницы экспедиции (   Читать дальше...   )Тип издания: RepackРазработчик: Slow Bros.Жанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C85735318385417153D29C2C0772DE406903356
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754127   (33736) от 19.12.2024
-
-Until Dawn / Дожить до рассвета (2024) [Ru/Multi] (1.08) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда восемь друзей возвращаются в уединенный дом в горах, где двое их товарищей пропали год назад, страх сжимает их сердца ледяной хваткой, а отдых оборачивается бесконечным кошмаром. Взгляните в лицо своим страхам. Решайте, кому суждено дожить до рассвета в этом классическом хорроре, воссозданном для ПК с еще более ужасающей глубиной.Тип издания: RepackРазработчик: Ballistic MoonЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9837B011C4B7256F1AB4F1A3E85BCCC95D28216C
 ```
 
 https://mybot314.ru/tekegram_catalog/

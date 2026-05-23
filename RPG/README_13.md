@@ -1,3 +1,81 @@
+###  Публикация: 1196376   (823728) от 02.01.2018
+
+Dragon’s Dogma: Dark Arisen (2016) [Ru/En] (1.0/upd7/dlc) Repack =nemos=
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Бои игры Dragon’s Dogma: Dark Arisen разворачиваются в огромном открытом мире. Игроки отправляются в эпическое приключение по живописному краю с тремя ИИ-спутниками - «пешками». «Пешки» сражаются сами по себе, вырабатывая сноровку и боевое умение на основе черт, перенятых от того или иного игрока. Игроки могут публиковать своих «пешек», получая в обмен ценности, (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C511B3FD09D00E3C47BE54D5A72C68876BCCAAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503032   (822695) от 17.10.2021
+
+Megadimension Neptunia VIIR (2018) [Multi] (1.0/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Улучшенная версия игры 2016-го Megadimension Neptunia VII предлагает графические красоты нового движка, обновленную боевую систему и совершенно новый опыт игры в VR. Наконец-то, игровые измерения объединились с вашим! Проводите время один на один с каждой из богинь Gamindustri, слушайте их разговоры и смотрите, как богини реагируют на вас.Тип издания: LicenseРазработчик: Idea Factory, Inc.Жанр: Ролевая игра, Пошаговая, JRPGЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Китайский, ЯпонскийЯзык интерфейса: Английский, Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9CFF5F56C6ED1A2FBF13E14EB72A2A4BF177E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116877   (820216) от 21.03.2017
+
+Tyranny (2016) [Ru/Multi] (1.0.4.0048/dlc) SteamRip Let'sPlay [Overlord Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре Tyranny великая битва между добром и злом уже завершилась: силы зла под командованием Владыки Кироса победили. Безжалостные армии Владыки держат в подчинении весь мир, а жители разрушенного войной королевства привыкают к новому порядку. Но раздор начинает прорастать в рядах самых могущественных архонтов Кироса.Тип издания: SteamRipРазработчик: Obsidian EntertainmentЖанр: RPG, Isometric, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8D2A7576CB7EE858FF070EF7CF277DBC9CA016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503426   (819071) от 19.10.2021
 
 Cyber Manhunt (2021) [Multi] (1.3.30/dlc) License PLAZA
@@ -6,7 +84,7 @@ Cyber Manhunt (2021) [Multi] (1.3.30/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Dwarves (2016) [Ru/Multi] (1.2.0.74) SteamRip Let'sPlay [Digital Deluxe Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_818459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Legends Of Dawn (2013) [Ru/Multi] (1.52s) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.23.0.8) License PROPHET [Spec
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Fallen Legion+ (2018) [Ru/Multi] (1.0) Repack Covfefe
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +344,7 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Out There: Omega Edition (2015) [Ru/Multi] (2.3) Repack R.G. Origami
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Planescape: Torment (1999) [Ru/En] (1.1) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7 (A)) License GOG [Deluxe]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Alchemist Adventure (2021) [Ru/Multi] (1.211021/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Titan Quest (2006) [Ru/Multi] (1.42) Repack R.G. Revenants [Anniversary Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Overfall (2016) [En] (03/22/2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Operation Abyss: New Tokyo Legacy (2017) [En/Ja] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +552,7 @@ I am Setsuna (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Collector's Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Risen 3: Titan Lords (2014) [Ru/Multi] (3.0.30.0/dlc) Repack =nemos= [Enhanced E
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Nioh (2017) [Ru/Multi] (1.21.04/dlc) Repack R.G. Механики [Complete Edit
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Moonglow Bay (2021) [Multi] (1.0rls) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +656,7 @@ NieR Replicant ver.1.22474487139... (2021) [Ru/Multi] (1.0.3.0/dlc) Repack Decep
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +667,6 @@ NieR Replicant ver.1.22474487139... – обновленная версия NieR
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40DBD8473618153C4F38BB67E75BC9C3426E4F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119243   (800934) от 01.04.2017
-
-Might and Magic 7: For Blood and Honor / Меч и магия 7 (1999) [Multi] (1.1hf) License GOG
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит отправиться в прошлое, чтобы пережить великое приключение. Might and Magic VII - For Blood and Honor возвращает к жизни жанр фэнтезийной ролевой игры с улучшенным движком и захватывающим игровым процессом. Вас ждет фантастический мир, полный смертоносных драконов, ужасающих чудовищ и необычных существ. В этой игре есть все, о чем может только мечтать (   Читать дальше...   )Тип издания: LicenseРазработчик: New World ComputingЖанр: RPG, 3D, 1st PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12857B0E1BC9434BD789A682B7D6CA830C92AC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199571   (800808) от 16.01.2018
-
-Pillars of Eternity (2015) [Ru/Multi] (3.07.0.1318/dlc) Repack xatab [Definitive Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте мир, где каждый ваш поступок и выбор так или иначе влияет на судьбу ваших героев. Obsidian Entertainment – студия-разработчик Fallout: New Vegas™ и South Park: The Stick of Truth™ – и Paradox Interactive с гордостью представляют вам игру Pillars of Eternity. Вам предстоит вновь – как в старые-добрые времена – ощутить радость исследований и приключений, (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевая игра, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7A8D59A0BFFA7F97AA983C47518B03709F5306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196047   (800802) от 16.01.2018
-
-Risen 3 (2014) [Ru/En/Ge] (3.0.30/dlc) Repack R.G. Механики [Complete Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Risen 3! Мир, забытый богами и раздираемый войной титанов, мир, где угроза исходит из самой земли. Вы - молодой воин, получивший удар из теней, лишивший вас души. Вам нужно отправиться в путь, чтобы вернуть то, что потеряно во тьме и расползается по миру. Вы не одиноки в своей борьбе: изгнанные маги могут быть мощными союзниками. Но чтобы получить (   Читать дальше...   )Тип издания: RepackРазработчик: Piranha BytesЖанр: RPG, 3D, 3rd PersonЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E65FC557E1FE4F79EADADBCB8FBE524A180BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

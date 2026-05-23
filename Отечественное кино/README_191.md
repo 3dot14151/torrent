@@ -1,3 +1,107 @@
+###  Публикация: 1579265   (232913) от 26.09.2022
+
+Иллюзии (2021) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Действие этого фильма по мотивам пьесы Ивана Вырыпаева происходит в кабинете семейного психотерапевта, куда по очереди друг за другом заходят две молодые семейные пары. Они пришли, чтобы рассказать истории Денни, Сандры, Альберта и Маргарет, проживших вместе долгую жизнь и лишь в преклонном возрасте осознавших всю неоднозначность своего жизненного опыта. Однако, (   Читать дальше...   )Производство: Россия | «Process»Жанр: ТрагикомедияРежиссер: Николай ГостюхинАктеры: Ксения Отинова, Алексей Каракулов, Дмитрий Нескоромный, Екатерина Мудрая, Александр СмирновСубтитры: ОтсутствуютПродолжительность: 01:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D401376ABCCD135FA113FACED01C765C2F3DB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645196   (232868) от 08.07.2023
+
+Путешествие с домашними животными (2007) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Это трогательная история о жизни 35-летней женщины Натальи, муж которой внезапно умирает. Наталья остается одна вдали от людей со своими домашними животными на заброшенном полустанке. Она родилась и выросла в детском доме и совсем не знает жизни...Производство: Россия / Кинокомпания «Слон»Жанр: драма, мелодрамаРежиссер: Вера СторожеваАктеры: Дмитрий Дюжев, Ксения Кутепова, Евгений Князев, Тимофей Трибунцев, Ольга Гнедич, Тамара Хлебникова, Алексей Гаврилов, Вадим Афанасьев, Олег Билик, Полина НечитайлоСубтитры: отсутствуютПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C72583916E3EEDCE9FBCF6C3441B71521A6E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111013   (232525) от 28.05.2022
+
+Затерянные в лесах (2012) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В результате крушения частного самолета над глухими лесами погибают крупный бизнесмен — хозяин химического комбината — и его помощник. Выжила лишь дочь бизнесмена — Маша. Девушка бродит по лесу пока не натыкается на лесника, ветерана военной разведки — Владимира, который осознанно выбрал жизнь отшельника…Производство: РоссияЖанр: Мелодрама, ДрамаРежиссер: Виктор ТатарскийАктеры: Кирилл Сафонов, Вера Баханкова, Инна Корнышева, Сергей РублёвПродолжительность: 01:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2628D7652F22EF4B4AAB5DFF84D433CBDF2EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635831   (232208) от 27.05.2023
+
+Выйти из группы (2021) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Подросток, находясь в поисках своего места в мире, попадает в группу социальной сети, которая набирает ребят в загадочное братство. Пройдя через серию испытаний, подростки должны доказать, что они особенные. Очередным заданием является реальное убийство. Одумавшись, герой должен спастись от вчерашних «друзей» и разоблачить настоящих преступников.Производство: РоссияЖанр: триллер, боевик, драмаРежиссер: Мария ТумоваАктеры: Евгений Кунцевич, Зоя Мансурова, Владислав Ходосевич, Виктория Толстоганова, Михаил Горевой, Александра Бабаскина, Максим Филь, Анна Чурина, Марина Куделинская, Лев СемашковСубтитры: отсутствуютПродолжительность: 01:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BABDEA9B0D541FE30204DCF874554A5F9B04AEE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554526   (232133) от 30.05.2022
 
 1941. Крылья над Берлином (2022) WEBRip [H.264]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_231064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -567,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5263BE6E4FCF345AA1221F7E71993D15CF36553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735482   (230145) от 17.12.2013
-
-Распутин (2013) BDRip [1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало ХХ века, Европа охвачена войной, Российская империя на краю пропасти. Внезапное появление загадочного Григория Распутина в царских покоях вызывает волну негодования при дворе. Сибирский целитель облегчает страдания неизлечимо больного наследника престола, проповедует и творит чудеса. Императрица уверена, что всё не случайно и Григорий — божий человек, спаситель, (   Читать дальше...   )Производство: Россия / B-Tween, ВГТРКЖанр: драма, биография, историяРежиссер: Ираклий КвирикадзеАктеры: Жерар Депардье, Фанни Ардан, Владимир Машков, Анна Михалкова, Филипп Янковский, Ирина Алферова, Данила Козловский, Юрий, Колокольников, Ксения Раппопорт, Константин ХабенскийПеревод: Не требуется (русский язык)Субтитры: НетПродолжительность: 01:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CFDFC57900E93BF56654E4CE09D4FA825CF846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850644   (230041) от 17.12.2014
-
-День дурака (2014) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия / Базелевс ПродакшнЖанр: Комедия, ПриключенияРежиссер: Александр БарановАктеры: Алексей Веселкин, Александр Лыков, Светлана Чуйкина, Сергей Беляев, Сергей Удовик, Александр Воробьев, Игорь Кистол, Дмитрий Белоцерковский, Антон Васильев, Антонина ДивинаПеревод: ОригиналСубтитры: ОтсутствуютПродолжительность: 01:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D357A8EF6ED95670DCEDDECC3DFAE85689631D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423922   (229975) от 15.11.2020
-
-Русский рейд (2019) WEB-DLRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейдеры подготовили идеальный план по захвату завода: инсайдеры, подробные чертежи территории, завязки на высшем уровне, компромат на собственников, хакерская поддержка... На их стороне внезапность и прекрасно подготовленная команда головорезов. Но захват оборачивается кровавой ловушкой, ведь банду нападающих ведет человек со своим представлением о целях «рейда». (   Читать дальше...   )Производство: Россия / РадрагонЖанр: БоевикРежиссер: Денис КрючковАктеры: Иван Котик, Александр Красовский, Илья Антоненко, Владимир Минеев, Никита Кологривый, Софья Озерова, Кирилл Сарычев, Дмитрий Кривочуров, Андрей Семенов, Алексей МаксименковПеревод: Не требуется (русский) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB32AF445127AF524A797FF581417027F8CF0E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530461   (229857) от 25.11.2021
-
-Барышня-крестьянка (1995) DVDRip [Реставрация КП]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229857.jpg" />
-</div>
-
-
-###  Подробнее
-
-В соседское имение приезжает молодой барин. Лиза хочет познакомиться с красавцем, но их отцы не общаются, давно затаив обиду друг на друга. Девушка, зная о том, что молодой барин любит по утрам объезжать лес, переодевается в крестьянское платье и рано утром, прихватив лукошко, идёт в лес…Производство: РоссияЖанр: МелодрамаРежиссер: Алексей СахаровАктеры: Елена Корикова, Дмитрий Щербина, Леонид Куравлев, Василий Лановой, Екатерина Редникова, Людмила Артемьева, Евгений Жариков, Вадим Захарченко, Елена Котхина, Алексей ШадхинПродолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB5E7F7B44AE81B2CF6E0FCA17F401D1834F321
 ```
 
 https://mybot314.ru/tekegram_catalog/

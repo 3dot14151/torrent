@@ -1,3 +1,55 @@
+###  Публикация: 1729696   (32167) от 03.01.2025
+
+Airship: Kingdoms Adrift (2023) [Multi] (1.6.1.2) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Airship: Kingdoms Adrift - это симулятор торговли и боев воздушных кораблей, действие которого разворачивается на просторах стимпанк-мира Сфеары вскоре после Великой Небесной войны. Между Ацерлийским королевством, Новой Виридианской республикой и Тевтонской конфедерацией установилось шаткое перемирие. Внезапно оказавшиеся никому не нужными солдаты и пилоты ищут новые (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution IndustryЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771359   (31831) от 06.01.2025
+
+From the Depths (2014) [Ru/Multi] (4.2.1.1/dlc) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+From the Depths - это аркадный экшен, в котором игрокам нужно создавать и управлять собственными боевыми крейсерами. Во From the Depths вы можете строить и лично управлять от первого лица линкорами, самолётами, подводными лодками, космическими кораблями, танками, воздушными шарами и многим-многим другим! В игре присутствует довольно широкий диапазон контента для (   Читать дальше...   )Тип издания: RepackРазработчик: Brilliant Skies Ltd.Жанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A21C886B49727277F36A22FCF964D175F7E428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521429   (31762) от 07.01.2025
 
 Slipways (2021) [Multi] (1.3-1143) License GOG
@@ -6,7 +58,7 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Millennia (2024) [Ru/Multi] (1.0.23641.F/dlc) Repack Let'sРlay [Premium Edition
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31303.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Reus 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.2.2-433870) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Learning Factory (2021) [Ru/Multi] (1.0.0.546) Repack FitGirl [Curious Mind Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Foundation (2019) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Foundation (2019) [Ru/Multi] (1.10.2.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +370,7 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +396,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Kardboard Kings: Card Shop Simulator (2022) [Ru/Multi] (1.3.25) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Flooded (2023) [Multi] (1.0.8.3.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Amazing Cultivation Simulator (2020) [Multi] (1.268-2501211542dev/dlc) License G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:669D0ABCD6845CE51E12D5B027987E2473CDD363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782940   (25901) от 03.03.2025
-
-Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наслаждайтесь другой и изобретательной приключением в Mycelium Heaven, где гриб с очень особой диетой поможет спасти свой дом. Разработайте свою лучшую стратегию в этой войне и преодолевайте уровни, на которых вы откроете новые и сложные механики, которые проверят вашу логику. Погружайтесь сразу без сложных обучающих программ и откройте для себя увлекательный мир, (   Читать дальше...   )Тип издания: RepackРазработчик: 3DGoblinDevЖанр: Казуальные игры, ИндиЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F790CA9D9138121E98160AF22119655587A043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782927   (25818) от 03.03.2025
-
-Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Deluxe Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заканчивается посадка на скорый поезд, следующий до богатства и славы в Railway Empire 2! Наденьте костюм ловкого предпринимателя и возглавьте небольшую железнодорожную компанию в начале 1800-х годов, превратив паровые машины в рабочих лошадок экономики. Превратите свое предприятие в крупнейшую железнодорожную компанию континента и переиграйте конкурентов, соединяя (   Читать дальше...   )Тип издания: RepackРазработчик: Gaming Minds StudiosЖанр: Симуляторы, СтратегииЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

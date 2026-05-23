@@ -1,3 +1,107 @@
+###  Публикация: 1454420   (1026381) от 14.03.2021
+
+Keisatsu Sensha Tai TANK SWAT 01 | TANK S.W.A.T. 01 | Танковый спецназ 01 [2006, OVA] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Славный экипаж танка-малютки "Бонапарт" под руководством Леоны Одзаки, служащий в составе танковой полиции города Ньюпорта, получает ответственное задание - вернуть дискеты с секретной информацией, выкраденные криминальными элементами из правительственных архивов. Ребята успешно выполняют свою миссию, но в заложниках у преступников оказывается участница (   Читать дальше...   )Производство: Ginga Teikoku, Agent 21Жанр: приключения, фантастика, мехаРежиссер: Романов ХигаПеревод: WergilЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51C3F839FC6782299A8E171D8269CAEFF153126E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454215   (1026355) от 14.03.2021
+
+Issho ni Training: Training with Hinako | Утренняя гимнастика с Хинако [2009, OVA] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Настоящая девушка по имени Хинако превращается в аниме-девушку. Теперь, когда она играет в аниме, она стремится оставаться в форме и вдохновляет зрителя к тренировкам вместе с ней.Производство: Студия Studio Hibari / スタジオ雲雀Жанр: эттиРежиссер: Судзуки ИкуПеревод: KirakishouЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD037EE14B1F49CA017D0B3D42284ECDD919743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454219   (1026348) от 14.03.2021
+
+Issho ni Sleeping: Sleeping with Hinako | Спим вместе с Хинако [2010, OVA] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Хинако, бывший человек, ныне живущий в мире аниме, заснула. Это фильм о её беззащитном сне.Производство: Студия Studio Hibari / スタジオ雲雀Жанр: эттиРежиссер: Кимура СинъитироПеревод: StormHeartЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 46 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21989291895CA7E776AE12D49963F8A2DA9C6E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454223   (1026342) от 14.03.2021
+
+Issho ni Training Ofuro: Bathtime with Hinako & Hiyoko | В ванне с Хинако и Хиёко [2010, OVA+SP] DVDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Зрителям предлагается повторять упражнения в ванной и после ванны с Хинако и новым персонажем Хейко.Производство: Студия Studio Hibari / スタジオ雲雀Жанр: эттиРежиссер: Кимура СинъитироПеревод: RaveForceЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 35 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596CF269EF910DCFC2EC43C937A28531D4779824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 446044   (1026200) от 15.03.2021
 
 Bannou Bunka Nekomusume  / All Purpose Cultural Cat Girl Nuku Nuku  / Универсальная современная девyшка-кошка [1998, TV, 14 эп.] DVDRip 480p raw
@@ -6,7 +110,7 @@ Bannou Bunka Nekomusume  / All Purpose Cultural Cat Girl Nuku Nuku  / Униве
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +139,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +165,7 @@ Skate Leading Stars | Звёзды фигурного катания [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +191,7 @@ D.N.Angel | Код ангела [2003, TV, 26 из 26] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Boku wa Imouto ni Koi o Suru | Я люблю свою сестрёнку [2005, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Fight Ippatsu! Juuden-chan!! | С первого удара заряжай-ка!
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Ninja Senshi Tobikage | Ninja Robot Tobikage | Ниндзя-воин Тобик�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Otona no Bouguya-san II | Оружейная лавка для леди и дж�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Shinrei Tantei Yakumo | Psychic Detective Yakumo | Детектив-медиум
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +375,7 @@ Yume kara Samenai | Не пробуждаясь ото сна [1987, OVA] LDRip 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Fantasia | Girl from Phantasia | Девушка из Фантазии [1993, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +429,7 @@ Exper Zenon | Экспер Зенон [1991, OVA] LDRip 480 raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +455,7 @@ Megami Paradise | Рай Богинь [1995, OVA, 2 из 2] LDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Mainichi ga Nichiyoubi | Каждый день воскресенье [1990, OVA
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +507,7 @@ Nozomi Witches | Bewitching Nozomi | Околдованный Нозоми [1992
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -429,7 +533,7 @@ Uchuu no Senshi | Starship Troopers | Звёздный десант [1988, OVA, 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -455,7 +559,7 @@ Jikuu Bouken Nuumamonjaa | Приключения сквозь время и р�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Strike Witches: 501 Butai Hasshin Shimasu!! | Strike Witches: 501st Joint Fighte
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +614,7 @@ Neko Neko Fantasia | Кошачья фантазия [1991, OVA] LDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +640,7 @@ Shin Dousei Jidai: Hawaiian Breeze | Новая эпоха сожительст�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +666,7 @@ Greed | Жадность [1985, OVA] LDRip 480p 10bit raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,110 +677,6 @@ Greed | Жадность [1985, OVA] LDRip 480p 10bit raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:120F87CAF665DF17A1A4A2A53AF85C8DA79B73D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456314   (1025071) от 22.03.2021
-
-Elf Seventeen | Эльф 17 [1987, OVA] VHSRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маскат Тайлер - 108-й принц Галактической Империи, известный как чудак. Он путешествует по вселенной в сопровождении Ходячего Арсенала, К.К. и Лу из Легкокрылой расы, самого сильного существа во вселенной. Куда они пойдут - там случится катастрофа.Производство: Студия Animate Film / アニメイトフィルムЖанр: приключения, комедияРежиссер: Саката ДзюнъитиПеревод: RaymanMЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5473BFA4289FB72CC22ADF17523B1AE374B1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446085   (1024859) от 23.03.2021
-
-Majo no Tabitabi | Wandering Witch: The Journey of Elaina | Странствия ведьмы: Путешествие Элейны [2020, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьма по имени Элейна странствует, посещает самые разные места и встречает разных людей. Иногда весёлая, иногда фантастическая, иногда даже немного мрачная — это история Элейны и её долгого путешествия.Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26141DD9BC9DFEB47A1FCE990E3A0465D78251B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439160   (1024519) от 25.03.2021
-
-I-Chu: Halfway Through the Idol | Айчу: На полпути к айдолу [2021, TV, 12] WEB-DL 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Школа «Звёздная жизнь». Здесь оттачивают свои таланты все, кто желает стать поп-звёздами. Всем айчу предстоит достичь своей цели и узнать, что же значит быть звездой.Производство: Студия Lay-duceЖанр: повседневность, музыкальныйРежиссер: Намба ХитосиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A826F9E0AA96AE92A4248E1DCFB50918A3213D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438316   (1024496) от 25.03.2021
-
-Hortensia Saga | Сага о гортензии [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024496.jpg" />
-</div>
-
-
-###  Подробнее
-
-На плодородные земли королевства Гортензия многие годы точат зубы соседние страны, которые нет-нет, да пытаются оторвать себе кусочек… Но путь вражеским войскам всегда преграждают два герцогства — Оливье и Камелия. Они являются верным мечом и надёжным щитом древнего государства и всегда верой и правдой служат своему протектору. Но однажды в герцогстве Камелия вспыхивает (   Читать дальше...   )Производство: Япония / Liden FilmsЖанр: приключения, фэнтезиРежиссер: Нисиката ЯсутоПеревод: Wakanim (дехардсаб, лирика - ваш покорный слуга), FunimationЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: ТВ, 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285571DABC7D29339F5D029C0D121734E36C282A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 963372   (221968) от 16.12.2015
+
+По прозвищу Громила / Piedone lo sbirro (1973) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Этому полицейскому не требуется оружие — у него есть кулак! У инспектора Риццо, которого все звали просто «Громилой», было еще одно прозвище — «Бигфут». То есть (дословно) «Большая нога» или (по смыслу) «Снежный Человек». Потому что каждому в Неаполе было известно: с Риццо лучше не связываться. Правда, он вполне благосклонно относился к осведомителям и шлюхам, те (   Читать дальше...   )Производство: Италия, Франция / C.A.P.A.C., Mondial Televisione FilmЖанр: Боевик, Драма, Комедия, КриминалРежиссер: СтеноАктеры: Бад Спенсер, Адальберто Мария Мерли, Раймон Пеллегрен, Жюльет Майниель, Марио Пилар, Энцо Каннавале, Анджело Инфанти, Джо Дженкинс, Сальваторе Морра, Франко АнгрисаноПеревод: Одноголосый закадровый (Joe30)Субтитры: ОтсутствуютПродолжительность: 01:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53A1136108FF24D7D7F98FC22F7E11E4B29FE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963624   (221960) от 16.12.2015
+
+Громила в Гонконге / Piedone a Hong Kong (1975) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Громила Риццо по прежнему работает в Неаполе и по-прежнему благосклонен к мелким правонарушителям, но беспощаден к насильникам и наркоторговцам. Однажды цыганка нагадала ему дальнюю дорогу. У него опять не сложились отношения с начальником полиции города Неаполя. Его обвиняют в торговле наркотиками. Для того, чтобы очистить свое имя, он должен узнать, кто в полиции (   Читать дальше...   )Производство: Италия / Mondial Televisione FilmЖанр: Боевик, Драма, Комедия, КриминалРежиссер: СтеноАктеры: Бад Спенсер, Аль Леттьери, Энцо Каннавале, Ренато Скарпа, Франческо Де Роза, Нэнси Сит, Роберт Уэббер, Роберта Паладини, Чаплин ЧангПеревод: Двуголосый закадровый (Рен-ТВ, со вставками двуголосого Levelin)Субтитры: ОтсутствуютПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5E8364EA167678B0AD6A74F5946AA40D65358B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420483   (221603) от 20.11.2020
+
+Доктор Ноу / Dr. No (1962) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Бонду дано задание выяснить что является источником электронных помех в компьютерах американских пусковых шахт на мысе Канаверал. По агентурным данным мозговой центр вражеских сил находится на Ямайке. Бонд незамедлительно выдвигается туда.
+В процессе расследования ему придется столкнуться с могущественной структурой СПЕКТР и ее представителем Доктором Ноу, готовым (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Урсула Андресс, Джозеф Уайзмен, Джек Лорд, Бернард Ли, Энтони Доусон, Зена Маршалл, Джон Кицмиллер, Юнис Гейсон, Лоис МаксуэллПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0276EE2BC1376432E72F1931C0E0CDD5506E335A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 35356   (221393) от 20.11.2020
+
+Джанго: Бог простит. Я — нет! / Dio perdona... Io no! (1967) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+По дороге из Эль Пасо ограблен поезд. Налетчики забрали 300000 долларов, убив при этом всех пассажиров. На поиски денег отправляется сыщик страховой компании Хатч со своим знакомым Кэтом Стивенсом. После недолгих размышлений они приходят к единому мнению: налет на поезд, мог совершить только один человек - Билл Сан Антонио. Однако, проблема заключается в том что (   Читать дальше...   )Жанр: Комедийный вестернРежиссер: Джузеппе Колицци /Giuseppe Colizzi/Актеры: Теренс Хилл /Terence Hill/, Бад Спенсер /Bud Spencer/, Фрэнк Вулфф /Frank Wolff/, Джина Ровере /Gina Rovere/, Луис Барбу /Luis Barboo/, Хоакин Бланко /Joaquin Blanco/ и др.Перевод: Профессиональный (двухголосый)Продолжительность: 1:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6681DDB0B304C861871013C0A5247FB1D9FAC984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 27874   (221284) от 20.11.2020
 
 Меня зовут Троица / They Call Me Trinity (1970) DVDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_216245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -569,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1ED3A600F9FB0661C440DF1E5302AE5BD758C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 57569   (215679) от 07.12.2019
-
-Похитители велосипедов / Ladri di biciclette / Bicycle Thieves (1948) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послевоенный Рим, давно неработающий Антонио Рикки вне себя от радости — он наконец-то находит работу. Но в первый же трудовой день у него украли велосипед, без которого невозможно работать! Вместе с маленьким сыном Бруно он пытается найти в огромном городе украденный велосипед, от которого зависит жизнь его семьи…Производство: Италия / Produzioni De Sica (PDS)Жанр: ДрамаРежиссер: Витторио Де СикаАктеры: Ламберто Маджорани, Энцо Стайола, Лианелла Карелль, Джино Сальтамеренда, Витторио Антонуччи, Джулио Кьяри, Елена Алтери, Карло Якино, Микеле Сакара, Эмма ДреттиПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4A2BC37C0743D8CD248D75A30893FB21C8D931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 86611   (215509) от 07.12.2019
-
-Мужчина и женщина / Un homme et une femme (1966) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он — мужчина, профессиональный автогонщик. Она — красивая, умная женщина. У каждого из них есть свое прошлое с привкусом печали. Теперь ОН и ОНА глубоко одиноки, и мир воспоминаний владеет ими больше, чем мир обыденной реальности. Случайная встреча, неожиданно сильное, волнующее чувство вырвет героев из холодных лап одиночества. Новая близость, хрупкая и неуверенная, (   Читать дальше...   )Производство: Франция / Les Films 13Жанр: Драма, МелодрамаРежиссер: Клод ЛелушАктеры: Анук Эме, Жан-Луи Трентиньян, Пьер Бару, Валери Лагранж, Антуан Сир, Суад Амиду, Анри Шмен, Яна Барри, Поль Ле Персон, Симона ПариПеревод: Двуголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCD55C1478D36D47363765FF85821C11FA57715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735928   (215460) от 23.12.2013
-
-Корабль дураков / Ship of Fools (1965) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место и время действия жестко ограничены; герои — пассажиры корабля — люди разных национальностей, представители разных слоев общества, и команда гигантского лайнера «Вера». Один из пассажиров философствующий карлик Глокен, дает лайнеру новое имя «Корабль дураков».
-Им предстоит совместно совершить рейс из порта Веракрус (Мексика) в Бремерхафен. Они «обречены на совместное (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Стэнли КрамерАктеры: Вивьен Ли, Симона Синьоре, Оскар Вернер, Хосе Феррер, Ли Марвин, Элизабет Эшли, Джордж Сигал, Хайнц Рюман, Хосе Греко, Чарлз Корвин, Майкл Данн.Перевод: Двуголосый закадровыйПродолжительность: 02:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A65C906BDA093D1A8413DDDCB91F96F31D4C439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966991   (215225) от 19.12.2015
-
-Побег из Шоушенка / The Shawshank Redemption (1994) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успешный банкир Энди Дюфрейн обвинен в убийстве собственной жены и ее любовника. Оказавшись в тюрьме под названием Шоушенк, он сталкивается с жестокостью и беззаконием, царящими по обе стороны решетки. Каждый, кто попадает в эти стены, становится их рабом до конца жизни. Но Энди, вооруженный живым умом и доброй душой, отказывается мириться с приговором судьбы и начинает (   Читать дальше...   )Производство: США / Castle Rock EntertainmentЖанр: Драма, КриминалРежиссер: Фрэнк ДарабонтАктеры: Тим Роббинс, Морган Фриман, Боб Гантон, Уильям Сэдлер, Клэнси Браун, Джил Беллоуз, Марк Ролстон, Джеймс Уитмор, Джеффри ДеМанн, Ларри Бранденбург, Нил Джунтоли, Брайан Либби, Дэвид Провэл, Джозеф Раньо, Джуд Чикколелла, Пол МакКрейн, Рени Блейн, Скотт Манн, Джон Хортон, Гордон Грин, Альфонсо Фриман, Джон Э. Саммерс, В. Дж. Фостер, Фрэнк Медрано, Мак Майлз, Морган (   Читать дальше...   )Перевод: Профессиональный (многоголосый закадровый) x7, профессиональный (двуголосый закадровый), авторский (одноголосый закадровый) x6Язык субтитров: Русский, АнглийскийПродолжительность: 02:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD11431A3EC3697E1F10D3264979A79220491653
 ```
 
 https://mybot314.ru/tekegram_catalog/

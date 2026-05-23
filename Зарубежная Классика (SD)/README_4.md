@@ -1,3 +1,107 @@
+###  Публикация: 1435873   (1035711) от 28.01.2021
+
+Веселая вдова / The Merry Widow (1925) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Студия "Metro-Goldwyn-Mayer" приобрела права на экранизацию весьма успешной оперетты Франца Легара "Весёлая вдова" в надежде, что из неё удастся сделать столь же успешный немой фильм - название было у всех на слуху, музыку можно использовать в качестве сопровождения в кинотеатрах, ну а без песен придётся обойтись... Постановку поручили Эриху фон (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: Мелодрама, немое киноРежиссер: Эрих фон ШтрогеймАктеры: Мэй Мюррэй, Джон Гилберт, Рой Д’Арси, Жозефин Кроуэлл, Джордж Фоусет, Талли Маршалл, Эдвард Коннелли, Хелен Ховард Бомонт, Гертруда Беннетт, Бернард БергерЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1CE30500F3356DF67DF6A6A21E9EDA20F205C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617030   (1035577) от 05.03.2023
+
+Прощай навсегда / Always Goodbye (1938) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Это трогательный рассказ, который начинается с трагедии и суровых реалий жизни, в котором Марго должна отказаться от своего ребенка. После того, как ее жених погибает, Марго в отчаянии идет к мосту, готовая покончить счеты с жизнью, но ее останавливает Джим Ховард, врач, который путешествует по миру без определенной цели. Через некоторое время у нее рождается сын, (   Читать дальше...   )Производство: США, Twentieth Century FoxЖанр: драма, мелодрама, комедияРежиссер: Сидней ЛэнфилдАктеры: Барбара Стэнвик, Херберт Маршалл, Иэн Хантер, Сесар Ромеро, Линн Бари, Бинни Барнс, Джонни Расселл, Мэри Форбс, Альберт КонтиПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DADE8157C9EFACAB7AD0B0C715336B72DA7879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617072   (1035571) от 05.03.2023
+
+Том, Дик и Гарри / Tom, Dick and Harry (1941) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+У телефонистки Джейни, девушки мечтательной, но практичной, появляются одновременно три кандидата на руку и сердце. Джейни приходится делать нелегкий выбор между амбиционным менеджером, романтичным и безалаберным автомехаником и обаятельным миллионером. Помочь принять единственно правильное решение и не совершить роковую ошибку могут только высшие силы...Производство: США, RKO Radio PicturesЖанр: комедияРежиссер: Гарсон КанинАктеры: Джинджер Роджерс, Джордж Мерфи, Алан Маршал, Бёрджесс Мередит, Джо Каннингэм, Джейн Сеймур, Ленор Лонерган, Вики Лестер, Фил Силверс, Бетти БрекенриджПеревод: Одноголосый любительский (Grampy)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A615665F62364C485EC400A63ECB9956AA6F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617131   (1035569) от 05.03.2023
+
+Привет, артист / Salut l'artiste (1973) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В жизни актера Николая Монтея скопилось немало проблем. С утра до вечера он скачет словно белка в колесе: из съемочного павильона – в звукоцех, оттуда – в театр, и лишь поздним вечером Николя добирается домой, а ранним утром все начинается сначала. Что остается на долю пожилого артиста? Только бесплодные мечты о великой роли, которую уже никто никогда не предложит…Производство: Франция, Италия / Euro International Film (EIA), Films de la Guéville, Gaumont InternationalЖанр: Драма, КомедияРежиссер: Ив РоберАктеры: Марчелло Мастроянни, Франсуаза Фабиан, Жан Рошфор, Эвелин Бюиль, Анри-Жак Юэ, Карла Гравина, Лизе Деламар, Сильви Жоли, Бернадетт Роберт, Элен Валье, Бетти Беккерс, Морис Барье, Робер ДальбанПеревод: Многоголосый профессиональный, студия СонатекЯзык озвучки: Русский, французскийСубтитры: Русские, французскиеПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D718C9C51028E02A1C660A4C07D155A232240328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436582   (1035410) от 29.01.2021
 
 Эта замечательная жизнь / It's a Wonderful Life (1946) BDRip [H.264] [Colorized]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -424,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34928768E4D90AE776C911F064B793DFE724CF66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440862   (1032036) от 12.02.2021
-
-И спотыкается бегущий / The Runner Stumbles (1979) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по пьесе Милана Стиффа, которая успешно шла на Бродвее. Отец Ривард - священник маленького шахтёрского городка. Изо дня в день он наблюдает за безрадостными реалиями жизни своих бедных прихожан. Жизнь Риварда составляют собственные вечные сомнения, да старые недружелюбные монахини из соседнего монастыря. Когда в приходе появляется новая служительница - (   Читать дальше...   )Производство: США, 20th Century Fox Film Corporation, Melvin Simon ProductionsЖанр: ДрамаРежиссер: Стэнли КрамерАктеры: Дик Ван Дайк, Кэтлин Куинлен, Морин Стейплтон, Рэй Болджер, Тэмми Граймз, Бо Бриджес, Аллен Ноз, Джон Прокаччино, Билли Джейн, Сестра Маргарит МориссейПеревод: Многоголосый профессиональный (5 канал СПБ)Субтитры: Английские - отдельным файломПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BF14754A9DF13DF71322E3923AD3B6A8B70502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616237   (1031858) от 21.03.2023
-
-Счастливые партнеры / Lucky Partners (1940) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Дэвид Грант (Рональд Колман), без особых на то причин, желает удачи прохожей, Джин Ньютон (Джинджер Роджерс), ей тут же начинает необыкновенно везти. И ей приходит в голову план, по которому она и Дэвид разделят стоимость лотерейного билета, думая, что она может только выиграть. Дэвид соглашается на эту авантюру, при условии, что в случае выигрыша, они отправятся (   Читать дальше...   )Производство: США / RKO Radio Pictures InЖанр: драма, мелодрама, комедияРежиссер: Льюис МайлстоунАктеры: Рональд Колман, Джинджер Роджерс, Джек Карсон, Спринг Байинтон, Сесилия Лофтус, Гарри Девенпорт, Хью О`Коннелл, Брэндон Тайнен, Леон БеласкоПеревод: Авторский (Виктор Рутилов)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705AD96D65B47FBD6C1D6A26D3E748E825528E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441195   (1031829) от 13.02.2021
-
-Кармен / Carmen (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет оперы "Кармен" известен если не всем, то очень многим. Но не все знают, сколь сильно отличается либретто от новеллы Проспера Мериме, послужившей первоосновой. Не удивительно, что разнообразные вариации этой истории в кинематографе подчас имеют сходство лишь в трагическом финале. Экранизация ДеМилля всё-таки ближе к первоисточнику. С оперой Бизе её (   Читать дальше...   )Производство: США, Jesse L. Lasky Feature Play CompanyЖанр: Драма, экранизация, немое киноРежиссер: Сесил Блаунт Де МилльАктеры: Джеральдин Фаррар, Уоллес Рид, Педро Де Кордоба, Хорас Б. Карпентер, Уильям Элмер, Джини Макферсон, Анита Кинг, Милтон Браун, Текс Дрисколл, Реймонд ХаттонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933843903FD3F327BDF161697EA2D34A684BB213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878340   (1031752) от 21.03.2023
-
-Поймать убийцу / To Catch a Killer (1992) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм, рассказывающий во всех подробностях историю серийного убийцы-маньяка Джона Уэйна Гэйси, убившего более тридцати подростков. Основан на действительных событиях.Производство: Канада, СШАЖанр: Триллер, Детектив, ДрамаРежиссер: Эрик ТилльАктеры: Брайан Деннехи, Тимм Земанек, Дон Ричи, Питер Лэнгли, Майкл Коупмен, Брюс Рэмсей, Тони Де Сантис, Николас Паско, Луис Гусман, Джерри Куигли, Джон Бойлан, Синтия Престон…Перевод: одноголосый закадровый (Андрей Дольский)Продолжительность: 03:05:55 (2 серии)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B511142673C3CBF1A36099BFB639EF1F087574F
 ```
 
 https://mybot314.ru/tekegram_catalog/

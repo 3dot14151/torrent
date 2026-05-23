@@ -1,3 +1,29 @@
+###  Публикация: 1819199   (1588) от 21.09.2025
+
+Hoshi o Ou Kodomo | Children Who Chase Lost Voices from Deep Below | Ловцы забытых голосов [2011, Movie] DVDRemux 576p raw+rus
+
+>>Аниме разное
+>>Аниме DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юная Асуна живет с вечно пропадающей на работе матерью и после школы любит забираться на скалу, чтобы послушать радио, доставшееся от умершего отца. Однажды в этом своем секретном месте она знакомится с загадочным юношей Сюном, который говорит, что пришел из далекой страны Агартхи. Эта встреча становится началом полного приключений путешествия в волшебный мир, где (   Читать дальше...   )Производство: CoMix Wave FilmsЖанр: приключeния, фэнтeзи романтикаОзвучка: Original (Commentary)Язык озвучки: Японский и РусскийСубтитры: Русские by Reanimedia (Полные | Надписи | Комментарии)Продолжительность: 111 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBC2899B123718D5EBF6BBD3FE9F294E34C0D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818996   (1580) от 21.09.2025
 
 Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных слов [2013, Movie] DVD9 480p raw+rus
@@ -6,7 +32,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kotonoha no Niwa | Сад слов | The Garden of Words | Сад изящных
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 >>Аниме Blu-ray, Remux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Fermat no Ryouri | Fermat Kitchen | Готовка Ферма [2025, TV, 11 из
 >>Аниме хардсаб
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +137,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +163,7 @@ Kaze Tachinu | The Wind Rises | Ветер Крепчает [2013, Movie] DVD9 5
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +189,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +215,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Da Yu Hai Tang | Big Fish & Begonia | По ту сторону океана [201
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +267,7 @@ Kaijuu no Kodomo | Children of the Sea | The Sea Monster's Children | Дети �
 >>Аниме DVD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

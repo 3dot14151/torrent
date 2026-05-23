@@ -1,3 +1,55 @@
+###  Публикация: 1225038   (662654) от 13.05.2018
+
+Sid Meier's Pirates! (2004) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бороздите Карибское море, грабя всех подряд, или пойдите к кому-нибудь на службу и попытайтесь разбогатеть, став капером, - выбирайте свою жизнь сами. Сражайтесь с яростными врагами, грабьте тихие деревни, ухаживайте за прекрасными девами, старайтесь не попасть в плен, ищите клады. Узнайте, что нужно для того, чтобы стать одним из самых знаменитых пиратов в истории!Тип издания: LicenseРазработчик: Firaxis Games, Full Fat Productions (PSP), 2K China (Wii)Жанр: Strategy (Real-time), Arcade, 3D, Privateer, TraderЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D346AE04E7E1C8BB4CA4485B9A63B98BA84711CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140339   (656477) от 05.06.2017
+
+Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Воссоздавая саму суть Второй мировой войны, Company of Heroes открывает новый путь развития стратегиям в реальном времени, в котором вы как никогда раньше сможете прочувствовать героизм солдат, разрушения, принесенные войной, и всю стремительность сражений.Тип издания: SteamRipРазработчик: Relic EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D5873E6298D6E688CEB3DCA93B3228937A763C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092437   (656441) от 19.05.2018
 
 eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
@@ -6,7 +58,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +111,7 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +191,7 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ Merchant Prince 2 / Венецианский купец 2 (2001) [Ru] (1.1) Lice
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ ABZU (2016) [Ru/Multi] (1.1) License STEAMPUNKS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Aquaria (2007) [En] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +479,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +505,7 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +531,7 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +557,7 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +583,7 @@ Gish (2004) [Ru] (1.0) Unofficial
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +609,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +635,7 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +661,7 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,58 +672,6 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147034   (610894) от 01.07.2017
-
-Post Mortem (2003) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Париж двадцатых годов. В роскошном отеле происходит жуткое двойное убийство. Я пытался завязать с частным сыском и уйти на покой, но, видимо, от старых привычек трудно избавиться. Привет. Меня зовут Густав Макферсон, для друзей – просто Гас. Я сперва не хотел браться за это дело, но клиентка попалась больно хорошая. И я сейчас не о деньгах говорю. Женщины...Тип издания: LicenseРазработчик: MicroidsЖанр: Adventure, 3DЯзык озвучки: Английский, Немецкий, Французский, ИтальянскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E221A322A8CA2438A87F1F541737BB36C7E2B26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147303   (609065) от 02.07.2017
-
-Unreal (2000) [En] (226/dlc) License GOG [Gold]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш тюремный корабль совершил вынужденную посадку на самой переменчивой, красивой и опасной планете во всей 3D-вселенной. Оглянитесь вокруг, и вы увидите кристально чистую воду, отражающую яркий свет, танцующие тени и древние инопланетные сооружения на горизонте. Раскройте тайны этого загадочного места и узнайте, как безжалостные захватчики поработили мирных местных (   Читать дальше...   )Тип издания: LicenseРазработчик: Epic MegaGames, Digital Extremes, Legend Entertainment CompanyЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4B20CCCFE53E0E9786EDCC7BC24AAEBA14ED7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 769725   (852211) от 24.03.2014
+
+13 грехов / 13 Sins (2014) WEB-DLRip [H.264/720p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эллиот Бриндл — умный кроткий сотрудник службы социального обеспечения, тонущий в долгах. Но все меняется, когда раздается телефонный звонок.
+На том конце провода ему сообщают, что он становится участником тв-шоу, условия простые — выполнить 13 заданий, какими бы странными они не были;
+приз — деньги, которые копятся с каждым выполненным заданием. Отказ от выполнения (   Читать дальше...   )Производство: США | Little Magic Films, Automatik Entertainment, IM GlobalЖанр: Триллер, УжасыРежиссер: Даниэль ШтаммАктеры: Марк Веббер, Рутина Уэсли, Девон Грайе, Прюитт Тэйлор Винс, Том Бауэр, Рон Перлман, Кристофер Берри,
+Стефани Онор, Бриттни Элгер, Денин ТайлерПеревод: ОтсутствуетПродолжительность: 01:32:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B31C91FA56857EF1559F6C37B709544DEEEAC8E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110710   (851856) от 03.03.2017
+
+Питомец / Pet  (2016) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сэт работает в приюте для животных и ведёт довольно скучную жизнь. Однажды он сталкивается со своей школьной любовью Холли и становится буквально одержим девушкой. После пары неудачных попыток пригласить Холли на свидание Сэт решает проблему экстремально - забирается к ней домой, вкалывает транквилизатор, привозит девушку в собачий приют и запирает в клетке. Теперь-то (   Читать дальше...   )Производство: Испания, СШАЖанр: ужасы, триллерРежиссер: Карлес ТорренсАктеры: Доминик Монахэн, Ксения Соло, Дженнет МакКарди, Нэйтан Парсонс, Гэри Дж. Танниклифф, Дэвон МакДональд,  Ирен Росин, Джанет Сонг, Хармони МакЭллигот, Аласдер МартинПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D521262643427DE5109232087C4BC72CF8DFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110667   (851402) от 03.03.2017
+
+Томбой / The Assignment (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История наемного убийцы, которого подставили. После удачного исполнения заказа на устранение мужчины киллер попадает в руки безумного доктора, который делает из него девушку в качестве мести за убийство, как выясняется, брата доктора. Лишенный мужской гордости и прошлой жизни, уже будучи наемницей, а не наемником, главная героиня разыскивает доктора, чтобы отомстить (   Читать дальше...   )Производство: США, SBS FilmsЖанр: Боевик, ТриллерРежиссер: Уолтер ХиллАктеры: Сигурни Уивер, Мишель Родригес, Тони Шэлуб, Энтони ЛаПалья, Кейтлин Джерард, Терри Чен, Кен Кирзингер, Пол МакДжиллион, Зак Сантьяго, Пол Лейзенби ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEE9446426ADE3EEB291BB06E602D1E9845A5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111159   (850245) от 04.03.2017
 
 Ловушка / A Kind of Murder  (2016) BDRip [H.264/720p] [EN]
@@ -6,7 +87,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838406.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F112142FBF4A9AE93E011E4BA0751C4614777F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004612   (837626) от 06.04.2016
-
-Доверие / The Trust (2016) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парочка коррумпированных полицейских в отделе улик обнаруживает сейф с нарко-деньгами. Решив похитить тайник, они не подозревают, что вступают в игру за собственные жизни.Производство: Великобритания, The Electric Shadow Company, Hassell Free Production, Highland Film Group, Ingenious Media, Prettybird, Saban Films, Saeculum ProductionsЖанр: Триллер, КриминалАктеры: Николас Кейдж, Элайджа Вуд, Джерри Льюис, Стивен Уильямс, Скай Феррейра, Кевин Уайзман, Лиза Гарднер, Кристи Беран, Джеффри Ховард, Томми ВегасПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB83D25B5DEBE544B44F226A365300857701E3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004404   (837623) от 06.04.2016
-
-Доверие / The Trust (2016) BDRip [H.264/720p] [EN]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парочка коррумпированных полицейских в отделе улик обнаруживает сейф с нарко-деньгами. Решив похитить тайник, они не подозревают, что вступают в игру за собственные жизни.Производство: Великобритания, The Electric Shadow Company, Hassell Free Production, Highland Film Group, Ingenious Media, Prettybird, Saban Films, Saeculum ProductionsЖанр: Триллер, КриминалАктеры: Николас Кейдж, Элайджа Вуд, Джерри Льюис, Стивен Уильямс, Скай Феррейра, Кевин Уайзман, Лиза Гарднер, Кристи Беран, Джеффри Ховард, Томми ВегасПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F37C3E4B052EFDE0CF075AEF41308EE0C5A79CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879062   (837117) от 18.03.2015
-
-Искатель воды / The Water Diviner  (2014) BDRip [720p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в 1919 году. Это история об австралийце, который отправляется на полуостров Галлиполи, где во время Первой мировой войны проходила ожесточенная битва, чтобы разыскать тела своих погибших сыновей. И неожиданно для себя он обретает надежду там, где и не мыслил ее найти.Производство: Австралия, Турция, СШАЖанр: драма, военныйРежиссер: Рассел КроуАктеры: Рассел Кроу, Джай Кортни, Ольга Куриленко, Изабель Лукас, Дэймон Херриман, Жаклин МакКензи, Джем Йылмаз, Меган Гэйл, Райан Корр, Йылмаз Эрдоган, Дениз Акдениз, Майкл ДорманПеревод: ОтсутствуетСубтитры: английские (вшитые, отключаемые)Продолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04BC16644A6562F9565B734304AAD2A301A2F25
 ```
 
 https://mybot314.ru/tekegram_catalog/

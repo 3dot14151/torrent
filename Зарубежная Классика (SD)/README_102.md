@@ -1,3 +1,109 @@
+###  Публикация: 1630151   (230867) от 03.06.2023
+
+Кот / Le chat (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Когда-то они были счастливы. Клеманс и Жюльен. Теперь они едва ли могут припомнить те времена, когда в их доме гостила любовь. Жюльен охладел к своей «акробатке». А она до сих пор не может поверить в то, что их семьи больше нет.
+Но однажды Жюльен совершает предательство. В их доме появляется Кот. «Только лишь кот?» – скажете вы. Да. Но Клеманс понимает, что в ее (   Читать дальше...   )Производство: Франция, Италия / Cinétel, Comacico, Gafer, Lira Films, Unitas FilmЖанр: драмаРежиссер: Пьер Гранье-ДеферАктеры: Жан Габен, Симона Синьоре, Анни Корди, Жак Риспаль, Николь Десайи, Гарри-Макс, Андре Руйе, Карло Нелл, Ив Барсак, Флоранс ОгеноерПеревод: Многоголосый профессиональный, двуголосый профессиональныйЯзык озвучки: Русский, французскийСубтитры: Русские, французские, английскиеПродолжительность: 01:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5854B410F050BD4ED7FDFE27092FA3B6E0CF7878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556089   (230665) от 07.06.2022
+
+Форель / La truite (The Trout) (1982) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+История современной куртизанки, которая делает карьеру через постель, живя в мире современной буржуазии. Так же как форель, из которой бережно достают икру, герои платят частичкой самих себя за фальшивые улыбки, секс и расположение.Производство: Франция, Gaumont, TF1 Films Production, Société Française de Production Cinématographique (S.F.P.C.)Жанр: Драма, мелодрамаРежиссер: Джозеф ЛоузиАктеры: Изабель Юппер, Жан-Пьер Кассель, Жанна Моро, Даниэль Ольбрыхский, Жак Списсер, Исао Ямагата, Жан-Поль Руссийон, Ролан Бертен, Лизетт Малидор, Крэйг СтивенсПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4FE88800DF44B7F5F0B38E473C8431B3970874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555342   (230632) от 08.06.2022
+
+Ад в Тихом океане / Hell in the Pacific (1968) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит во время Второй мировой войны. На необитаемом острове в Тихом океане оказываются 2 военных с противоборствующих сторон — американский пилот и японский военнослужащий в должности капитана.
+Сперва они ненавидят друг друга и пытаются уничтожить друг друга. Затем каждый из них пытается спастись, обманув другого. Затем они понимают, что по одному (   Читать дальше...   )Производство: США / Henry G. Saperstein Enterprises Inc., Selmur ProductionsЖанр: Приключения, ВоенныйРежиссер: Джон БурменАктеры: Ли Марвин, Тосиро МифунэПеревод: Двуголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFEE0DC7E5FE29DFA4DE598B1A5D992CB6C035A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633888   (230453) от 26.07.2023
+
+Серебряный флот / The Silver Fleet (1943) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Управляющий верфи Лейден, после оккупации Голландии, долго не задумиваясь, начинает сотрудничество с новой властью. По ходу дел он приходит к мнению, что сотрудничает не с той стороной, с которой следовало бы. Теперь для Лейдена главная забота — как противостоять нацистам, не подвергая опасности семью и коллег…Производство: Великобритания / The Archers, 	The Rank Organisation Film Productions Ltd.Жанр: драма, военныйРежиссер: Вернон Сьюэлл, Гордон ВеллеслиАктеры: Ральф Ричардсон, Гуги Уизерс, Эзмонд Найт, Бересфорд Иган, Фредерик Бёртуэлл, Кэтлин Байрон, Willem Akkerman, Дороти Гордон, Чарльз Виктор, Джон ЛонгденПеревод: Одноголосый любительскийЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD3C9B31E2861D48528CEEABFB4C87ECB32A31A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580418   (230375) от 11.10.2022
 
 Три монеты в фонтане / Three Coins in the Fountain (1954) BDRip [H.264]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -137,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225701.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -457,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -485,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -512,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -575,111 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4919A4302B2D5A939DC2DDEF6A2DEAD443BBD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963372   (221968) от 16.12.2015
-
-По прозвищу Громила / Piedone lo sbirro (1973) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этому полицейскому не требуется оружие — у него есть кулак! У инспектора Риццо, которого все звали просто «Громилой», было еще одно прозвище — «Бигфут». То есть (дословно) «Большая нога» или (по смыслу) «Снежный Человек». Потому что каждому в Неаполе было известно: с Риццо лучше не связываться. Правда, он вполне благосклонно относился к осведомителям и шлюхам, те (   Читать дальше...   )Производство: Италия, Франция / C.A.P.A.C., Mondial Televisione FilmЖанр: Боевик, Драма, Комедия, КриминалРежиссер: СтеноАктеры: Бад Спенсер, Адальберто Мария Мерли, Раймон Пеллегрен, Жюльет Майниель, Марио Пилар, Энцо Каннавале, Анджело Инфанти, Джо Дженкинс, Сальваторе Морра, Франко АнгрисаноПеревод: Одноголосый закадровый (Joe30)Субтитры: ОтсутствуютПродолжительность: 01:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53A1136108FF24D7D7F98FC22F7E11E4B29FE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963624   (221960) от 16.12.2015
-
-Громила в Гонконге / Piedone a Hong Kong (1975) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Громила Риццо по прежнему работает в Неаполе и по-прежнему благосклонен к мелким правонарушителям, но беспощаден к насильникам и наркоторговцам. Однажды цыганка нагадала ему дальнюю дорогу. У него опять не сложились отношения с начальником полиции города Неаполя. Его обвиняют в торговле наркотиками. Для того, чтобы очистить свое имя, он должен узнать, кто в полиции (   Читать дальше...   )Производство: Италия / Mondial Televisione FilmЖанр: Боевик, Драма, Комедия, КриминалРежиссер: СтеноАктеры: Бад Спенсер, Аль Леттьери, Энцо Каннавале, Ренато Скарпа, Франческо Де Роза, Нэнси Сит, Роберт Уэббер, Роберта Паладини, Чаплин ЧангПеревод: Двуголосый закадровый (Рен-ТВ, со вставками двуголосого Levelin)Субтитры: ОтсутствуютПродолжительность: 01:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5E8364EA167678B0AD6A74F5946AA40D65358B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420483   (221603) от 20.11.2020
-
-Доктор Ноу / Dr. No (1962) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонду дано задание выяснить что является источником электронных помех в компьютерах американских пусковых шахт на мысе Канаверал. По агентурным данным мозговой центр вражеских сил находится на Ямайке. Бонд незамедлительно выдвигается туда.
-В процессе расследования ему придется столкнуться с могущественной структурой СПЕКТР и ее представителем Доктором Ноу, готовым (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Теренс ЯнгАктеры: Шон Коннери, Урсула Андресс, Джозеф Уайзмен, Джек Лорд, Бернард Ли, Энтони Доусон, Зена Маршалл, Джон Кицмиллер, Юнис Гейсон, Лоис МаксуэллПеревод: Многоголосый профессиональныйСубтитры: отсутствуютПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0276EE2BC1376432E72F1931C0E0CDD5506E335A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 35356   (221393) от 20.11.2020
-
-Джанго: Бог простит. Я — нет! / Dio perdona... Io no! (1967) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221393.jpg" />
-</div>
-
-
-###  Подробнее
-
-По дороге из Эль Пасо ограблен поезд. Налетчики забрали 300000 долларов, убив при этом всех пассажиров. На поиски денег отправляется сыщик страховой компании Хатч со своим знакомым Кэтом Стивенсом. После недолгих размышлений они приходят к единому мнению: налет на поезд, мог совершить только один человек - Билл Сан Антонио. Однако, проблема заключается в том что (   Читать дальше...   )Жанр: Комедийный вестернРежиссер: Джузеппе Колицци /Giuseppe Colizzi/Актеры: Теренс Хилл /Terence Hill/, Бад Спенсер /Bud Spencer/, Фрэнк Вулфф /Frank Wolff/, Джина Ровере /Gina Rovere/, Луис Барбу /Luis Barboo/, Хоакин Бланко /Joaquin Blanco/ и др.Перевод: Профессиональный (двухголосый)Продолжительность: 1:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6681DDB0B304C861871013C0A5247FB1D9FAC984
 ```
 
 https://mybot314.ru/tekegram_catalog/

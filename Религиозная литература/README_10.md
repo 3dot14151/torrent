@@ -1,3 +1,113 @@
+###  Публикация: 602182   (997502) от 13.01.2013
+
+Антонио Сикари | Портреты святых (том I - IV) [1991 - 1998] [DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Кто такой - святой? Это не какой-то странный человек из давнего времени, набожный и далекий от современности. Наоборот, во все времена святые показывают, что такое настоящее человечество, что такое настоящее человеческое лицо, в котором отражается и сияет красота Лика Христова. Вот откуда так привлекательны и близки представленные здесь биографии святых разных эпох.Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D7A7A1A89CB5B6432B01DAE1941E911EEF89C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603342   (997270) от 14.01.2013
+
+Оливье Клеман | Беседы с Патриархом Афинагором [1993] [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга эта - рассказ о встрече. Той встрече, которую автор хотел бы разделить со своими читателями, приобщив их к определенному строю духовной жизни. С тех пор как высокая фигура Афинагора I появилась на телевизионных экранах и в иллюстрированных еженедельниках, христиане Запада, а благодаря средствам массовой информации и толпы людей, сумели по-своему почувствовать, что и «православный» Восток под пластом всех склерозов и расколов, принесенных историей, сохраняет верность христианскому единству, которую патриарх символически облек в слова и жесты примирения. Для цивилизации, которая пятится к смерти, по-обезьяньи копируя молодость, иконописное лицо Афинагора заговорило о старости, насыщенной мудростью, и - кто знает? - может быть стало каким-то знаком преображения и самой смерти. «Архетип старого мудреца», как сказал бы Юнг, мудреца, умеющего дать почувствовать, что жизнь, завершаясь, превосходит себя, и что в глубине вещей лежит не небытие, а любовь.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C1A11949549680B5DF6AA1B6B0C89442BA4AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603241   (997261) от 14.01.2013
+
+Вильгельм Хунерман | Святой Антоний Падуанский [2004] [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Антоний Падуанский — один из самых любимых и почитаемых святых, учитель Церкви, выдающийся проповедник, стоящий у истоков францисканской учености.
+
+ Святого, явившего высокий образец духовной чистоты и смиренной любви, почитают во всем мире, а его изображение можно найти в каждом католическом храме. Базилику Св. Антония в Падуе ежегодно посещает около четырех миллионов паломников. В России Антоний издавна почитается как католиками, так и православными — в литургические книги конца XVII в. на церковно-славянском языке входила служба св. Антонию Падуанскому. В Индии его почитают индуисты, а в Турции — мусульмане.
+
+ Книга Вильгельма Хунермана предназначена для всех, кто стремится найти в жизни пример истинной святости,пережить радость от непосредственного общения с ней.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2923313A638B46053DF44E9235D1ABFAA9EC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603281   (997244) от 14.01.2013
+
+Св. Антоний Падуанский | Проповеди [1997] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвященна великому проповеднику и Учителю Католической Церкви св. Антонию Падуанскому. В отличие от самого известного из западных святых в России — св. Франциска Ассизского, Антоний Падуанский — святой, почти не известный в нашей стране. До самого последнего времени на русском языке об этом святом не было ни книг, ни специально посвященных ему статей. Лишь в 1994 г. появилась публикация в журнале «Истина и жизнь», а в 1995 г. — в год юбилея, 800-летия со дня рождения Антония — отцами францисканцами в Москве были изданы две небольшие книги: Вергилия Гамбосо «Святой Антоний чудотворец» и В. Хунерманна «Св. Антоний Падуанский». Таким образом, настоящее издание — первое представление русскому читателю сочинений св. Антония Падуанского.
+
+Традиционное почитание св. Антония — почитание его как чудотворца, ибо чудеса, сопровождавшие его земную жизнь, не прекратились и после кончины Антония, как бы отодвинув на второй план его литературное творчество. Однако не следует забывать, что именно Антоний стоит у истоков (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3B66C50377700ADEF9511E3E0377C97422373F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603267   (997226) от 14.01.2013
 
 Документы II Ватиканского Собора (2004) [PDF]
@@ -6,7 +116,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -90,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -145,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -171,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -197,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -232,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -258,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -286,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -314,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -340,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -544,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -605,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,110 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F63F30830C3FA8876D3DAF8963E737BE2FB05957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971258   (987659) от 02.01.2016
-
-М. А. Парнюк | Наука и религия об общественной жизни [Беседы] (1959) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Построенная в виде бесед брошюра о том, как наука и религия смотрят на такие вопросы общественного бытия, как происхождение человека, законы развития общества, вопрос о войне и мире, влиянии религии на общественное сознание и др.Жанр: История, религиоведение, науковедение, философия, социологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1C4022C52F1050A8D7B6D4868EBF37ECB22E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971259   (987578) от 02.01.2016
-
-Ю. К. Субботин | Православные таинства (1990) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987578.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, как возникли и для чего служат  главные обряды православия — «таинства». Показывается, что истоки «богоучреждённых» культовых действий лежат в первобытной  магии, с помощью которой наши далекие предки пытались вступить в общение со «сверхъестественными силами» грозной для них  природы. Раскрывается социальная роль таинств (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1426D434E6A1225A6E7AD5C90CE64FA8018963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971243   (987575) от 02.01.2016
-
-Афонский инок | Русский скит на Афоне. Новая Фиваида (2013) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которую Вы держите в руках, написана до революции неизвестным иноком афонского скита Новая Фиваида и повествует об истории этой пустыни, первых ее насельниках и святынях.Жанр: Христианство, ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD5B56708191C78EF29C080D59CB172E6CD3B2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971350   (987526) от 02.01.2016
-
-св. Макарий Нотарас, св. Никодим Святогорец | Добротолюбие (1782) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987526.jpg" />
-</div>
-
-
-###  Подробнее
-
-В релизе представлено первое издание "Добротолюбия". Книга была составлена св. Макарием Нотарасом и отредактирована св. Никодимом Святогорцем. Первое издание было отпечатанно в 1782 году в Венеции.Жанр: Богословие, исихазмФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A7589A584D25BADDE7FE48B3F42A21A17B128A
 ```
 
 https://mybot314.ru/tekegram_catalog/

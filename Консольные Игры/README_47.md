@@ -1,31 +1,3 @@
-###  Публикация: 1073234   (347010) от 15.11.2016
-
-Pokken Tournament (2016) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такими покемонов вы еще никогда не видели.
-
-Приготовьтесь побороться за звание короля Pokkén Tournament. Встречайте новый шедевр от истинных корифеев жанра - команды Bandai Namco Entertainment, ставшей широко известной благодаря файтинг-сериалу Tekken. К вашим услугам десятки покемонов вроде Пикачу и Чаризарда, каждому из которых соответствует свой набор уникальных (   Читать дальше...   )Тип издания: LicenseРазработчик: BANDAI NAMCO EntertainmentЖанр: Fighting, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DC6804206FA37C56765E3BAE0490C9DCFCA00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073238   (346883) от 15.11.2016
 
 LEGO Jurassic World (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
@@ -34,7 +6,7 @@ LEGO Jurassic World (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +34,7 @@ Rugby World Cup 2015 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unoff
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +61,7 @@ The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [FreeB
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +87,7 @@ Pumpkin Jack (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.2.8] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +113,7 @@ Iron Man (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -167,7 +139,7 @@ Iron Man 2: The Video Game (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +165,7 @@ Dance Dance Revolution DDR (2010) [PS3] [USA] 3.55 [CFW] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +191,7 @@ The Sims 3 [Wii] [Multi 5] [PAL] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +217,7 @@ Superstars V8 Racing (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +243,7 @@ Murasaki Baby (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [PSN] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +271,7 @@ Borderlands: The Pre-Sequel! [Region Free] [ENG] [LT+3.0] (XGD3 / 16537) (2014) 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +301,7 @@ PlayStation Vita Pets (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +329,7 @@ Just Dance 2018 (2017) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +355,7 @@ The Peanuts Movie: Snoopy's Grand Adventure (2015) [Xbox360] [RegionFree] [LT+1.
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +381,7 @@ Call of Duty: Black Ops 3 (2015) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +407,7 @@ Rise of the Guardians: The Video Game [xbox 360] [eng] [Region free] (2012)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +437,7 @@ Untitled Goose Game (2019) [Switch] [USA] 10.1.0 [NSZ] [License / 1.1.0] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +464,7 @@ Devil May Cry 4 (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Repack] [R
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +490,7 @@ Borderlands (2009) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +516,7 @@ FAR: Lone Sails (2019) [Switch] [EUR] 8.1.0 [NSP] [License] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +542,7 @@ DOOM (2017) [Switch] [EUR] 8.1.0 [NSP] [License] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -596,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -622,7 +594,7 @@ ATOM RPG (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.1.73] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -648,7 +620,7 @@ Kung Fu Panda 2: The Videogame (2011) [PS3] [USA] 3.60 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -674,7 +646,7 @@ Wolfenstein (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329958.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -685,6 +657,32 @@ Wolfenstein (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A111C3B1EF3619136D86E265BD33A3B599998F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957030   (328140) от 16.11.2015
+
+Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.G. X360CLUB
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Десять лет прошло после инцидента в Раккун-Сити, и президент Соединенных Штатов решает открыть правду о произошедшем в надежде приостановить биотеррористическую активность. Все это время Президенту помогает его друг Леон С. Кеннеди, но во время одной из встреч они оказываются под атакой.Тип издания: UnofficialРазработчик: CapcomЖанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2A001AA0D063880CE2053310BB4A7F9F834329
 ```
 
 https://mybot314.ru/tekegram_catalog/

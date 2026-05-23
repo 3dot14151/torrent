@@ -1,3 +1,323 @@
+###  Публикация: 1366466   (923355) от 11.03.2020
+
+3D модели - 3DDD - Bathtub (Bathroom) - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 30 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFD61E2829CA7F6262C30EC69EF1C609C899702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756285   (922732) от 13.02.2014
+
+Растровый клипарт - Евро / EURO [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Евро / EUROФормат: JPEGРазрешение файлов: 2000х2000-8000х5400
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0622EF1504F2B8A147FF10A40940DAC186E9011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756471   (922685) от 13.02.2014
+
+Векторный клипарт - Элегантные костюмы / Elegant Suits [AI,EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Элегантные костюмы мальчикам на 14 февраля и 8 марта, чтобы выглядели как люди    :bravo:Формат: AI,EPS и превью в JPG и TIFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1FDE345239087184EF9A4F2CBD691F7C1E72B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095889   (922080) от 22.01.2017
+
+Экшены - GraphicRiver - Minimal Dispersion Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Minimal Dispersion - это действие Photoshop, которое производит эффект манипуляции с иллюстрациями практически из любых образов. По завершению действия, вы получаете хорошо организованный со множеством слоями, папок и настроек результат. Для достижения наилучших результатов, рекомендуется использовать фотографии разрешением 2000px – 4000px по ширине/высоте.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8E431BBA5EC9698B7C4ADF59F3414C163C07C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096034   (922066) от 22.01.2017
+
+Экшены - GraphicRiver - Artist Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Artist - действие создает сочетание акварели и эффекта эскиза. У вас есть возможность комбинировать эффекты вместе или использовать эффект эскиза самостоятельно. Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 1500px – 3500px. Оптимальный диапазон составляет от 2300px – 4500px.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A65A9617C18EBE70E2F60DE3C387391E5E1320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489932   (922023) от 18.08.2021
+
+Стили - GraphicRiver - Retro Text Effects - 10 PSD - 21303853 [ASL, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная возможность представить свой текст в стиле ретро винтаж.Формат: ASL, PSDРазрешение файлов: 2560x2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6924EB673171142AECDD771CDCE72591CAFCB53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489942   (921914) от 18.08.2021
+
+Оверлеи - Creative Market - Weather Photo Overlays Bundle - 4764031 [PNG, JPG, ABR, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Набор наложений для фотографий с погодой - более 180 элементов природы в наложениях и 180 кистей для Photoshop! Отличное дополнение к вашим фотографиям и произведениям искусства! Этот набор изолированных элементов природы поможет вам добавить реалистичный эффект в ваши проекты. Добавьте немного волшебства в несколько секунд!.Формат: PNG, JPG, ABR, PSDРазрешение файлов: 5000x5000-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D68A38EF8D0489F3F3B4631690E4832598154A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489925   (921765) от 18.08.2021
+
+3D модели - Unity Asset Store - HQ FPS Weapons - 177306 [UNITYPACKAGE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+HQ FPS Weapons содержит множество высококачественных функций FPS, а также арсенал полностью анимированного оружия и предметов.Формат: UNITYPACKAGE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1589BBB8A0AE21C917F4A6D7AEA9DB90A040EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756884   (920973) от 14.02.2014
+
+Сборник - День всех влюбленных 3 / Valentine's Day 3 [JPEG,PSD,EPS,AI,PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Изображения ко Дню всех влюбленных
+для тех, кто еще не поздравилФормат: JPEG,PSD,EPS,AI,PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B640CF63F8DAB65DDECAC11E7356019E50F360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096187   (920517) от 23.01.2017
+
+Шрифты - Astakhov Skin / Астахов Кожа [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: D. Astakhov
+Количество / Штук: 2
+
+Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAB849858F04C50B05F4776358EF7301728081D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288852   (919567) от 30.01.2011
+
+Digital Juice - Ready2Go: Collection 01 (AE) (Files)
+
+>>Материалы для мультимедиа и дизайна
+>>Digital Juice
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ready2Go 1 AE - Более 40 полностью настраиваемых проектов и шаблонов для Adobe After Effects.Независимо от того, каков ваш уровень мастерства в After Effects, Ready2Go с вами. Хотите просто заменить видео и текст? Нет ничего проще - перетаскивайте футажи, редактируйте текст, и всё готово! Хотите изменить цвета, текстуры или отключить некоторые элементы? Не проблема - вы можете это тоже сделать. Хотите заменить элементы вашими собственными элементами, или добавить что-то из Motion Designer's Toolkit и использовать это? Все это возможно, как только ваши навыки в After Effects подрастут.
+Примечание: Это распакованные AE-проекты из оригинального диска, для работы с ними джусер не требуется!
+Превью есть в раздаче.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C0AECAE69F2DB46D0CBDEE3A58ED735B990424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367020   (919063) от 14.03.2020
+
+Рамки - NNM-Club - Рамки от Warrior 123 #3 - 1367020 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рамки созданные нашим одноклубником Warrior 123
+ОднослойныеФормат: PSDРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDE036F227C0D86AE6A5BBB1F7F09C1B52373A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367022   (919053) от 14.03.2020
 
 Рамки - NNM-Club - Рамки от Warrior 123 #5 - 1367022 [PSD]
@@ -6,7 +326,7 @@
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -359,331 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB47FF9E0E5425EFD17D7EA692E49B3BA02926B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490334   (918657) от 20.08.2021
-
-Фоны - Сборник фонов #6 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник фонов для вашего творчества.Формат: JPGРазрешение файлов: 1440x1920-5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD177AA71E9F88DCB052E51BDDA45679ED9E86B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490414   (918639) от 20.08.2021
-
-Шаблоны - Creative Market - Bella Canvas 3414C Triblend Mockups - 6216347 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего несколькими щелчками мыши вы можете визуализировать свои проекты в этих невероятных макетах. Получите фотореалистичные результаты с удивительными функциями этих макетов, получите максимальную детализацию с разрешением 5K, цвет не будет препятствием, просто откройте цветовую панель и выберите любой цвет, который вам нравится, карта смещения позволит вашему дизайну (   Читать дальше...   )Формат: PSDРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660C3B7413963A2258AEBBE56B9F386B3DDA7D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367066   (918625) от 14.03.2020
-
-Кисти - Creative Market - 100 Photoshop Smoke Brushes + PNGs - 4421254 [PNG, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит 100 высококачественных дымовых кистей Photoshop + PNG с чистой прозрачностьюФормат: PNG, ABRРазрешение файлов: 744x2060-4999x1771
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4479AB6B42807CC73FC56CC5459900C0D073DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988890   (918535) от 21.02.2016
-
-Звуковые библиотеки - Diginoiz - Rhythm & Body [WAV, REX, REFILL, AIFF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция семплов для создания Чувственных, сексуальных, мелодичных, теплых треков в стиле R&BФормат: WAV, REX, REFILL, AIFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C6BBB65D82F9784E6253640F4849782E227276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367287   (917228) от 15.03.2020
-
-Векторный клипарт - 9 Fruits [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фрукты
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653C963B9A52E29C7B506270076F52B76D429027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367279   (917225) от 15.03.2020
-
-Векторный клипарт - Fotolia - 25 Fruits And Vegetables [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фрукты и овощи
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257A0CF1840A3488CC5F776F973B47E97B03D9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367281   (917224) от 15.03.2020
-
-Векторный клипарт - Advertisement Banner Detergent And Cleaner Brand Concept Background [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Рекламные баннеры моющих и чистящих брендов
-16 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F5ABDF53D63EFBC0C7598BDE59B9E5255ECDF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367289   (917158) от 15.03.2020
-
-Растровый клипарт - Ripe tomatoes cherry branch healthy food [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спелые помидоры, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3127x4690-5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9EBB7EEE71EFA3A1B3871979C2D31AFCA795D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367286   (917152) от 15.03.2020
-
-Векторный клипарт - Fashion girl with accessories and stylish clothes [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Модные девушки с аксессуарами и стильной одеждой
-10 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1854BF8256D782366ACF4224664057FE073897E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367383   (917137) от 15.03.2020
-
-Шаблоны - Photorealistc DVD Case & Disk Mockups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макеты реалистичных DVD-коробок.
-Простота в использовании (нажмите на смарт-объекты, вставьте свой дизайн, готово!).
-Многослойный (даже тени на отдельных слоях).
-Можно изменять цвет фона.Формат: PSDРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2916084715E857D25CD72B98E561023EB3F26FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367282   (917104) от 15.03.2020
-
-Векторный клипарт - Colorful Geometric Shapes Background [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фоны красочных геометрических фигур
-22 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4C541AE29F3ADEEF28A2CCCAF650BA5B034C02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367374   (917085) от 15.03.2020
-
-Шаблоны - Creative Market - Men & Women Outfit Creator Bundle - 4519215 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создайте собственный лукбук, используя потрясающие полностью редактируемые макеты. Наслаждайтесь бесконечными возможностями, комбинируйте и подбирайте элементы по своему желанию и создавайте в соответствии с вашими потребностями. Более 40 удивительных полностью редактируемых макетов | +80 аксессуаров | Готовые сцены присутствуют.Формат: PSDРазрешение файлов: 2800x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABC48F0129D5E1EB490019BF0947DCCEEF5912D
 ```
 
 https://mybot314.ru/tekegram_catalog/

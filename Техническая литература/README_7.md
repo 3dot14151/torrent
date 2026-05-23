@@ -1,3 +1,108 @@
+###  Публикация: 1205835   (782917) от 12.02.2018
+
+Ю. В. Кондратюк | Завоевание межпланетных пространств (1929) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книжка Ю. В. Кондратюка, несомненно, представляет наиболее полное исследование по межпланетным путешествиям из всех писавшихся в русской и иностранной литературе до последнего времени. Все исследования проделаны автором совершенно самостоятельно, на основании единственного полученного им сведения, что на ракете можно вылететь не только за пределы земной (   Читать дальше...   )Жанр: История, науковедение, космонавтика, искусство, механика, физикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5372CE9C3AF2DA11F38F654FAD4B8A221308DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205933   (782882) от 12.02.2018
+
+В.А. Шахнов и др. | Основы конструирования в Solid Edge [+Примеры упражнений] (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой пособие для вузов и дает студентам представление о современных тенденциях в области САПР машино- и приборостроения, обучает основам проектирования изделий в среде трехмерного проектирования Solid Edge от Siemens PLM Software.
+В пособии приводится подробное описание техники создания деталей, сборочных единиц и выполнения конструкторской документации. (   Читать дальше...   )Жанр: САПР, машиностроение, приборостроениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A45A1719A1AD9A8A9BCCE59BE3150F831E162F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390475   (782605) от 16.06.2020
+
+Каниа Кан | Нейронные сети. Эволюция (2018) [PDF, EPUB]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга предназначена для всех, кто хочет разобраться в том, как устроены нейронные сети. Для тех читателей, кто хочет сам научиться программировать нейронные сети, без использования специализированных библиотек машинного обучения. Книга предоставляет возможность с нуля разобраться в сути работы искусственных нейронов и нейронных сетей, математических идей, лежащих (   Читать дальше...   )Жанр: Наука и техника, Нейросетевые технологииФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA08356CFDB34AD09AA35690EBC39F7A5B85FD10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206247   (782430) от 13.02.2018
+
+Григорий Пунегов | Домофоны и замки своими руками (2017) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для обычных людей, которых волнуют проблемы безопасности. Автором предложен уникальный подход к освоению монтажа домофонов и замков. Особенность методики заключается в простоте и скорости приобретения знаний и навыков. Много внимания уделено решению проблем детской безопасностиЖанр: БезопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1278E7FB5CAD14D6698973A61BB5F7B2AEB66E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390725   (781825) от 18.06.2020
 
 Ю.А. Исаков и др. | Основы промышленной электроники (1976) [PDF]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -298,7 +403,7 @@ Samsung | Сервис-мануалы к технике Samsung (1998-2005) [PDF
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -324,7 +429,7 @@ Asus | Сервис-мануалы к технике Asus (1989-2015) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -377,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +561,7 @@ Acer | Сервис-мануалы и принципиальные схемы к
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,113 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CCB14B5472D83DC1161A4A965D9E89048B1FE93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199669   (767427) от 27.01.2019
-
-Юрий Ревич | Занимательная электроника (2006) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767427.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге на простых и реализуемых на практике примерах рассказывается о том, как проектировать, настраивать и собирать электронные устройства в домашних условиях. Книга содержит самую обширную информацию начиная с физических азов электроники, и вплоть до описания устройства и принципов работы различных радиоэлектронных компонентов. Приведены рекомендации по оборудованию (   Читать дальше...   )Жанр: Справочный материал, НаукаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DE3E3CEC47680BD97EF349E04DAEA15B30F6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125747   (766888) от 16.04.2017
-
-А.П. Кашкаров | Современные осветительные приборы. Выбор, подключение, безопасность (2017) [FB2, RTF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766888.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассмотрены особенности эксплуатации популярных типов осветительных приборов на основе мощных светодиодов, которые обладают заметными преимуществами перед традиционными энергосберегающими лампами и лампами накаливания. Светодиоды – мощные твердотельные источники света, однако они также имеют недостатки, о которых дискутируют специалисты. На основе приведенных (   Читать дальше...   )Жанр: Электронные компоненты, электротехникаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C815DDFD9CFD3F368008CD5233212FAAB34E2E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116544   (765945) от 17.04.2017
-
-Подборка | Даташиты зарубежных конденсаторов [5300 комплектов] (2006-2017) [PDF] [En] [Обновляемая]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765945.jpg" />
-</div>
-
-
-###  Подробнее
-
-В подборку включено множество технической документации 53 фирм производителей: CapXon, HITANO, Jamicon, Nichicon, Nippon Chemi-Con, Panasonic, Rubycon, SAMWHA, и др. Даташиты предоставляют полную информацию о компоненте ( электрических характеристиках, массо-габаритных показателях и т.д.). В состав включены все виды конденсаторов, выпускаемых производителями. Стандартные, (   Читать дальше...   )Жанр: Техническая документацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219DA7936923DBBD2816CCC566D2F6A34352521A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211943   (765019) от 30.01.2019
-
-Г.Б. Белоцерковский | Основы радиотехники и антенны [Две части] (1969) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник для техникумов "Основы радиотехники и антенны" разделен на две части, которые издаются отдельными книгами.
-В первой части "Основы радиотехники" рассматриваются общие принципы радиотехники, колебательные контуры и фильтры, основы теории длинных линий, электромагнитные волны, радиопомехи и общие вопросы радиоприема в условиях помех.
-
-Вторая (   Читать дальше...   )Жанр: Научная литература, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A654A21D42A536399B7FFC60BFF1CD185FF3E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

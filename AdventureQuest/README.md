@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1871671   (1070030) от 
+
+Ground Zero (2026) [Ru/Multi] (Patch 1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Ground Zero» - это ретро-игра ужасов на выживание, действия которой разворачиваются в постапокалиптической Южной Корее. Упавший метеор полностью разрушил Южную Корею. Спустя 2 месяца, когда улеглись бури из пыли и молний, а воздух снова стал пригодным для жизни, элитная корейская агентка в паре с канадским коллегой прибыли сюда для расследования. Ужас, который им (   Читать дальше...   )Тип издания: RepackРазработчик: Malformation GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EADDE6B671CE308D97B9E0A45AA1964D9E0ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871740   (1069958) от 
+
+Willy Morgan and the Curse of Bone Town (2020) [Ru/Multi] (1.2.1) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Willy Morgan - классический квест в мире современных пиратов. Это пиратский коктейль из традиционного жанра квест, необычной трехмерной графики, уютной атмосферы и свободы перемещения по миру игры, прямо как в нестареющей классике а-ля Monkey Island. В этом приключении масса смешных диалогов и не самые легкие загадки. Для того, чтобы докопаться до истины, вам потребуется (   Читать дальше...   )Тип издания: RepackРазработчик: imaginarylabЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E9733D31812275D805EA1AB228A31640136D2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871876   (1069853) от 
+
+The Midnight Walk (2025) [Ru/Multi] (1.0004) License GOG [VR]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте The Midnight Walk, новое инди-приключение от авторов Lost in Random. Подружитесь с одиноким фонарем и осветите себе путь по чудесному и ужасному миру. Обхитрите монстров и изучите жуткие детали ландшафта, созданного вручную из настоящей глины и анимированного покадрово.Тип издания: LicenseРазработчик: MoonHoodЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D4E0E70874655BD8786ED92EFCBB7E72770256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870247   (1068628) от 
+
+GYLT (2023) [Ru/Multi] (2026) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Воплощайте страхи… Бойтесь воплощений. GYLT - мрачная история о том, как фантазии и реальность переплетаются в странном печальном мире, способном воплотить наяву ваши кошмары. Прячьтесь от страшных существ или сражайтесь с ними, чтобы преодолеть испытания этого жуткого мира. GYLT - это повествовательное приключение, сочетающее головоломки, стелс и экшен. События (   Читать дальше...   )Тип издания: LicenseРазработчик: Tequila WorksЖанр: Приключенческие игры, платформерыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E7FE1FF798CB05871B9EDB66E95DC054EB1802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869536   (1068428) от 06.05.2026
 
 An English Haunting (2024) [Ru/Multi] (3.6.0.54) Repack Let'sРlay
@@ -7,7 +111,7 @@ An English Haunting (2024) [Ru/Multi] (3.6.0.54) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +137,7 @@ The Dark Rites of Arkham (2026) [Ru/Multi] (3.6.1.34) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Nightmare Frames (2022) [Ru/Multi] (3.5.1.19) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Demonologist (2023) [Ru/Multi] (2.0.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ The Council - Complete Season (2018) [Ru/Multi] (0.9.5.6359) License GOG [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +241,7 @@ The Long Dark (2017) [Ru/Multi] (2.52 Build 179852/dlc) Repack FitGirl [Quiet Ap
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (1.1.2.0/dlc) Repack Let'sРlay [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Possessor(s) (2025) [Ru/Multi] (v1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Other s [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack HardwareMini
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +397,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack seleZen [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Neva (2024) [Ru/Multi] (1.2/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +449,7 @@ Resident Evil Requiem (2026) [Ru/Multi] (Build 22277314/dlc) Repack FitGirl [Del
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +475,7 @@ Marshmallow All the Way Home (2025) [Multi] (1.0.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +501,7 @@ Total Chaos (2025) [Ru/Multi] (1.0.231) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +527,7 @@ Tormented Souls II (2) (2025) [Ru/Multi] (1.4.3/dlc) License GOG [Digital Deluxe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Hail to the Rainbow (2025) [Ru/Multi] (0.51) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +579,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (3.0.2) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Tasomachi: Behind the Twilight (2021) [Multi] (20220419/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Duke Grabowski, Mighty Swashbuckler (2016) [Ru/Multi] (1.1.0.15) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Umigari (2026) [Ru/Multi] (1.6.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Umigari - это рыболовная игра от первого лица с �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47892BD2B9A1AAE12A2A96056039F756A3A2AEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859281   (1060797) от 15.03.2026
-
-Millennium Dream (2026) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Millennium Dream - это разработанный одним человеком симулятор ходьбы и фотографии, в основе которого лежит эстетика «китайского дримкора» (Chinese Dreamcore). Вы погрузитесь в тщательно выстроенные сны о былых днях... Вздремнуть в своей кровати ленивым, залитым солнцем полднем; пройтись по пешеходной улице, где когда-то после школы вы гуляли с мамой и где до сих (   Читать дальше...   )Тип издания: RepackРазработчик: LucidDreamLabЖанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: Китайский (упрощенный, традиционный)Язык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CEDFD833C14E705B589CC51F4D4C822FB5798FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858938   (1060786) от 13.03.2026
-
-Legends of Savvarah: Flowers and Scorpions (2026) [Ru/En] (Build 21632093) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никария - агент Чазира, слуга таинственного бога Дадара, которая после мистического ритуала перестала быть человеком. Теперь все ее тело - это оружие. Оружие, в руках Дадара. У нее нет моральных преград. Цель оправдывает любые средства, а воля Дадара выше всякого закона. Чазир направляет Никарию в другую страну в качестве шпиона. Ей предстоит встретиться с другими (   Читать дальше...   )Тип издания: RepackРазработчик: ST SinovarЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44BCC17F1C6E68BCC474B7B63CED0C92EA15928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858866   (1060684) от 13.03.2026
-
-Lizards Must Die 2 / Русы против ящеров 2 (2025) [Ru/Multi] (3.0 build 21763011/dlc) Repack dixen18
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русы против ящеров 2 – это кооперативный слешер-экшен от легендарной команды theBratans, они же Smola Games, разработчика франшизы "Русы против ящеров". Заслуженно отмеченная наградами франшиза возвращается с новой, революционной главой. Мерзкие ящеры, подгоняемые своими тайными покровителями, получили новые ящерские технологии и вновь коварно напали на (   Читать дальше...   )Тип издания: RepackРазработчик: the Bratans, Smola Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, Английский, Китайский (упрощенный)Язык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1451AAB65341CA728CDFBE1322BE437365A480F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858869   (1060682) от 13.03.2026
-
-Out of Sight (2025) [Ru/Multi] (1.1.93/dlc) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Out of Sight - атмосферный хоррор, сочетающий перспективу от первого и второго лица с леденящей душу озвучкой. Попробуйте пережить это жуткое эмоциональное путешествие. Мир с новой точки зрения. Обретя зрение благодаря любимому Тедди, Софи понимает, что должна найти выход, пока не стало слишком поздно. Опасность подстерегает за каждым углом - один неверный шаг, скрипящая (   Читать дальше...   )Тип издания: RepackРазработчик: The GangЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC0EA483E3812812491131DED0F5C7D302FB216
 ```
 
 https://mybot314.ru/tekegram_catalog/

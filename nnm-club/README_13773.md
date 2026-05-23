@@ -1,25 +1,22 @@
-###  Публикация: 936161   (496397) от 11.09.2015
+###  Публикация: 1317703   (499629) от 02.08.2019
 
-JUNCTION PROJECT - 3 альбома (2010-2012) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+Проданный смех (1981) DVDRip
 
->>East Asian Music
->>Doujin Music (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы в раздаче
-2010.03.14 BLACKΩHOLE (Reitaisai 7)
-2010.08.14 RED ROSE (C78)
-2012.05.27 Futatsuiwa Daimyoujin (Reitaisai 9)Тип издания: DoujinЖанр: ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:01:24:41
+После смерти отца Тим Талер, добрый и веселый мальчик, остается со скупой мачехой. Он продает свой смех злому волшебнику в обмен на способность выигрывать любые пари. Но без улыбки и смеха, оказывается, не может быть счастья. Тогда Тим пускается в опасное путешествие, чтобы вернуть смех…Производство: СССРЖанр: мюзикл, фэнтези, приключения, семейныйРежиссер: Леонид НечаевАктеры: Павел Кадочников, Саша Продан, Женя Григорьева, Настя Нечаева, Вадим Белевцев, Наталья Гундарева, Екатерина Васильева, Надежда Румянцева, Юрий Катин-Ярцев, Гасан Мамедов, Анатолий Галевский, Игорь Дмитриев, Борислав Брондуков, Федор НикитинПродолжительность: 02:10:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F95E558FC93ED72CA835CF8C5EB69A2E46F3060B
+magnet:?xt=urn:btih:C531B5483071937AB805E4FD94CA9BC64D4C6CE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936160   (496396) от 11.09.2015
+###  Публикация: 1317521   (499628) от 02.08.2019
 
-JOYH-TV — Triple Time Arranges (2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+Г. Розе | Прогресс без социальной революции? [Теории «модернизации» и буржуазные социальные науки] (1985) [DJVU, PDF]
 
->>East Asian Music
->>Doujin Music (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-[05:06] 01. JOYH-TV - 砕月
-[04:42] 02. JOYH-TV - 竹取飛翔
-[06:35] 03. JOYH-TV - フラワリングナイト
-[03:03] 04. JOYH-TV - 懐かしき東方の血(   Читать дальше...   )Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:51:40
+В книге дается критический анализ буржуазных теорий «модернизации», указывается их место в системе современной буржуазной идеологии, рассматривается взаимосвязь с концепцией «индустриального общества», их влияние на развитие буржуазной общественной теории в целом. Автор раскрывает взгляды таких представителей теорий «модернизации», как Г.-У. Велер, А. Гершенкрон, (   Читать дальше...   )Жанр: История, политология, публицистика, социологияФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC3F18D88C632738B74D26751B21479263CD91D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936171   (496395) от 11.09.2015
+###  Публикация: 1317526   (499627) от 02.08.2019
 
-KARMART - 9 альбомов (2008-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+А. Калыгина | Крестьянка и Восьмое марта (1926) [DJVU]
 
->>East Asian Music
->>Doujin Music (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы в раздаче
-2009.10.11 (KMCD-0011) Amaryllis (Kouroumu 5)
-2010.03.14 (KMCD-0013) Kachou Fuugetsu (Reitaisai 7)
-2010.08.14 (KMCD-0014) K'style #1 (C78)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:04:51:11
+Международный женский день — праздник не одних только женщин. Это — праздник трудящихся всего мира. Ибо в этот день в ряды пролетариата вливаются новые массы пробужденных к сознательной жизни работниц и крестьянок, идущих к борьбе за общее дело. 8 марта — день протеста организованных трудящихся женских масс против господства буржуазии, день подсчета своих сил к предстоящей (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A29B370A58A447EC0C25EC54DA35D254A14D5E4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,143 +76,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936452   (496394) от 11.09.2015
+###  Публикация: 1317643   (499626) от 02.08.2019
 
-Otis Waygood Blues Band - Otis Waygood Blues Band (1970) /2000, Fresh Music/ [FLAC|tracks+.cue]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Late Miss Kate (Davenport, Hitzfield) 02:09
-02. Watch 'n Chain (trad arr: Otis Waygood) 04:37
-03. So Many Ways (Rob Zipper) 03:55
-04. I Can't Keep From Crying (John Renbourne) 06:14(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7BF831C364E6660EAD08692B81914E661A70F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936401   (496393) от 11.09.2015
-
-Ольга Клюкина | Святые в истории. Жития святых в новом формате. VIII-XI века (2015) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496393.jpg" />
-</div>
-
-
-###  Подробнее
-
-От производителя
-Что это за книга?
-Третья книга серии охватывает период VIII- XI веков. В VIII веке Восточная Церковь столкнулась с ересью иконоборчества. Это противостояние, длившееся почти полтора столетия, способствовало не только развитию богословской мысли в Византии, но и появлению новых святых, отстаивавших чистоту веры. Укоренившись на территории Римской (   Читать дальше...   )Жанр: ЖитияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168481A60E554E457CC6F78F77A4BD1C845200E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936154   (496392) от 11.09.2015
-
-Iris Drop — HIMAWARI FIRE!! (2012) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496392.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:27] 01. 山吹タカ - CASKET DANCE
-[03:21] 02. 山吹タカ - POWER OF THE SCARLET
-[05:03] 03. 山吹タカ - LIGHT THE SAINT
-[04:46] 04. 山吹タカ - FLOWER & SOUL(   Читать дальше...   )Тип издания: DoujinЖанр: J-RockФормат: Touhou VocalПродолжительность: 00:00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8AAD51E6C1216B0AC0F97D83D184A3BF282EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936270   (496391) от 11.09.2015
-
-Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock, Melodic rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Did The Music Go
-02. You're Making Me Live Again
-03. The Storm
-04. In Dreams(   Читать дальше...   )Жанр: Symphonic rock, Alternative rock, Melodic rockПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8172D62C3A6B551CF20064E9E57433C702EC17A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936319   (496390) от 11.09.2015
-
-Виктор Каннинг | Венецианская птица. Королек. Секреты Рейнбердов (2015) [FB2, EPUB]
+Q-Dir 7.72 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-«Венецианская птица».
-К частному детективу Эдварду Мерсеру обращается американский миллионер с просьбой найти в Венеции некоего художника. Мерсер узнает, что художник давно мертв, а человек, сообщивший ему об этом, погибает. А вскоре на частного детектива начинают охоту те, кто не хочет, чтобы правда об их смерти выплыла наружу…
-
-«Королек».(   Читать дальше...   )Жанр: Классические детективы, Английские детективыПеревод: А. К. Андреев, Игорь Моничев, Л. Г. МордуховичФормат: FB2, EPUB
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8B7C0A2349E6BBEC0B633DBC28CAC85A3842AED
+magnet:?xt=urn:btih:681B005061EE2D326CF3FD81DA71956B31D7C5A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,83 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936157   (496389) от 11.09.2015
+###  Публикация: 1317683   (499625) от 02.08.2019
 
-J&B - 11 альбомов (2007-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Rock, J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2011.08.13 (JBCD-0010) Otomegokoro Egoism (C80)
-2011.10.16 Mahou no nai Sekai (Kouroumu 7)
-2011.12.30 (JBCD-0011) Omoide Sunset (C81)Тип издания: DoujinЖанр: J-Rock, J-MetalФормат: Touhou Vocal, InstrumentalПродолжительность: 00:05:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F120D979D34720BA657B1A979A1AEAC13B4905CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936177   (496388) от 11.09.2015
-
-Kota-rocK - 6 альбомов (2006-2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2008.12.29 (TOKO-0004) Kaze no Onkai ~Boss-hen~ (C75)
-2009.08.15 (TOKO-0005) Birth of Fire before (C76)
-2009.12.30 (TOKO-0006) Ghost dignity (C77)Тип издания: DoujinЖанр: J-MetalФормат: Touhou Vocal, InstrumentalПродолжительность: 00:04:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38AB9966BA38AEC2648BC9242509ED479421F6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936038   (496387) от 11.09.2015
-
-Журнал | Вяжем крючком №9 (сентябрь 2015) [PDF]
+Газета | Сезон у дачи №13(290) (Июль 2019) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Популярный журнал по вязанию спицами и крючком для начинающих и мастеров. В номере красивые модели осеннего трикотажа: комбинезоны, платья, болеро, нооски и другое. Для каждой модели есть схемы вязания.Жанр: Вязание, РукоделиеФормат: PDF
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A9CC375730ADD2F412F9548CC6BAD12B31D854
+magnet:?xt=urn:btih:26D21899269545D870FB4207CC4693A46C47D54C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,28 +129,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936175   (496386) от 11.09.2015
+###  Публикация: 1317664   (499624) от 02.08.2019
 
-Knights of Round - 4 альбома (2007-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <J-Metal, Electronic>
+студия Диафильм | Люсик Лисинова (1959) [JPG]
 
->>East Asian Music
->>Doujin Music (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
-Альбомы в раздаче
-2008.12.29 (KNTS-0002) Knights of Round 2 (C75)
-2009.12.30 (KNTS-0003) Knights of Round 3 (C77)
-2010.08.14 (KNTS-0004) Knights of Round 4 (C78)Тип издания: DoujinЖанр: J-Metal, ElectronicФормат: Touhou InstrumentalПродолжительность: 00:04:10:33
+Октябрьская революция 1917 года.
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:025A40A5FD33ADFBEAEA02A1F80418F4658BD334
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,28 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936016   (496385) от 11.09.2015
+###  Публикация: 1317636   (499623) от 02.08.2019
 
-Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
+BurnAware Professional 12.5 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496385.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. The Calling
-02. The Mechanic
-03. The Spark
-04. Hopes And Dreams(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:23
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FE641326A93088A3390D44DFEB168E0ABE587FC
+magnet:?xt=urn:btih:DCD17DDD2368575D73AE756EAC5976BA7E245EFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,28 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 935944   (496384) от 11.09.2015
+###  Публикация: 1317647   (499622) от 02.08.2019
 
-Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
+Tipard Total Media Converter 9.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-A1	Всичко Се Люлее (Everything Swing)
-A2	Лейди Роуз (Lady Rose)
-A3	Жената, Облечена В Черно (The Woman Dressed In Black)
-A4	Блус За Залива Сан Франциско (A Blues For The San Francisco Bay)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:57
+Tipard Total Media Converter - простая в использовании программа, позволяющая быстро и качественно преобразовать видео DVD и любые фильмы в различные форматы (MPEG-4, H.264/MPEG-4, AVC, MOV, M4V, AVI, DivX, XviD, ASF, WMV, MPEG-1, MPEG-2, 3GP, 3GPP, MKV, FLV, SWF, VOB и др.), а также дает возможность извлекать аудио-дорожки и конвертировать их в M4A, MP3, AC3, AAC, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5FFEF3FB9080A47E408374A3E2A816C4A9DBF525
+magnet:?xt=urn:btih:5F659769AF8D81528B6AA24122DC7665D373E7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,28 +208,93 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936145   (496383) от 11.09.2015
+###  Публикация: 1317519   (499621) от 02.08.2019
 
-VA - Strange-Eyed Constellations (2015) [FLAC|Lossless]<Psychill, Ambient, Downtempo>
+П. И. Остриков (ред.) | Сборник документов по истории рабочего и социалистического движения стран Европы и США (1985) [DJVU, PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В пособии собраны преимущественно документы официального характера, прежде всего программы, декларации, уставы социалистических партий и рабочих организаций стран Европы и США, решения партийных съездов и конференций по коренным вопросам стратегии и тактики в период с 1870 по 1914 г. Документы показывают положение рабочего класса, уровень стачечного движения в отдельных (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541544   (499617) от 02.09.2012
+
+VA - Территория Русских Новинок (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Ring Girls - Танцуй Для Меня
+002. Couple - Дым
+003. Весна - Море дышит
+004. Ирина Билык - Моя любовь, как ягода
+005. Дима Билан - Так Не Бывает
+006. Алёна Свиридова - Се Ля Ви
+007. Ваня Чебанов - Найду!
+008. Карина Кокс - Все решено
+009. Aslan Feat. Misty - Знаю, Знаю
+010. Dan Balan - До Утра (Andry Makarov Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2326AEE87B8C79FA0391A919BC007F79D603035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541533   (499616) от 02.09.2012
+
+Sarva Antah - Mantras & Rituals (2009) [MP3|128-320 кб/с]<World, Meditative, Mantras>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. AstroPilot - Dum Spíro, Spéro (5:37)
-02. Dr trippy - Sirens Of Lorelei (4:46)
-03. 100th Monkey - The Inuit Snow Song (Icescape Secret Beats Remix) (6:14)
-04. Radium88 - The Future's Bright, The Future's Incandescent (6:21)(   Читать дальше...   )Жанр: Psychill, Ambient, DowntempoПродолжительность: 01:10:58
+(11:00) 1. The Eight Offerings (To Buddha)
+(05:56) 2. Om Vajrasattva Hum (Om Benza Satto Hum)
+(09:57) 3. Om Namo Manjushriye
+(08:58) 4. Mama Kara Ye Svaha (Mama Kara Ye Soha)
+(03:29) 5. Heart Mantra (Om Agani)
+(07:26) 6. Namo Mati Gana Ja
+(05:23) 7. Om Sambhara
+(08:31) 8. Om SarveshamЖанр: World, Meditative, MantrasПродолжительность: 01:00:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34FE0DA4ACCD5E67E3FC77E3979CF49F5A005AB6
+magnet:?xt=urn:btih:BB8B6B8173FD35AAC0143109D8814DE5D42FA42E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,25 +302,121 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936251   (496382) от 11.09.2015
+###  Публикация: 542271   (499615) от 02.09.2012
 
-BurnAware Professional 8.4 Final RePack (& Portable) by elchupacabra [Ru/En]
+VA - Soul of Ibiza Volume 43 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & J'Something - Over The Rainbow (Extended Mix)
+002. Evol Waves - Evolver
+003. Gareth Emery feat. Christina Novelli - Concrete Angel (John O'Callaghan Remix)
+004. Giuseppe Ottaviani & Betsie Larkin - Toys (Club Mix)
+005. James Dymond - Sunset Bench (Original Mix)
+006. Johan Vilborg - Altara (Original Mix)
+007. John '00' Fleming - The 10th Life
+008. Jon Oґbir feat. Julie Harrington - Perfect As You Are (Marcus Schossow Remix)
+009. Julian Vincent & Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
+010. Lange & Audrey Gallagher - Our Way Home (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F496A95CE35EA9F3A5FA597650489ED4212B010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542287   (499613) от 02.09.2012
+
+VA - 538 Dance Smash Vol.4 (2012) [MP3|320 кб/с]<Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack - Rock The House
+ 02. Usher - Scream
+ 03. Otto Knows - Million Voices
+ 04. Alex Kenji & Ron Carroll - Good Time (A-Lab Radio Edit)
+ 05. Sander van Doorn & Mayaeni - Nothing Inside
+ 06. Cash Cash - Michael Jackson (The Beat Goes On)
+ 07. Asaf Avidan - One Day / Reckoning Song (Wankelmut Remix)
+ 08. Mark Knight - Alright
+ 09. Nicki Minaj - Starships
+ 10. Basto - I Rave You (Give It To Me)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5401D9B8981F43B98B4DAE67140D700E0E0203F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542384   (499612) от 02.09.2012
+
+Газета | 1000 секретов [Украина] №17 (54) [сентябрь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"1000 секретов" - народная газета, которая будет полезна каждому без исключения. Она содержит по несколько полос из каждой области человеческой жизни: воспитание детей, кулинария, здоровье, строительство и ремонт, сад и огород, умелые руки, дизайн, физическое развитие, психологические и юридические консультации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B028891FACFBAC3F9AA58FC6B531A2866D07FA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542435   (499611) от 02.09.2012
+
+Наука 2.0.Технологии спорта. Ралли – автогонки на льду (2012) SATRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Есть ли предел человеческих возможностей? Нет, когда в спорт приходят высокие технологии. Умные ткани предохраняют организм от перегрева, мяч со встроенной системой GPS сигнализирует о нарушении правил, уникальные камеры, которыми снимали "Аватар", помогают подобрать идеальную ракетку.Жанр: ДокументальныйПродолжительность: 00:25:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C53B456BF179ADB02ABEBCFEF1EBBFDF5CCE1805
+magnet:?xt=urn:btih:3FF24085D7E4F5EC153AC7FCC25945EA736F0AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,108 +424,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936337   (496381) от 11.09.2015
+###  Публикация: 542544   (499610) от 02.09.2012
 
-John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother In Law Blues (03:12)
-02. The River's Invitation (03:47)
-03. Ain't No Guarantees (03:24)
-04. I Feel So Bad (04:20)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85E897BD14CEAFBC9315A3ED5B13EDAB7803A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053501   (496380) от 18.09.2016
-
-Призраки опиума / Cookers (2001) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гектор - отпетый уголовник, убийца и наркоман - решает начать свой преступный бизнес. Обосновавшись в старом, заброшенном доме вместе со своей подругой Дориной, он создает лабораторию по производству нового наркотика, имеющего, помимо прочего, сильные галлюциногенные свойства. Пребывая в полнейшей изоляции от внешнего мира, круглые сутки вдыхая пары создаваемого (   Читать дальше...   )Производство: США, Pacesetter Productions InternationalЖанр: Ужасы, ДрамаРежиссер: Дэн МинтцАктеры: Брэд Хант, Сийя Баттен, Патрик МакГоу, Эшли Энн ЛаПен, Фрэнки РэйПеревод: Двуголосый закадровыйПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539F0470DB2DA64335CA1EDA48DF767B5CA4D4F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053766   (496379) от 18.09.2016
-
-НашПотребНадзор. Не дай себя обмануть! (2016.09.18) SATRip
-
->>Документалистика и Телепередачи
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели нового потребительского проекта «НашПотребНадзор» проведут журналистские расследования на волнующие каждого зрителя темы, в деталях расскажут, как не попасться на уловки мошенников, обличат виновных и на ярких примерах объяснят, как отличить качественное от низкосортного.
-Для того чтобы максимально полно и объективно раскрыть тему каждого выпуска и защитить (   Читать дальше...   )Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF45BA21147CCA830C7AF32C33F5BC283450F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053763   (496378) от 18.09.2016
-
-Варкрафт / Warcraft  (2016) BDRip [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+Просто, как смерть / Dead Easy (2004) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побежденное и забытое тысячелетия назад, пробудилось.
-В самом сердце королевства открылся темный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: Китай, Канада, Япония, СШАЖанр: фэнтези, боевик, приключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Пола Пэттон, Бен Фостер, Доминик Купер, Тоби Кеббелл, Бен Шнетцер, Роберт Казински, Клэнси Браун, Дэниэл Ву, Рут Негга, Анна Галвин, Каллум Кит РенниПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, португальский, испанскийПродолжительность: 02:03:07
+Чтобы добиться развода с женой, успешный бизнесмен Саймон Сторм, оплатив услуги, получает доказательства ее неверности. Простая задача, казалось бы, решена.
+
+Но он ошибся! Ничто не достается просто, если замешаны большие деньги. Теперь Саймон готов заплатить даже за убийство, не понимая, что это уже совсемдругая игра! И сможет ли он диктовать условия сделки, когда заказана чья-то смерть?!Жанр: ТриллерРежиссер: Нил СандстромАктеры: Ричард Греко, Танди Пурен, Джоанна Пакула, Рон Смержак, Рассел Савадье, Лэнгли Кирквуд, Брэндан Полекатт, Камилла Уолдман, Грегг Вилджоен, Роланда МареПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:36:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7ECF7216C7C2F2166024A2B17428CBECFDDE4176
+magnet:?xt=urn:btih:FF17D19BBDC4EB193E655ED5616B1765E7AF27ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,21 +452,89 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053761   (496377) от 18.09.2016
+###  Публикация: 542192   (499609) от 02.09.2012
 
-Первая передача на НТВ. Автомобильная передача (18.09.2016) SATRip (выпуск 261)
+Детективы Агаты Кристи: Убийство в трех актах / Murder in Three Acts (1986) DVDRip
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_496377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:33:05
+В Акапулько, в замке экстравагантного и гостеприимного хозяина — миллионера, происходит светский раут. Гостям, элегантным дамам и господам, среди которых — сам Эркюль Пуаро, предлагают перед трапезой прохладительный коктейль. В один из бокалов подмешан яд…Жанр: Драма, Криминал, ДетективРежиссер: Гэри НельсонАктеры: Питер Устинов, Тони Кертис, Эмма Сэммс, Джонатан Сесил, Фернандо Альенде, Педро Армендарис мл., Лиза Айкхорн, Дэна Элкар, Фрэнсис Ли МакКейн, Мэриан МерсерПеревод: ДублированныйПродолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F3258265123BDAA4C229890E15EE137CB9FD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539504   (499608) от 02.09.2012
+
+TrollfesT - Brumlebassen (2012) [MP3|320 кб/с]<Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Brumlebassen (05:38)
+02. Böse Tivoli (04:07)
+03. Illsint (03:06)
+04: Hevlette (01:48)
+05. Finsken, Norsken And Presten (04:31)
+06. Mystisk Maskert (01:45)
+07. Apis Mellifera (04:33)
+08. TrinkenTroll (03:09)
+09. Verboten Kjærleik (04:04)
+10. Bråk (04:12)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A459FEF7770C1E1C596DD77F3990B49E1CD6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542323   (499607) от 02.09.2012
+
+Lunar Aurora - Hoagascht (2012) [WavPack|Lossless]<Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Im Gartn (6:59)
+02. Nachteule (6:53)
+03. Sterna (6:30)
+04. Beagliachda (5:42)
+05. Håbergoaß (5:14)
+06. Wedaleichtn (6:13)
+07. Geisterwoid (6:06)
+08. Reng (7:32)Жанр: Atmospheric Black MetalПродолжительность: 00:51:08
 
 ## Скачать торент
 ```bash
@@ -590,25 +546,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053925   (496376) от 18.09.2016
+###  Публикация: 540954   (499606) от 02.09.2012
 
-Папашина армия / Dad's Army (2016) Blu-ray [H.264/1080p]
+Butterfly - Trance Life Radio Podcast 002 (August 2012) (Guest Stan Sanych) (28.08.2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, Vocal Trance>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Англия. Вторая мировая война. Журналистка для освещения военных действий отправляется в прибрежный город, где располагается взвод, охраняющий побережье….Производство: ВеликобританияЖанр: Комедия, ВоенныйРежиссер: Оливер ПаркерАктеры: Кэтрин Зета-Джонс, Билл Найи, Майкл Гэмбон, Тоби Джонс, Сара Ланкашир, Марк Гейтисс, Дэниэл Мейс, Элисон Стэдмен, Том Кортни, Блейк ХаррисонПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, английский, болгарский, китайский, хорватский, чешский, эстонский, греческий, иврит, венгерский, индонезийский, корейский, латышский, литовский, польский, португальский, румынский, словенский, испанский, тайский, турецкий, украинскийПродолжительность: 01:39:53
+Pre-party Live Mix:
+01. Glenn Morrison -  Triangle & Strings (Tom Middleton Remix)
+02. Aleksey Beloozerov -  For Those Who Sleeps (The Fusion Remix)
+03. Davor Bojanov -  Abstract (Original Mix)
+04. Rank 1 -  Opus 17 (Nuera 2012 Remix)
+05. EDX feat. Hadley -  Everything (Dub Mix)
+06. Kastis Torrau & Arnas D -  Atlantic (Original Mix)
+07. Gregory Esayan & Shinobi -  Astro Ibiza (Original Mix)
+08. Internos feat. Tiff Lacey -  Hidden Sorcery (Matrick Remix)
+09. Glenn Morrison -  Transparent Road (Original Mix)Жанр: Progressive House, Progressive Trance, Vocal TranceПродолжительность: 03:56:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7EBF1E43795C1D623FE6219CFE29B046DA1E26B
+magnet:?xt=urn:btih:54106EAB4BEDB4B4FB63730BD29E45151EEE68AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,25 +581,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053177   (496375) от 18.09.2016
+###  Публикация: 542003   (499605) от 02.09.2012
 
-Друг Вокруг 2.3.4 [Multi/Ru]
+Журнал | Кулинарный практикум №7 [июль 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Практичный журнал для современных хозяек, который служит надежным источником полезной и практичной информации о продуктах питания и способах приготовления вкусной и здоровой пищи. Он знакомит читателя с новинками бытовой техники и продуктов питания; раскрывает секреты здорового питания и рецепты от звезд кино, телевидения и шоу-бизнеса. Множество разнотиповых подробных рецептов с красочными фотографиями, указанием калорийности, количества персон, затрат времени на приготовление.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4665B5FCAFA43D7EB5A61E60B53170CDB0A5058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542211   (499602) от 02.09.2012
+
+Журнал | Загадки истории №7 [2012] [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C5A6FB38F2B0FC10452568499222453CAD7518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542295   (499601) от 02.09.2012
+
+VA - Top 50 Club Hits September (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Vivo feat. Orel - Bitchy Girl (Extended Edit)
+02. DJ MaGnUm & DJ Lion feat. K-Flow - Party People (Radio Edit)
+03. Christopher S & Slin Project feat. Tommy Clint - Tear Down The Club (Extended Mix)
+04. Jeronimo - One Kiss (CJ Stone & ReFuge Radio)
+05. DJ Yankovski & InVersia - Football (Spain Version)
+06. D. O. N. S. & Mikael Weeremts feat. Kadoc - The Nighttrain 2k12 (Jidax Remix)
+07. Dutch Agency feat. Antoine Delvig & Yulya - I Wanna Kiss You (Radio Edit)
+08. Dave202 vs. Cerf Mitiska Jaren - Arrival vs. Beggin You (Armin Van Buuren Mashup)
+09. Gary Caos - Specialize In Love (Radio Edit)
+10. Digital LAB & Pedro Henriques ft Polina - Spirit in My Life (Original Mix)Жанр: Dance, ClubПродолжительность: 04:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035ACA2FF442527907ABD206C2697CF7D78A6D8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564627   (499600) от 19.07.2022
+
+Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shimashita | Меня выгнали из гильдии героев [2021, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Хосино МакотоПеревод: Wakanim (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2838DAC988AA1C624DC18F196C2656AFFE7F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564648   (499599) от 19.07.2022
+
+MusicBrainz Picard 2.8.2 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В ДругВокруг ты можешь удобно общаться с друзьями, выражать свои эмоции смайликами и дарить подарки. Любопытным ДругВокруг покажет, кто сейчас находится рядом. А если вдруг станет скучно - можно написать в "Прямой эфир" и найти новых друзей.Язык интерфейса: Русский Английский и др.
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89DE0812B866B1D381265172B893A66B18377296
+magnet:?xt=urn:btih:22C2A61D9E42A8FC93C5B87D63FE8BC7AC8027AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,79 +721,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053816   (496374) от 18.09.2016
+###  Публикация: 1564625   (499598) от 19.07.2022
 
-Книга судеб / Kohtalon kirja (2003) DVDRip
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_496374.jpg" />
-</div>
-
-
-###  Подробнее
-
-В давние времена в далеком неведомом мире существовала великая Книга Судеб. Ей подчинялась жизнь всего сущего, но жалкие смертные возжелали обрести власть над своей судьбой. Вскоре мир погрузился в пучину бед и мрака, и Книга бесследно исчезла… Спустя века трансильванский священник Виктор находит роковой фолиант, не ведая, что она изменит его жизнь и все его грядущие (   Читать дальше...   )Производство: Финляндия, Timeless filmsЖанр: Ужасы, Фантастика, БоевикРежиссер: Томми Лепола, Теро МолинАктеры: Юха-Пекка Миккола, Йоханна Кокко, Микко Ноусиайнен, Веса Виерикко, Сантери Киннунен, Каролиина Блэкберн, Эйла Ройне, Эско РойнеПеревод: Двуголосый закадровыйПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052177   (496373) от 18.09.2016
-
-Стивен Кинг | 1408 (2016) [MP3]
+Джеральд Даррелл | Переход (2020) [MP3, Puffin Cafe]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Предисловие С. Кинга:
-"Каждый писатель, работающий в жанре «ужастиков», должен написать как минимум по одному рассказу, как о похоронах заживо, так и о Комнате Призраков в Гостинице. Это моя версия последнего рассказа. Необычность его состоит в том, что я не собирался доводить его до логического завершения. Написал три или четыре страницы в качестве части приложения (   Читать дальше...   )Жанр: мистика, фантастика, ужасыПродолжительность: 01:28:50
+Однажды к известному букинисту Питеру Леттингу обращается молодой человек с просьбой провести каталогизацию своей домашней библиотеки. Вскоре Питер и Гидеон (так зовут молодого человека) становятся довольно близкими друзьями. Но у Гидеона есть семейная тайна, в которой фигурируют его старый дядюшка и... зеркала. Зеркала, развешанные в большом доме дядюшки, скрывают (   Читать дальше...   )Жанр: МистикаПродолжительность: 02:07:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F07368D31DFD9EF6E4B0C4F48F534E672EB4BF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053967   (496372) от 18.09.2016
-
-Проекты - VideoHive - Fine Portraits [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6756A306D5101C131A1B734E871E6EC2FBF7CF9C
+magnet:?xt=urn:btih:43640A133C95335E9E6D2646091E7FC5EC370B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

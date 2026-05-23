@@ -1,3 +1,111 @@
+###  Публикация: 1616049   (1036975) от 28.02.2023
+
+Cuckoo no Iinazuke | A Couple of Cuckoos | Обручённые кукушками [2022, TV, 24 эп. + 22 SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Наги и Эрика — обычные школьники с необычными семейными проблемами. Наги внезапно узнал, что всю жизнь жил с неродными родителями из-за путаницы в роддоме. А родители Эрики хотят устроить ей договорной брак с незнакомым человеком. Чтобы выпутаться из сложной ситуации, Эрика просит Наги притвориться её парнем. Но они оба пока даже не догадываются, какую шутку вот-вот (   Читать дальше...   )Жанр: комедия, романтика, повседневностьРежиссер: Акаги ХироакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E3DAD170ED285B8EB9C439511B4106954096FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600173   (1036652) от 01.03.2023
+
+Futoku no Guild / Immoral Guild / Развращённая гильдия [2022, TV, 12] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Кикуру Мадан — молодой охотник на монстров, который решает покинуть гильдию из-за страха, что радости юности проходят мимо. Особенно когда один из его близких друзей объявляет о женитьбе. Однако он меняет своё решение после предложения сотрудницы гильдии отправиться на квест вместе с новобранцем, молодой зверо-девушкой и мастером боевых искусств по имени Хитаму Кян.Жанр: приключения, комедия, этти.Режиссер: Асаока ТакуяЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93222D8C542FAC1B60285B4A72DB15B51C7BC563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442857   (1036308) от 26.01.2021
+
+Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универсальная современная девyшка-кошка [1998, TV, 12 из 12 + 2 из 2] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение OAV-сериала.
+Семья Нацумэ воссоединяется, но их проблемы на этом не заканчиваются...
+В отличие от OAV, этот сериал гораздо больше времени посвящает школьной жизни Рюносукэ и взаимоотношениям его друзей и Нуку-Нуку.Производство: Ashi Productions / 葦プロダクションЖанр: приключения, комедияРежиссер: Фудзимото ЁситакаПеревод: Кампай-клуб (эпизоды 1-10), ZiK + hedgehog (эпизоды 11-12 и спешиалы)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 2 мин. + 2 спешиала по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7CB431363414FC5D60654A3BD3CCF20A43A18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442851   (1036298) от 26.01.2021
+
+Bannou Bunka Nekomusume | All Purpose Cultural Cat Girl Nuku Nuku | Универсальная современная девyшка-кошка [1992, OVA, 6 из 6] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Современная Япония.
+В семье Нацумэ поссорились родители - муж, гениальный изобретатель Нацумэ Кюсаку, и жена, Нацумэ Акико, наследница мега-концерна "Мисима". Чтобы не дать жене отнять у него сына, маленького Рюносукэ, Кюсаку похищает мальчика и свою последнюю разработку для концерна "Мисима" - модель боевого андроида.
+Для защиты Рюносукэ от происков (   Читать дальше...   )Производство: Studio Fantasia / スタジオ・ファンタジアЖанр: приключения, комедия, фантастика, мехаРежиссер: Исивата ЁсиоПеревод: ThraryЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C226B9C4CB181185E6D75D433B40931241DC9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442860   (1036282) от 26.01.2021
 
 Bannou Bunka Nekomusume Dash! | All Purpose Cultural Cat Girl Nuku-Nuku Dash | Универсальная современная девyшка-кошка. Вперед! [1998, OVA, 12 из 12] BDRip 1080p raw
@@ -6,7 +114,7 @@ Bannou Bunka Nekomusume Dash! | All Purpose Cultural Cat Girl Nuku-Nuku Dash | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +143,7 @@ Elf o Karu Mono-tachi II | Those Who Hunt Elves II | Те, кто охотятс
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +169,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +195,7 @@ Elf o Karu Mono-tachi | Those Who Hunt Elves | Те, кто охотятся н�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +222,7 @@ Maesetsu! Opening Act | Разогрев! [2020, TV, 12 из 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +248,7 @@ Show by Rock!! Mashumairesh!! | Рок-шоу! (2020) [2020, TV, 12] BDRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +274,7 @@ Sangatsu no Lion (2017) | March Comes In Like a Lion (2017) | Мартовски
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +300,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +326,7 @@ Sangatsu no Lion | March Comes in like a Lion | Мартовский лев [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +352,7 @@ Kanojo ga Flag o Oraretara | If Her Flag Breaks | Если бы я сломал 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +378,7 @@ Xanadu Dragonslayer Densetsu | Ксанаду: Легенда об истреб�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +406,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1] [2020, TV, 12 эп.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -324,7 +432,7 @@ Golden Kamuy OAD | Золотое божество OVA [2018, OVA, 4 эп.] DVDr
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +461,7 @@ Boruto: Naruto Next Generations / Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +487,7 @@ Yama no Susume: Next Summit | Encouragement of Climb: Next Summit | В горы 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +513,7 @@ Strange Dawn | Странный рассвет [2000, TV, 13] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +540,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +566,7 @@ Shironeko Project: Zero Chronicle | White Cat Project | Проект «Бела�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +592,7 @@ Shadowverse Flame | Поэзия теней [ТВ-2] [2022, TV, 50 эп. + SP] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +618,7 @@ Boruto: Naruto Next Generations | Боруто: Следующее поколе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +646,7 @@ Kumo no You ni Kaze no You ni | Like the Clouds, Like the Wind | Словно о
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +672,7 @@ Tondemo Skill de Isekai Hourou Meshi | Кулинарные скитания в 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,112 +683,6 @@ Tondemo Skill de Isekai Hourou Meshi | Кулинарные скитания в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3A4A3732768DB577B72CA9622DD7E58AB18B105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449354   (1030017) от 21.02.2021
-
-ACCA 13-ku Kansatsu-ka: Regards | АККА: Инспекция по 13 округам OVA [2020, OVA, 1 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство Дова, разделенное на 13 самостоятельных регионов, недавно отпраздновало 99-летие своего монарха. На территории Довы действуют всевозможные учреждения и службы, которые в свою очередь находятся под контролем мощной организации, известной как «АККА».
-
-Джин Отус — заместитель начальника одной из таких служб, инспекционного агентства, в наличии которого — (   Читать дальше...   )Производство: Япония / MadhouseЖанр: приключенияРежиссер: Нацумэ СингоПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 50 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0F6FD589B46D1AEB4AC36DFD5B0F63AA41A67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449332   (1029990) от 21.02.2021
-
-Tsuki wa Higashi ni Hi wa Nishi ni: Operation Sanctuary | Hani Hani ~Operation Sanctuary~ | Луна с востока, солнце с запада [2004, TV, 13 + 4 SP] DVDRip 476p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наоки с нетерпением ждал счастливого безмятежного учебного года в колледже Хасумидай Гакуэн в компании своей подружки детства Хонами и кузины Мацури. Однажды парень задремал на школьной крыше, и ему приснилось, будто на него падает девушка с крыльями ангела. Когда же он проснулся, то рядом оказалась незнакомка, по ошибке принявшая его за некоего Юсукэ. Как выяснилось, (   Читать дальше...   )Производство: Студия RadixЖанр: романтика, комедияРежиссер: Дзинно СёдзиПеревод: A.k.M.; КириллЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 15 мин. + 4 SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6382C31B7227C87A26EF420EFD9BBB61F48425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449268   (1029924) от 21.02.2021
-
-Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гоблины слывут лёгкой добычей не просто так — размерами, силой и умом они практически не отличаются от детей. Именно поэтому охота на них считается отличным способом набить руку в авантюрном деле. Этим и руководствуется Жрица, присоединяясь к отряду новичков, чтобы отправиться в пещеру гоблинов. Впрочем, вскоре новоиспечённые авантюристы осознают, как жестоко они (   Читать дальше...   )Производство: Студия White FoxЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCE8D3990DF90A43F0F92217BB7A63F210544EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449734   (1029732) от 22.02.2021
-
-Asobi Asobase | Asobi Asobase: Workshop of Fun | Давайте сыграем [2018, TV, 12+2SP+OVA] BDRip 1080 HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спортивная, но бестолковая школьница Ханако с крайне странным чувством стиля играет в игры с Оливией, переведённой из Америки. Жизнерадостность героинь раздражает Касуми. Её сестра вечно издевалась над девушкой за неумение играть в игры, и теперь она ненавидит их. Со временем становится ясно, что у Ханако большие проблемы с английским, однако Оливия ничем не может (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: комедия, повседневностьРежиссер: Киси СэйдзиПеревод: официальный (Crunchyroll); lukorepka (спешелы и ова)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, ДРУГИЕПродолжительность: 12 эп. по 25 мин. + 2SP + OVA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248AE0A2C4F14E8499BE602FBE5610EB1BE6CB4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

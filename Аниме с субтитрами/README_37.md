@@ -1,3 +1,107 @@
+###  Публикация: 1118405   (801537) от 21.05.2020
+
+Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала. [2016, TV, 12 + SP] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Савако Мачида по прозвищу Мисс Бернард – ленивая девушка, у которой есть благородное устремление стать начитанным человеком, однако для этого она не особо много читает. Манга-первоисточник представляет собой набор коротких бесед между Мисс Бернард и её друзьями, взаправдашними «книжными червями», о таких произведениях как Библия, «Поветь о доме Тайра», «Ружья, микробы (   Читать дальше...   )Производство: Студия Creators in Pack / クリエイターズインパックЖанр: комедияРежиссер: Хирасава ХисаёсиПеревод: Nika; Shaman Anime (спецвыпуск)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + SP по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C90FE932FBA06B44387775239504F8F2DEE3C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120407   (801234) от 01.04.2017
+
+Onigiri | Онигири [2016, TV, 13 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в мистической Японии, земле, заполненная мифическими существами японской легенды. Начав как одинокий Oni, игроки сражаются против злонамеренного влияния Kamikui. 8 персонажей, каждый со своей личностью и навыками, вступают в союз с игроком, чтобы помочь построить легенду и уничтожить зло. Вместе с ростом уровня крепнут и узы, связывающие (   Читать дальше...   )Производство: студия Pierrot PlusЖанр: комедия, пародияРежиссер: Ямамото ТакасиПеревод: I.D.A.Язык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA146C291552FA7B210CB223C7C1B8510699EC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120409   (801168) от 01.04.2017
+
+Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух в теле Пандоры | Пандора в багровой броне [2016, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нене Нанакороби, самая обычная девушка-киборг, переезжает в город-остров Кенанкл к своей тёте. Там она случайно знакомится с миллионершей-изобретательницей Делайлой Узал и её очаровательной, но сварливой напарницей Клэрион, которая тоже киборг, как и Нене. Сама Нене в восторге от того, что ей удалось завести друзей, однако Узал и Клэрион не так просты, да и остров (   Читать дальше...   )Производство: студия Studio GokumiЖанр: приключения, комедия, фантастикаРежиссер: Нава МунэнориПеревод: The Tide (T_T)Язык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EF961288B887255D8A5D0E4E71AF2B09EDD1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120824   (801132) от 01.04.2017
+
+Monster Strike / Монстр Страйк [2015, TV, 51 + 2 SP] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Рен Хомура возвращается на свое прежнее место жительства, но чувствует себя очень неуютно: у него нет воспоминаний о том, что он там жил. При ремонте смартфона ему втихаря устанавливают игру под названием «Monster Strike» и монстры буквально вылетают из смартфона и начинают сражаться на улицах. В изумлении наблюдая за сражением, Рен начинает вспоминать потерянные (   Читать дальше...   )Производство: Студия Studio Hibari / スタジオ雲雀Жанр: приключенияРежиссер: Итикава КадзуяПеревод: GeraldЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 51 эп. по 10 мин. + 2 SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F25437134978038AA5130301A46BA3AA141389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094608   (801121) от 01.04.2017
 
 Marginal #4 Kiss kara Tsukuru Big Bang / Маргинал №4 [2017, TV, 12] WEB-DLRip 720p raw
@@ -6,7 +110,7 @@ Marginal #4 Kiss kara Tsukuru Big Bang / Маргинал №4 [2017, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Yatogame-chan Kansatsu Nikki Sansatsume | Заметки Ятогамэ [ТВ-3]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Kitsune no Koe | Voice of Fox | Голос лисицы [2018, TV, 12] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Golden Kamuy | Золотой Камуй | Золотое божество [TB-1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Yuyushiki: Komarasetari, Komarasaretari / Формула жизни OVA [2017, O
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Hitoribocchi no Marumaru Seikatsu | Жизнь не в одиночку [2019, T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Ai Mai Mii: Surgical Friends / Ай Май Ми - 3 [2017, TV, 12] WEB-DLRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Ichigo Marshmallow | Strawberry Marshmallow | Клубничный зефир [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Kanamemo | Записки Каны [2009, TV, 13 эп.] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Itsudatte My Santa! | Навсегда мой Санта [2005, OVA, 2 эп.] DV
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +396,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Fragtime | Осколки времени [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Akiba's Trip The Animation / Виды Акибы [2017, TV, 13] HDTVRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +474,7 @@ ACCA 13-ku Kansatsu-ka / ACCA: 13-Territory Inspection Dept. / АККА: Деп�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Kuzu no Honkai / Scum's Wish / Тайные желания отвергнуты�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ The Gakuen Choujotai | Школа супер девушек [1991, OVA, 1 из 1
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ Osake wa Fuufu ni Natte kara | Супружеская пара и алкогол
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Nyanko Days / Кошачьи дни [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ Shouwa Genroku Rakugo Shinjuu: Sukeroku Futatabi Hen / Сквозь эпохи: 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +633,7 @@ Oira Sukeban / Delinquent in Drag / Задира Банджи [1992, OAV] DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +660,7 @@ Onihei / Онихей: Криминальные истории периода Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,112 +671,6 @@ Onihei / Онихей: Криминальные истории периода Э
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D98E449EC78921D9B585EDDC8F25056F574CE8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120395   (798809) от 05.04.2017
-
-Kiitarou Shounen no Youkai Enikki | Kiitaro's Yokai Picture Diary | Дневник ёкаев Китаро | Зарисовки юного Киитаро о ёкаях [2016, TV, 13 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой Киитаро имеет развитое шестое чувство, и из-за этого его постоянно окружают демоны. Да что там, он даже живёт вместе с домашним духом по имени Судзу, а вокруг них постоянно роятся всякие фольклорные персонажи вроде снегурки Юки Онны, демона-лизуна Аканамэ и Мокумокурена, который выглядит как глаз в дырке бумажной стены.
-
-© KG-PortalПроизводство: студия Creators in PackЖанр: комедия, повседневностьРежиссер: Хирасава ХисаёсиПеревод: YakuSub Studio (01-12) + Serick (13)Язык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C5BD3850FD5298F9E798140A7133D7384FE6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253529   (798614) от 04.01.2019
-
-Ulysses: Jeanne d'Arc to Renkin no Kishi / Ulysses: Jeanne d'Arc and the Alchemist Knight / Улисс: Жанна д'Арк и рыцарь-алхимик [2018, TV, 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается во Франции XV века во время Столетней войны. Сын дворянина по имени Монморенси учится в школе рыцарей, где с головой погружается в изучение магии и алхимии. Однако после разгрома французов англичанами в битве при Азенкуре (25 октября 1415 года) школу распускают, и Монморенси вынужден бежать. И в ходе этого бегства он знакомится с удивительной (   Читать дальше...   )Жанр: приключения, фентези.Режиссер: Итагаки СинЯзык озвучки: ЯпонскийЯзык субтитров: Русский 1-5Продолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C83187BA4277B4A1C1EBFD046694D1C3FDE050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385435   (797802) от 24.05.2020
-
-Aishiteruze Baby | Моя малышка [2004, TV, 26 эп.] DVDRip 720p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даётся главный герой – Киппэй Катакура, сахарный сёдзе-мальчик: ласковый, сексапильный, необидчивый, одна извилина и та… да, куда-то туда упирается. Прилежно ходит в школу, чтобы раздражать учителя и пленять девочек. А потом становится известно, что овдовела его тётка по матери: впала в депрессию и не может заботиться о ребенке, пятилетней Юдзую. Девочку привезли (   Читать дальше...   )Производство: студия TMS Entertainment / トムス・エンタテインメントЖанр: повседневность, комедия, романтикаРежиссер: Окуваки МасахаруПеревод: Praded & BellaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4E35ECC0D525FDE2B901E12A08F42056F03456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385433   (797789) от 24.05.2020
-
-Soukyuu no Fafner: Dead Aggressor - Right of Left | Небесный Фафнир (спэшл) [2005, OVA, 1 эп.] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предыстория первого сезона (расширенная версия)Производство: студия Xebec / ジーベックЖанр: приключения, фантастика, меха, драмаРежиссер: Хабара НобуёсиПеревод: SHmeLLЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 55 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7D747A348DDFB0C3310059A251CB0DE8805D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,167 @@
+###  Публикация: 1798084   (17691) от 20.05.2025
+
+Валерия - Ураган (2025) WEBRip [H.264/1080p/1440/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Премьера клипа. Валерия - Ураган (Official Music Video)Производство: Россия | Valeriya & Prigozhin Production, Hana Road ProductionЖанр: ПопРежиссер: Артемий ШульгинПродолжительность: 00:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F2269705533F409EFD54B53F6FF61F7813FC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798565   (17378) от 22.05.2025
+
+Квартирник у Маргулиса. Проект «Горшенёв» (12.04.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Алексей Горшенёв — музыкант, композитор и автор слов — одна из знаковых фигур в российской рок-музыке. В этом году ему исполняется 50 лет и значимой частью юбилейного года станет квинтэссенция всего его творческого пути. Проект «Горшенёв» — своего рода дань памяти ушедшему из жизни лидеру группы «Король и Шут» и старшему брату Алексея — Михаилу. Коллектив был основан (   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: РокЯзык озвучки: РусскийПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300FF8A56EA269872C7DD9D657E43E4A9312AA68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798600   (17015) от 25.05.2025
+
+Щелкунчик Большой театр (2018) HDTVRip [AV1/2160p] [50 fps, handmade upscale AI]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Щелкунчик» Петра Ильича Чайковского – самая новогодняя из всех сказок.
+А балет Юрия Григоровича самый новогодний из всех «Щелкунчиков».
+С первых тактов музыки, с первой снежинкой, летящей над сценой, зрителей неизбежно накрывает предвкушение настоящего праздника.
+Девочки в нарядных платьицах, мальчики с сабельками, чудесные игрушки Дроссельмейера – и, наконец, под (   Читать дальше...   )Производство: Россия, Большой театрЖанр: балет, музыкаРежиссер: Юрий ГригоровичУчастники: Мари - Маргарита Шрайнер,  Щелкунчик-принц - Семён Чудин,  Советник суда Дроссельмейер - Денис Савин,  Мышиный король - Александр ВодопетовСубтитры: отсутствуютПродолжительность: 02:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798990   (16970) от 25.05.2025
+
+Квартирник у Маргулиса. Группа «Нееет, ты что» (24.05.2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Группа «Нееет, ты что» была образована в Махачкале в 2020 году. Ее название олицетворяет первую мысль слушателей при знакомстве с нетипичной для Дагестана музыкой коллектива. Их творчество — это сплав джаза, фанка, хауса, хип-хопа и электроники с россыпью локальных отсылок и сленга в текстах. Благодаря самобытному стилю и звучанию, за короткий срок «Нееет, ты что» (   Читать дальше...   )00:00:01 Нишуу
+00:05:55 Но
+00:11:44 Дэмиладе
+00:19:35 1,2,3(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Инди-поп, джаз, фанк, хаус, хип-хопЯзык: РусскийПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777C5727FE3301F1AFE5BA7A579F6DE4D7B1529A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 631903   (16448) от 29.05.2025
+
+Реквием по Радамесу (2012) SATRip [Театр Сатиры]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие пьесы, главными героинями которой являются две оперные дивы и одна меломанка, происходит в доме престарелых.
+
+И они в этот дом престарелых привезли все свои костюмы, которые за всю жизнь у них накопились, и они каждый день, каждую минуту переодеваются и друг другу доказывают, что они еще это могут все играть. И вспоминают, что был молодой артист, певец, (   Читать дальше...   )Производство: Россия, Театр СатирыЖанр: КомедияРежиссер: Роман ВиктюкАктеры: Вера Васильева, Ольга Аросева, Елена Образцова, Сергей КолповскийПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F499EBC70291F1E08812C7E0E31098333AEE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799956   (16071) от 31.05.2025
+
+Devin Townsend - The Moth. Live with Noord Nederlands Orkest (2025) WEB-DL [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Музыкант-сновидец Девин Таунсенд представит свою рок-оперу в эксклюзивном исполнении в Нидерландах. Прямая трансляция 28 марта 2025 года. Новая композиция Таунсенда «The Moth», работа над которой велась десять лет, рассказывает о человеческом опыте от рождения до смерти. Вместе с симфоническим оркестром Noord Nederlands Orkest - это повествование воплотят в жизнь (   Читать дальше...   )Производство: Нидерланды / On AirЖанр: концертная программа, рок, металлАктеры: Девин Таунсенд, Майк Кенилли, Джозеф Стивенсон, Пит Ринальд, Дарби Тодд, Джеймс Лич, Эйвинд Гульберг Дженсен, Noord Nederlands OrkestПеревод: Не требуетсяЯзык озвучки: английскийСубтитры: отсутствуют.Продолжительность: 02:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320E22C5DB21781A134A81EC9FACDCF5ED25D7B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800147   (15963) от 01.06.2025
 
 Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
@@ -6,7 +170,7 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -36,7 +200,7 @@ Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -65,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -92,7 +256,7 @@ Epica: Live at The Symphonic Synergy (2024) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -119,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14420.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -148,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -175,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -204,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -234,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -260,7 +424,7 @@ STAYC - BEBE (2025) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -286,7 +450,7 @@ Girls' Generation - Paparazzi (2012) WEBRip [H.265/2160p] [60fps, AI Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -312,7 +476,7 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -338,7 +502,7 @@ AC/DC (ACDC) - Plug Me In (Limited Edition) [2007, Hard Rock, 3xDVD9]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -373,7 +537,7 @@ Scooter - Live at Parookaville festival (2024) IPTVRip [H.265/2160p] [hand made 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -535,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -546,169 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDB743BA78BA49EC19F94A5D35A564FDE6F5FC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796667   (9573) от 02.08.2025
-
-Музыка на советском телевидении. Гостелерадиофонд (2025) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оффлайн-копия коллекции YouTube канала "Музыка на советском телевидении" @gtrfmusic по состоянию на 11 мая 2025 года.
-
-Канал посвящается советским песням. Их хорошо знают наши старшие члены семьи, и они почти не известны молодым.
-(   Читать дальше...   )Жанр: музыка, концерт, документальный, искусство, история, телепередачаПродолжительность: 1735:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7FAC67DE8A8F05D86CB8E8C87ADABDDD6D1DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812013   (8306) от 12.08.2025
-
-Лебединое озеро / Schwanensee (1966) DVDRip [H.264/1080p] [Handmade Upscale AI]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых знаменитых и красивых постановок балета. Композитор: Петр Ильич Чайковский.
-В четырех актах балета чередуются реальные и фантастические картины. Празднуя свое совершеннолетие в дворцовом парке, принц Зигфрид веселится среди друзей, однако пролетевшая над парком стая лебедей манит его за собой. В лесу, на берегу озера среди девушек-лебедей принц находит (   Читать дальше...   )Производство: Германия (ФРГ), Австрия, США / ORF, Neue Thalia, Seven Arts PicturesЖанр: балет, музыкаРежиссер: Трак БрансУчастники: Марго Фонтейн (Одетта / Одиллия), Рудольф Нуреев (Принц Зигфрид), труппа Венского балета, Венская Опера (Wiener Staatsoper). Венский Симфонический Оркестр (Wiener Symphoniker)Перевод: не требуетсяСубтитры: английские (forced hardsub) либреттоПродолжительность: 01:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA57C59E845A13FCD9707B4B6DB65BB48A10756E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732216   (7796) от 15.08.2025
-
-Кино и Виктор Цой. Концерт в СКК Олимпийский (1990) DVBRip [H.264/1080p] [Handmade Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый канал представляет запись одного из последних концертов Виктора Цоя и группы "Кино", состоявшегося 5 мая 1990 года в московском спорткомплексе "Олимпийский". Пройдёт три с половиной месяца, и 15 августа 1990 года, легендарный советский рок-музыкант погибнет на 35-м километре автодороги Р-126 "Слока-Талси" в Тукумском районе Латвии.01. Группа крови
-02. Песня без слов
-03. Звезда по имени Солнце
-04. Закрой за мной дверь(   Читать дальше...   )Жанр: рок, музыкальный, концерт, документальныйПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D5388F9860B07F22DABB7D65E963F5F0067FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812549   (7759) от 15.08.2025
-
-Роджер Уотерс - Это не учения - Концерт в Праге / Roger Waters: This Is Not a Drill - Live from Prague (2025) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812728   (7516) от 16.08.2025
-
-Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812836   (7509) от 16.08.2025
-
-KiiiKiii - Dancing Alone (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A10C75BCA635315E48078E3A2BF24B2B40A44CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

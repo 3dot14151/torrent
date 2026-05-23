@@ -1,3 +1,55 @@
+###  Публикация: 1259963   (316409) от 05.11.2018
+
+NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/1080p-LQ] (сезон 1, серии 1 из 6) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Интернет переполнен короткими видео, где любители по всему миру достигают каких-то своих немыслимых высот, делают что-то захватывающее, смешное или опасное. Эти клипы демонстрируют как безграничные умения, так и безрассудство, снятое на камеру телефона и залитое в сеть на всеобщее обозрение. Инженер Тим Шоу живёт ради конструирования и создания изобретений, он хочет (   Читать дальше...   )Производство: CША, Stock Fotage Jukin Media Inc., National GeographicЖанр: Документальный, интернет, исследованиеРежиссер: Стефен ШерманПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBACA2458FFB33FE7DC3C2B24400668166356F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259980   (316405) от 05.11.2018
+
+NG. Экстремальный Китай. Хайнань / Extreme China. Hainan (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Исследователь и фотограф Бен Хортон объединяется с несколькими китайскими исследователями, чтобы отправиться в путешествие, которое позволит им познакомиться с жизнью и бытом трех общин, живущих в экстремиальных условиях. И убедиться, что они научились не только выживать, но и чувствовать себя в этих условиях вполне комфортно.Производство: КНР, China Intercontinental Communication, National GeographicЖанр: Документальный, путешествие, исследованиеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF3990FFF9D8ABBC80988364A46AF76C3B222A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260009   (316395) от 05.11.2018
 
 Discovery: Смертоносные эпидемии / Killer outbreaks (2011) HDTVRip [H.264/1080p-LQ] (Серии 1-6 из 6)
@@ -6,7 +58,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ PBS Nature: Гималаи / PBS Nature: The Himalayas (2011) [H.264/1080p-LQ] B
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +527,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +553,7 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +579,7 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +605,7 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -579,7 +631,7 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,7 +657,7 @@ History Channel. Скрытые следы: Первая мировая войн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,58 +668,6 @@ History Channel. Скрытые следы: Первая мировая войн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DF2A3CFD19A9F3B26F5F82EE3CC6F95503FCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199369   (306731) от 09.11.2018
-
-History Channel: Скрытые следы / Hidden Traces (2014-2016) HDTVRip [H.264/720p] (серии 2;4-6 из 6) (Обновляемая)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые археологические находки, интервью с экспертами, компьютерные эффекты и 3D-реконструкция переплетаются в этом сериале, который расскажет о самых символичных эпизодах войн. Каждое поле битвы становится открытой книгой, раскрывающей неожиданные элементы и детали, открывающие новый взгляд на военные конфликты и их контекст.Производство: Франция, Docland Yard, Gedeon ProgrammesЖанр: Документальный, историяРежиссер: Марианна Крамер, Гуйлен Депардье, Изабель ФукьерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~ 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A103374B8524BC1FD52F93FC85E2D02D83DB1073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077476   (306324) от 28.11.2016
-
-Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [720p-LQ]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобильная дорога Р504 «Колыма» - действующая автодорога федерального значения между Якутском и Магаданом протяжённостью 2032 км, из которых 1197 км проложено по территории Республики Саха (Якутия), 835 — по Магаданской области. Дорога имеет также историческое название - Колымская трасса. В настоящее время «Колыма» является одной из ключевых автодорог Дальнего (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Телепередача, ДокументальныйПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C40449B658969DC689DE3FA90DEE107CF02E74
 ```
 
 https://mybot314.ru/tekegram_catalog/

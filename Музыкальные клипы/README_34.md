@@ -1,3 +1,116 @@
+###  Публикация: 588823   (152776) от 14.12.2012
+
+Яжевика - Это любовь (OST "Дневники Доктора Зайцева") (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968489   (152540) от 24.12.2015
+
+VA - Зимний марафон № 214: Дискотека Уходящего Года (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Зимние (23.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
+02. Azary and Kleo ft С.Ибрагимов, Д.Шарапова, З.Омарова, Kental, Alldavai - С Новым Годом, Казахстан! (Премьера!) (00:03:15)
+03. Carly Rae Jepsen ft. Josh Ramsay - Sour Candy (Official Video) (00:03:06)
+04. Dj Kan and Миша Марвин ft. Тимати - Ну Что За Дела (Премьера!) (00:03:20)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, HouseПродолжительность: 01:23:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589156   (152049) от 14.12.2012
+
+Top Of The Pops 70s (vol.3) (2009) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1. T.Rex (feat. Elton John) – "Get It On"
+2. Slade – "Coz I Luv You"
+3. Gary Glitter – "Rock & Roll Part 2"
+4. David Bowie – "Starman"(   Читать дальше...   )Жанр: Музыка, Glam Rock, RockПродолжительность: 01:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAB02754E1747B42CC5D0175CA9DD0AA9634088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017639   (149098) от 23.12.2018
+
+Вера Брежнева - Сборник видеоклипов (2010-2018) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1.  Dan Balan и Вера Брежнева - Лепестками слез
+2.  Smash feat. Вера Брежнева - Любовь на расстоянии
+3.  T-killah _ Вера Брежнева - Этажи
+4.  Артур Пирожков и Вера Брежнева - Luna(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыСубтитры: нетПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3A733CEF9D9CCD7D53CE92E3DC4EBC79D0AD10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347626   (148699) от 24.12.2019
 
 JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +119,7 @@ JO - Soapte (2015) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +145,7 @@ VA - Зимний марафон № 215: Новогоднее Веселье (2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -62,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -91,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -120,7 +233,7 @@ Rammstein - Mein Herz Brennt  (2012) WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -146,7 +259,7 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -175,7 +288,7 @@ Decrepit Birth - Epigenetic Triplicty (360° Visualizer) (2017) WEB-DL [H.264/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -201,7 +314,7 @@ Ice Nine Kills - Music Videos 9X (2015-2019) WEB-DL [H.264/VP9/720p/1080p/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -230,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -259,7 +372,7 @@ tyDi feat. Christina Novelli - Fire & Load (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -285,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -314,7 +427,7 @@ Suicide Silence - Videoclips 20X (2007-2019) WEB-DL [VP9/2160p, H.264/1080p, 720
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -343,7 +456,7 @@ Lindsey Stirling - What Child is This (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -369,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +512,7 @@ VA - Зимний марафон № 216: Новогодний Фейервер�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137734.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -459,7 +572,7 @@ Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -488,7 +601,7 @@ Europa Plus TOP 40 декабрь (2017) WEB-DL
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -517,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -546,7 +659,7 @@ Rammstein - Legacy of Kain: Soul reaver (sonne remix) (2011)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -574,7 +687,7 @@ Xenia - Understand (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -600,7 +713,7 @@ Plies - Hunna (2012) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -611,110 +724,6 @@ Plies - Hunna (2012) WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592233   (135193) от 23.12.2012
-
-The Blue Van - There Goes My Love (Uncensored) (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alt RockПродолжительность: 00:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCB3FE79AB4DEFACBAC276B2632C5C3E8818941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593490   (134361) от 24.12.2012
-
-Rammstein - Videos 1995-2012 (Disk 1-2) (2012) BDRip_720р
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8422D7329CB80B87C9821B253B92794561C503BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595074   (132550) от 28.12.2012
-
-Нюша - Это Новый Год (2012)[H.264] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционно, под Новый год звезды исполняют новые песни и выпускают в эфир свежие клипы о новогоднем счастье. Так и Нюша не удержалась от массовых поздравлений и сняла клип к песне «Это Новый год».Жанр: POP МузыкаРежиссер: Павел ВладимирскийПродолжительность: 00:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683DEDFDC852C72CBC0C35E234557138A8E749BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595878   (131902) от 29.12.2012
-
-Сборник клипов - VA - Various Music part. 38 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FC3FF135101B8EC5C79E84F7561AE6276C8BAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1123630   (786077) от 09.04.2017
+
+ДахаБраха - Ягудки (2007) [MP3|320 Kbps] <NeoFolk, Country, Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Шо З-под Дуба (03:48)
+02. Русалочки (01:49)
+03. Пані (03:28)
+04. За Дуби (02:20)(   Читать дальше...   )Жанр: NeoFolk, Country, EthnicПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336EB932A445EEF224C5E8661BEB28FB32ED0F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124005   (785931) от 10.04.2017
+
+Clookai - Massage Gold (2008) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Eternity [00:06:32]
+02. Touch of the Dove [00:06:08]
+03. The Secret Place [00:08:12]
+04. Stolen Moments [00:05:34](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C34666CA5EAA4961F10544F7686F5D35676E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124071   (785927) от 10.04.2017
+
+Mixed Choir под управлением М. Попсавова - Страстная пятница - Bulgarian Orthodo (1993) [FLAC|Lossless|tracks + .cue] <Orthodox Liturgy>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Great Litany (Velika ektenia) [6'13"]
+02. Good-Looking Joseph (Blagoobraznii Jossif) [8'05"]
+03. Grave-Wailing (Nadgroben plach) 20:44
+04. Eulogitarium [06:16](   Читать дальше...   )Жанр: Orthodox LiturgyПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270A002BEE164A55CEDD39D4B10834C02C581B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124093   (785910) от 10.04.2017
+
+VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Memories Are Made of This (02:17)
+02. Sonny Rollins - St. Thomas (06:46)
+03. Mark Ronson - Feel Right (03:43)
+04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AA2CEED75A83E547B48D2E246F8103A9746E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124095   (785908) от 10.04.2017
+
+VA - Going in Style / Уйти красиво (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Memories Are Made of This (02:17)
+02. Sonny Rollins - St. Thomas (06:46)
+03. Mark Ronson - Feel Right (03:43)
+04. Otis Redding - Hard To Handle (02:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D695079EC7B0639DB9CD66DF55654A92AF7AA5C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124304   (785780) от 11.04.2017
+
+The Nexion-Project - Voices of the Ascension (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn  (02:15) 
+02. Passing Time  (02:08) 
+03. The Second World  (03:09) 
+04. Fly Away  (03:14) (   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E5EA7D1B6FA34BE3CA6FFB7B4302D5DA15CCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124746   (785646) от 12.04.2017
+
+Аlрha Wаvе Моvemеnt - Сеruleаn Skіes (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. As Above So It Flows 05:37
+2. Organic Metamosphosis 14:21
+3. Thermospheric Induction 05:32
+4. Lattices Of Light 09:18(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761F83ACCC0DF539C087EC730796FC0C72CAEFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124715   (785613) от 12.04.2017
 
 Птицы Тёрна - «Живой» альбом (2017) Live [MP3|320 Kbps] <Fantasy Folk>
@@ -6,7 +209,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +238,7 @@ David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +354,7 @@ The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -236,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -265,7 +468,7 @@ Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Inst
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +497,7 @@ Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -323,7 +526,7 @@ Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -352,7 +555,7 @@ Opii - Encounters (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Chil
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -381,7 +584,7 @@ Jeff Russo - Видоизмененный углерод | Altered Carbon (Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -410,7 +613,7 @@ Armik - Pacifica (2018) [FLAC|24/96|Lossless|WEB-DL|tracks|] <Nuevo Flamenco>
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -439,7 +642,7 @@ VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbp
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -468,7 +671,7 @@ Justin Johnson - If Walls Could Talk (2016) [MP3|320 Kbps] <Roots Acoustic Instr
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -497,7 +700,7 @@ Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <E
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +729,7 @@ Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,206 +743,6 @@ Valefim Planet - Oscillation (2018) [MP3|320 Kbps] <Chillout, Enigmatic, New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E9EB6F2EFD482C6F41DE3A3375EF6C8B4560D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390368   (782990) от 15.06.2020
-
-Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
- 02. Life (432 Hz version) (2:46)
- 03. Stardust - (432 Hz version) (3:18)
- 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205803   (782852) от 12.02.2018
-
-Armik - Discography (32CD) (1994/2018) [MP3|320 Kbps] <Nuevo Flamenco, Spanish Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Nuevo Flamenco, Spanish GuitarПродолжительность: 03:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6714181B2F524AD5DA0CE9B42B1E5A11728630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390677   (782694) от 16.06.2020
-
-The Byrds - Sweetheart Of The Rodeo (1968) Remastered 1997 [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Ain't Going Nowhere (2:36)
-02. I Am A Pilgrim (3:41)
-03. The Christian Life (2:32)
-04. You Don't Miss Your Water (3:50)(   Читать дальше...   )Жанр: Folk Rock, Country RockПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5081507E256D1E395FDAF010760C23A627AD664F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390331   (782686) от 16.06.2020
-
-John Martyn - One World (1977) CD album, Reissue 1990 [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dealer (4:59)
-02. One World (4:10)
-03. Smiling Stranger (3:30)
-04. Big Muff (6:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C401800900FA31FDAE4E9733BED257631DD7DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390696   (782673) от 16.06.2020
-
-Johnny Cash - Johnny Cash At San Quentin (1969) [FLAC|Lossless|tracks + .cue] <Rock,  Country Rock, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big River (1:56)
-02. I Still Miss Someone (1:52)
-03. Wreck Of The Old 97 (2:05)
-04. I Walk The Line (3:29)(   Читать дальше...   )Жанр: Rock,  Country Rock, FolkПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9815A224C485AC5C83D7A49C5EC20D032BFE561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390760   (782253) от 17.06.2020
-
-Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
-02. Maryan (6:46)
-03. A Sunday In Madrid (6:58)
-04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205303   (782053) от 14.02.2018
-
-Justin Johnson - Turquoise Trail: Soundtrack for a Western (2017) 2CD [MP3|320 Kbps] <Western, Bluegrass, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782053.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Turquoise Trail
-02. Black Heart of Gold
-03. Pistolero(   Читать дальше...   )Жанр: Western, Bluegrass, FolkПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC78F44E49625760960178C7CAB8559E7F3B3BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

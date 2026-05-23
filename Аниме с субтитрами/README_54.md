@@ -1,3 +1,108 @@
+###  Публикация: 1224700   (663646) от 12.05.2018
+
+Gekijouban Fate/Stay Night: Heaven's Feel - Presage Flower | Судьба: Ночь схватки. Прикосновение небес (фильм первый) [2017, Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Война Священного Грааля: жестокая битва между магами, в которой семь мастеров и их призванные слуги сражаются за Святой Грааль, магический артефакт, который может даровать победителю любое желание. Почти 10 лет назад Последняя битва четвертой войны Святого Грааля нанесла ущерб городу Фуюки и унесла более 500 жизней, оставив город опустошенным.
+Широ Эмия, переживший (   Читать дальше...   )Производство: студия UFO TableЖанр: приключения, мистикаРежиссер: Судо ТомонориПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2DAA1525751C226755FD9838F88220A3A8C692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495804   (662097) от 21.03.2022
+
+Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная ученица в школе магии [2021, TV, 13 из 13] WEBRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Магия. Прошло чуть меньше века с того момента, как она стала реальностью. Весной 2095 года в школу, где обучают юных магов, поступает одна девушка. Она наделена всевозможными талантами и красотой. Настоящая безупречная отличница. И зовут её Миюки Сиба. Миюки мечтает о дружной школьной жизни вместе со своим братом Тацуей, но оказывается, что образцовых и непутёвых (   Читать дальше...   )Производство: ConnectЖанр: Приключения, фантастикаРежиссер: Татибана ХидэкиСубтитры: РусскиеПродолжительность: 13 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB4D608CDF9120BB8CE28D3E474E42135403EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341446   (661453) от 25.05.2011
+
+Shonen Onmyoji / Teenager Onmyouji / Юный мастер Инь-Ян [2006, TV, 26] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Внук легендарного (даже при жизни!) прорицателя и экзорциста Абэ-но-Сэймэя прямо-таки задавлен славой деда. Все смотрят на него, как на будущего великого оммёдзи, а он даже не способен видеть духов! От такого позора юный Масахиро готов хоть в ремесленники податься... Но тут вдруг ему удается увидеть, по крайней мере, одного духа – белого лисо-кото-кролика с красными (   Читать дальше...   )Жанр: приключения, мистика, историяРежиссер: Мори КунихироПродолжительность: 26 по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CBC339E9DE0475E6FF00264F38E27C2BA0C7F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095824   (658809) от 03.06.2017
+
+Заводной дух войны: Альдерамин в небе | Alderamin on the Sky | Nejimaki Seirei Senki: Tenkyou no Alderamin [2016, TV, 13 эп.] BDrrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Империя Катварна ведёт войну с соседней Республикой Киока. В силу обстоятельств семнадцатилетний поданный Империи — бабник и лентяй по имени Икута — против воли вынужден сдавать экзамен на получение офицерского звания. И никто не ожидал, что он выживет, окажется вполне годным военным, а со временем благодаря своему острому уму станет известен как великий военачальник. (   Читать дальше...   )Производство: студия Madhouse StudiosЖанр: приключения, фантастика, драмаРежиссер: Итимура ТэцуоПеревод: tengriЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97FBB6944A35F29D5461C1707AB1CC4DD60A09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016740   (658562) от 03.06.2017
 
 Измерение W | Dimension W [2016, TV, 12 эп. + OVA] BDrip 1080p raw
@@ -6,7 +111,7 @@
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Leadale no Daichi nite | In the Land of Leadale | На просторах Лид
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Puka Puka Juju / Дюгонь Дюдю [2012, TV-sp] HDTV 720 raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Planetarian: Chiisana Hoshi no Yume | Planetarian: The Reverie of a Little Plane
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Buta / Хряк [2012, TV-sp.] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +242,7 @@ Planetarian: Hoshi no Hito | Planetarian: Storyteller of The Stars | Плане�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +268,7 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +294,7 @@ Makaryudo / Demon Hunter Makaryuudo / Охотница на демонов [1989
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -215,7 +320,7 @@ Otona Joshi no Anime Time: Kawamo o Suberu Kaze / A Wind Skimming the River's Su
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +347,7 @@ Onee-chan ga Kita | Сестра без приглашения [2014, TV, 12 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +375,7 @@ Ikkitousen: Western Wolves | Школьные войны [ТВ-5] [2019, TV, 3 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +402,7 @@ Hanaukyou Maid Tai: La Verite | Hanaukyo Maid Team: La Verite | Горничны
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +428,7 @@ Sabiiro no Armor: Reimei | Rusted Armors: Daybreak | Ржавые доспехи
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +454,7 @@ Karakai Jouzu no Takagi-san 3 | Teasing Master Takagi-san 3 | Озорная Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +482,7 @@ Hanyou no Yashahime: Sengoku Otogizoushi | Yashahime: Princess Half-Demon | Пр
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +534,7 @@ BAR Kiraware Yasai / Бар "Ненавистные овощи" [2015, TV-сер
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +561,7 @@ Mayoiga | The Lost Village [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +587,7 @@ Project Scard: Praeter no Kizu | Scar on the Praeter | Проект Скард [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +614,7 @@ Appleseed | Яблочное зернышко [2004, Movie] BDRip 1080p HEVC 10-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +640,7 @@ Kiddy Grade 2 / Kiddy Girl-and / Детское подразделение 2 [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +668,7 @@ Fantasy Bishoujo Juniku Ojisan to / Life with an Ordinary Guy Who Reincarnated i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,110 +679,6 @@ Fantasy Bishoujo Juniku Ojisan to / Life with an Ordinary Guy Who Reincarnated i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBB5407B31B27DFB1D5F14068892CF0DDCC38973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540727   (650582) от 31.03.2022
-
-Scarlet Nexus | SCARLET NEXUS: Красные нити | Алый Нексус [2021, TV, 26 из 26] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650582.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 год по солнечному календарю. Жуткие чудовища — Иные — напали на человечество и стали его пожирать. Чтобы справиться со страшным противником, была создана Группа подавления Иных. Некогда эта группа спасла и психокинетика Юито, поэтому он решается пройти сложные тренировки и вступить в ряды защитников Земли! Сюда же по специальному приглашению попадает прирождённый (   Читать дальше...   )Производство: SunriseЖанр: Приключения, фантастикаРежиссер: Нисимура ХироюкиСубтитры: Русские, АнглийскиеПродолжительность: 26 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FD8CD3F3D4C17E87F03D283916C19525308DBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538961   (650578) от 31.03.2022
-
-Koroshi Ai | Love of Kill | Убийственная любовь [2022, TV, 12 из 12] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шато Дэнкуорт и Сон Лянха. Охотница за головами и убийца. Что связывает этих двоих? Встреча на одном из заданий? Или нечто большее? Мужчина явно в ней заинтересован, но почему? Очень много вопросов, на которые нет ответа.Производство: PlatinumvisionЖанр: Боевик, романтика, дзёсэйРежиссер: Оба ХидэакиСубтитры: Русские, АнглийскиеПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAC0AAC8FFF151D7A23C7A72618FBA4B9BF440D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291722   (650386) от 27.03.2019
-
-Comic Girls / Девочки-мангаки [2018, TV, 12] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650386.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рассказывает о пятнадцатилетней старшекласснице Каоруко Моэте, создающей мангу под псевдонимом Хаос. После того как она оказывается в самом низу таблицы читательских рейтингов журнала, редактор советует ей переехать в особое женское общежитие, созданное исключительно для авторов манги. Там Каоруко встречается с тремя другими девушками: автором сёдзё-манги (   Читать дальше...   )Жанр: комедия, повседневность.Режиссер: Токумото ЁсинобуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50053E39829FC4E63CF087A1A22A0F8B511C55AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291889   (650378) от 27.03.2019
-
-Revisions | Ревизия [2019, ONA, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайсуке Додзима — ученик второго класса старшей школы, который в детстве пережил похищение. Вместе со своими друзьями Гаем, Лю, Маримари и Кейске он оказался в центре загадочного феномена, получившего название Дрейф Щибуи, в результате коего центральная часть токийского района Щибуя перенеслась на 300 лет в будущее, оказавшись посреди пустошей и леса, выросшего на (   Читать дальше...   )Производство: студия Shirogumi Inc. / 白組Жанр: фантастика, мехаРежиссер: Танигути ГороПеревод: Netflix; RisensTeamЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA14A676288C1BE6D3B61EA81EAEC691C3C74DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1139818   (658556) от 03.06.2017
+
+Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Всегда ли мы точно знаем куда везет нас поезд метро? Куда бы он нас ни вез, но маршрут мы выбираем сами. Обыкновенный путь домой превращается для героя этой истории в череду необычных приключений.Тип издания: RepackРазработчик: Lama14KulanЖанр: Adventure (Puzzle), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56481E06840157619BEC706E433F272F0DABBB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139848   (658551) от 03.06.2017
+
+RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами простирается край, полный загадок. Исследуйте прекрасный и суровый мир RiME, приключенческой головоломки для одного игрока. В RiME вам предстоит превратиться в маленького мальчика и оказаться на загадочном острове после жестокой бури.Тип издания: RepackРазработчик: Tequila Works, QLOCЖанр: Action, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAEFC829CA39782D717674B4D906B09F7032E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225775   (658473) от 17.05.2018
+
+Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Asemblance: Oversight - это игра-исследование с элементами головоломки от первого лица. Вы являетесь частью команды ученых и инженеров, которым поручено использовать секретную технологию, помогающую воссоздать человеческий разум. Ваш успех основан на распутывании правды, связанной с истоками этой странной технологии.Тип издания: LicenseРазработчик: Nilo StudiosЖанр: Adventure, Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956833F9A596551463B5AC77ED72B2D942FCF57C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225943   (657429) от 18.05.2018
+
+AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы задумывались когда-нибудь, как выглядит мир глазами муравья? AntVentor - это первая короткая глава из серии игр «AntTrilogy» о муравье и его необычных приключениях в фотореалистичном макромире.Тип издания: LicenseРазработчик: LoopyMoodЖанр: Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52789669DE0E5D47E11D92ECCC41FE5849DA457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225562   (656467) от 19.05.2018
 
 The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
@@ -6,7 +110,7 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +137,7 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +163,7 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656441.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ The Room Two (2016) [Ru/Multi] (1.0.4) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ FAR - Lone Sails (2018) [Ru/Multi] (1.02) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1/upd1) License CODE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +397,7 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +423,7 @@ Copoka (2016) [En] (1.0.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +449,7 @@ We. The Revolution (2019) [Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +475,7 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +501,7 @@ The Office Quest (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +527,7 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +553,7 @@ The Lost Crown: A Ghosthunting Adventure / The Lost Crown: Призраки из
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +579,7 @@ Zero Escape: Zero Time Dilemma (2016) [En/Ja] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +605,7 @@ House of Evil (2017) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -527,7 +631,7 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,111 +668,6 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45C204C573B5AE0E51B2A5C9897097E1B10DC480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033715   (635694) от 12.07.2016
-
-Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635694.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Haven Moon, вы перенесетесь в таинственный мир, где вы будете исследовать необитаемые острова, чтобы раскрыть их секреты и найти клад. В этом Myst-Like, вдохновленном миром Жюля Верна, вы можете использовать свое 6-ое чувство и интеллект, чтобы найти путь через тайные ходы и странные машины.Тип издания: LicenseРазработчик: Francois RousselЖанр: AdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926A187EE8C2F8C0A2D6760EC13AC72650E88CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033857   (635551) от 12.07.2016
-
-Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635551.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Haven Moon, вы перенесетесь в таинственный мир, где вы будете исследовать необитаемые острова, чтобы раскрыть их секреты и найти клад. В этом Myst-Like, вдохновленном миром Жюля Верна, вы можете использовать свое 6-ое чувство и интеллект, чтобы найти путь через тайные ходы и странные машины.Тип издания: SteamRIPРазработчик: Francois RousselЖанр: AdventureЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D24BF0947925696DAB99B0B9201A0412713C3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519989   (634513) от 07.07.2012
-
-Gemini Rue / Gemini Rue: Заговор на Барракусе [Ru/En] (RePack) 2012 | R.G. ReCoding
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Азраил Один, бывший пособник мафии, а ныне законопослушный гражданин, высаживается на планете Барракус, чтобы провести расследование. Он должен был встретиться здесь со своими друзьями, но его расследование принимает неожиданный оборот. Азраил попадает в серьезные неприятности: чтобы добыть необходимую информацию, он волей-неволей вынужден пойти на сделку с местной мафией — борекудан.
-В то же время, в другой части галактики в таинственном помещении просыпается человек по имени Дельта-6. Он ничего не помнит о своем прошлом. Как выясняется позже, таинственное помещение — это центр коррекции преступников, где всем по прибытии стирают память. Руководитель центра, человек, которого все называют «Директор», заставляет своих подопечных участвовать во всевозможных тестах. Любое неповиновение карается очередным стиранием памяти. Дельта-6 никому не доверяет и должен выбраться из этого центра.Тип издания: RePackЖанр: AdventureЯзык озвучки: РусскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC1AAF5D37DAFBF6A776070580D44117EC1A5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083512   (632839) от 19.06.2017
-
-J.U.L.I.A. - Among The Stars (2014) [En/Ge] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632839.jpg" />
-</div>
-
-
-###  Подробнее
-
-35 летняя женщина, космический биолог по имени Рэйчел Мэннерс, на конец-то пробудилась после нескольких лет сна и обнаружила то, что она пребывает на космической станции. Как она туда попала и с какой целью, Рэйчел это очень смутно помнит.Тип издания: LicenseРазработчик: CBE SoftwareЖанр: Adventure, QuestЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567DDB801D98C5172ECD1C11C29061614E0710BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

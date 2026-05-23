@@ -1,3 +1,107 @@
+###  Публикация: 1446718   (1032442) от 10.02.2021
+
+Сторож (2019) WEB-DL [H.265/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Размеренную жизнь сторожа заброшенного санатория нарушает приезд странной пары, которая просит остановиться в одном из номеров. Всем троим есть что скрывать и от чего прятаться в снежной глуши.Производство: Россия / Инвада ФильмЖанр: драма, триллерРежиссер: Юрий БыковАктеры: Юрий Быков, Владислав Абашин, Алла Юганова, Александр Кузьмин, Артур Бесчастный, Олег Зима, Гела Месхи, Алексей Симонов, Николай Козак, Дмитрий БлохинСубтитры: РусскиеПродолжительность: 01:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81C74B78CA5D446C8ACF3E1DE76C1A057888114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446943   (1032259) от 11.02.2021
+
+Талант (2020) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Молодой актер решает сыграть горе по-настоящему – на настоящих похоронах.Производство: Россия / Mozga.ru StudioЖанр: Короткометражный, комедияРежиссер: Олег АгейчевАктеры: Семен Трескунов, Эльдар Калимулин, Сергей Кузнецов, Виктория Рунцова, Алексей Вакарчук, Валерия Куликова, Юрий Гумиров, Кирилл Мугайских, Дмитрий Сергин, Александр ПеченинСубтитры: ОтсутствуютПродолжительность: 00:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46E1A82B3E7FA78422139B51CEDAF92E4FE4D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447027   (1032231) от 11.02.2021
+
+Кире (2019) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Три истории и языковое противостояние переплетаются в тот момент, когда московский татарин приезжает в Татарстан, чтобы уговорить старомодного казанца продать дом в центре. У него есть все для счастья: жена-чудо, строптивая дочь, сестра-актриса, розовая коза и много проблем. По версии столичного девелопмента, именно на месте дома главного героя должна быть построена (   Читать дальше...   )Производство: Россия / Кинолифт, Cyclops ProductionsЖанр: КомедияРежиссер: Ильсеяр Дамаскин, Рустам РашитовАктеры: Камиль Ларин, Фанис Зиганшин, Фирая Акберова, Гузель Сибгатуллина, Зульфия Валиева, Роман Ерыгин, Назлыгуль Хабибуллина, Сайфхан Бикчантаев, Азгар Шакиров, Идель Киямов, Никита ОленинСубтитры: ОтсутствуютПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B76885F6C3620B7D9F8033C118777C29264E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447250   (1032026) от 12.02.2021
+
+Мне не больно (2006) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Трое друзей стоят на пороге шикарного дома в центре большого города. Они молоды, полны сил и энергии, у них есть талант, сноровка, жажда жизни и… — в общем, у них есть все, кроме одного. Кроме денег. Впрочем, за этим они сюда и пришли — предложить услуги дизайнера хозяйке дома. Натэлла Антоновна тоже молода, но, кажется, жизнь ей уже успела наскучить...Производство: Россия / Кинокомпания CTBЖанр: Драма, мелодрамаРежиссер: Алексей БалабановАктеры: Алена Баркова, Рената Литвинова, Александр Яценко, Дмитрий Дюжев, Никита Михалков, Инга Оболдина, Валентин Кузнецов, Сергей Маковецкий, Александр Андреев, Марина СолопченкоСубтитры: Русские, АнглийскиеПродолжительность: 01:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F144304F221788761CE463AE6DCA30611B4626F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447023   (1032015) от 12.02.2021
 
 Кире (2019) WEBRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032015.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C027A18C9CCB1E9BEDDED4DEA8DC2CB6352DD24D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448545   (1030556) от 18.02.2021
-
-Серебряные коньки (2020) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030556.jpg" />
-</div>
-
-
-###  Подробнее
-
-1899 год, рождественский Петербург. Яркая праздничная жизнь бурлит на скованных льдом реках и каналах столицы. Накануне нового столетия судьба сводит тех, кому, казалось бы, не суждено было встретиться. Люди из совершенно разных миров, Матвей - сын фонарщика, его единственное богатство - доставшиеся по наследству посеребренные коньки; Алиса - дочь крупного сановника, (   Читать дальше...   )Производство: Россия, Централ Партнершип, ГПМ КИТ, Кинослово, Студия ТритэЖанр: История, Мелодрама, Приключения, Фэнтези, ДрамаРежиссер: Михаил ЛокшинАктеры: Федор Федотов, Софья Присс, Алексей Гуськов, Северия Янушаускайте, Кирилл Зайцев, Юра Борисов, Тимофей Трибунцев, Юрий Колокольников, Сергей Колтаков, Василий КопейкинПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 02:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DCA05FE05EEFCC920DA54581B66F09DA68FDC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448565   (1030545) от 18.02.2021
-
-Корпорация Ad Libitum (2020) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030545.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы мечтаете о настоящей любви? Чтобы голова кружилась и страстно хотелось жить, чтобы все чувства были остры как в 16 лет, и любимый человек будоражил до глубины души. Такую любовь тяжело найти, когда ты многое испытал и много достиг. Корпорация Ad Libitum исполняет любые желания. Первая встреча для настоящих скептиков бесплатна. За вторую и последующие придется (   Читать дальше...   )Производство: Россия / Грамани ФильмЖанр: Приключения, триллерРежиссер: Полина ОльденбургАктеры: Шамиль Хаматов, Игорь Петренко, Дарья Белоусова, Евгения Крегжде, Антон Фёдоров, Кристина Бабушкина, Карэн Бадалов, Иван Стебунов, Александр Ильин мл., Егор РыбаковПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CEEF4B4A248450B04DE36DA9F5EB3D7D723A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612629   (1030386) от 27.03.2023
-
-Молодость (2022) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках счастья и друзей обаятельный неудачник Вася возвращается из города в родное село. Вот только бывшие одноклассники давно повзрослели: у них дети, работа и все по правилам. Каким будет его возвращение в беспечную молодость?Производство: Россия / Bonfire ProductionЖанр: Комедия, драмаРежиссер: Дмитрий ДавыдовАктеры: Альберт Алексеев, Анатолий Стручков, Елена Маркова, Павел ЧеняновСубтитры: отсутствуютПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B879B464DE330FD3D9EAEF8AB3E777BE8266394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594753   (1030384) от 27.03.2023
-
-Я буду жить (2022) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алла большую часть жизни посвятила своим бывшим мужьям, сыну и дочери. Она работает репетитором, продолжая содержать своих взрослых детей и мужей. Близкие каждый день приходят к ней на обед, совершенно не интересуясь самой Аллой. В один из таких «семейных обедов» Алла чуть не умирает, подавившись картошкой, но близкие этого даже не замечают. Однажды ей приходит в (   Читать дальше...   )Производство: Россия / ООО «Студия Лукфильм» по заказу ООО «МТС Медиа»»Жанр: Комедия, мелодрама, драмаРежиссер: Эдуард БордуковАктеры: Евгения Дмитриева, Владимир Симонов, Сергей Ланбамин, Анна Старшенбаум, Андрей Мартынов, Екатерина Дегтярёва, Юлия Черепнина, Александр Голубков, Филипп Горенштейн, Марина ЧирковаПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A91B19D6C59F77D1722071EB61C3A89C93BA39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1624440   (200340) от 05.04.2023
+
+О моём перерождении в меч [ТВ-1] | Tensei Shitara Ken Deshita | Reincarnated as a Sword [2022, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой приходит в себя и с удивлением обнаруживает, что переродился в фантастическом мире, но не в обличии могучего война или волшебника, как это обычно бывает, а в виде меча, способного прокачиваться и изучать новые навыки. Поэтому он не стал отчаиваться и полетел рубить монстров направо и налево, мечтая оказаться в руках у какой-нибудь горячей эльфийской (   Читать дальше...   )Производство: Япония / Студия C2CЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Crowley, Itashi, Silv, Zozya (AniLibria.TV)
+- Leo, Skyfinger, Abe, LucyNyuElf, Zariko (SHIZA Project)
+- Orru, Mirona, Jerwis, Berserk (Dream Cast)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV)
+- Оформление: ВВПупкинПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852A5BA6D694557BAECF96AE3370D8E30802951F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626071   (200045) от 12.04.2023
+
+Она видела небо / Sora no Aosa o Shiru Hito yo / Her Blue Sky [2019, Movie] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Родители Аои и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аои чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аои, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: Япония / Her Blue Sky Production Committee, Aniplex, CloverWorksЖанр: аниме, мультфильм, мелодрама, фэнтези, музыкаРежиссер: Тацуюки Нагаи, Миюки КурокиАктеры: Рихо Ёсиока, Сион Вакаяма, Рё Ёсидзава, Ё Таити, Фукуси Отиаи, Кэн Мацудаира, Ацуми Танэдзаки, Акинори Эгоси, Тикахиро Кобаяси, Хироки МаэдаПеревод: Дублированный (Reanimedia)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:50Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF4E3B9E9B7DFC3F223F9B244E41F5890DACB43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626894   (199808) от 16.04.2023
+
+Каким-то образом я стал сильнейшим, прокачивая фермерские навыки | Noumin Kanren no Skill Bakka Agetetara Naze ka Tsuyoku Natta [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Как же приятно пожинать плоды своих трудов, когда ты фермер! Эл Уэйн настолько проникся этим созидательным делом, что решил отточить свой навык на максимум и стать лучшим в мире. Но тех, кто ожидает, что это история про бескрайние поля да пестики с тычинками, ждёт сюрприз. Ведь, получив высший уровень, Эл внезапно понял, что его жизнь сделала крутой поворот совсем (   Читать дальше...   )Производство: студия Studio A-CATЖанр: приключения, комедия, романтика, фэнтезиРежиссер: Нагахама НорихикоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniLibria)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0996C70E173334AD8D66FBBEB78DA12283C5A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628685   (199421) от 24.04.2023
 
 Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +88,7 @@ Schwarzesmarken | Schwarzes Marken | Чёрные метки [2016, TV, 12 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +115,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] BDRip 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -85,7 +167,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 2nd Season | Classroom of the El
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -114,7 +196,7 @@ Ghost in the Shell 2: Innocence | Призрак в доспехах 2: Неви
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -141,7 +223,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka IV | DanMachi IV | В п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -169,7 +251,7 @@ Black Clover: Mahou Tei no Ken | Black Clover: Sword of the Wizard King | Чёр
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -195,7 +277,7 @@ Tsugumomo | Цугумомо [2017, TV, 12 эп.] BDRip HEVC 10-bit raw+eng+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -225,7 +307,7 @@ Bakuman | Бакуман [ТВ-1] [2010, TV, 25] BDRip HEVC 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -251,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -278,7 +360,7 @@ Kawaisugi Crisis | Too Cute Crisis | Слишком милый кризис [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -305,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -332,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -359,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -386,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -413,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -440,7 +522,7 @@ Gekijouban Sword Art Online: Progressive - Kuraki Yuuyami no Scherzo | Маст�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -466,7 +548,7 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -492,7 +574,7 @@ Paprika | Паприка [2006, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -518,7 +600,7 @@ Hanma Baki: Son of Ogre 2nd Season | Baki Hanma 2nd Season | Баки — сын
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -544,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -571,7 +653,7 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -597,7 +679,7 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -608,84 +690,6 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:643B4CB82DCDF7C2B8329B3AAAB84315122794AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589597   (189845) от 10.11.2022
-
-Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of Caprice 0 | Лабиринт в серых тонах [2015, TV-special, 1 эп. + 1 SP] BDrip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189845.jpg" />
-</div>
-
-
-###  Подробнее
-
-В академии Михама, словно в монастыре, жили, укрывшись от мира, пять незаурядных девушек и молодых женщин, но Юдзи Кадзами, странник, пришедший ниоткуда, играючи покорил их всех. Для кого-то таинственный молчаливый парень стал спасителем, для кого-то – залогом старого долга, не остались незанятыми и роли старшего брата, друга, возлюбленного, учителя жизни. И где (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: приключенияРежиссер: Танака МотокиЯзык озвучки: Японский, русский (AniDub, Shiza)Субтитры: Русские (Timecraft)Продолжительность: 1 эп. по 50 мин., 1 sp по 3 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9092AAEBE31F9C0D34E4A9886252EDBBB1FB71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589592   (189842) от 10.11.2022
-
-Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых тонах [2014, TV, 13 эп. + 6 SP] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юдзи Кадзами в 10 лет потерял родителей и был воспитан людьми, для которых писаные законы – пустой звук, а чужие жизни – что трава на ветру. Творя разное, парень быстро познал законы темного мира, и ныне его разум отточен, рефлексы – совершенны, а принципы гибки, как стальной клинок. Но даже сталь имеет предел усталости, и «рыцарь ночи» обратился к знакомой хозяйке (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: романтика, комедия, драма, эттиРежиссер: Танака МотокиЯзык озвучки: Японский, русский (AniDub, Shiza)Субтитры: Русские (Timecraft)Продолжительность: 13 эп. по 25 мин., 6 sp по 5 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197A13D8DF927DC42BD3FDACB177BC4D2D0D70B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589939   (189569) от 11.11.2022
-
-Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет разворачивается вокруг Юки Курихары, девочки, которой наконец предоставляется возможность осуществить желание — встречаться с её возлюбленным по имени Шинья Момозуки. На первый взгляд она кажется обычной и очень милой девочкой. Однако Юки одержима Момо: она записывает все его действия и никогда не упускает шанс застать его в неловкий момент. С другой стороны (   Читать дальше...   )Производство: студия Satelight / サテライトЖанр: комедия, романтика, повседневностьРежиссер: Хирайкэ ЁсимасаЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (AniPlay)Продолжительность: 26 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C674DFA1531DF100E3A077F80CBE4D8FBC51C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

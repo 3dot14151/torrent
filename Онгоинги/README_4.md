@@ -1,3 +1,56 @@
+###  Публикация: 1822507   (101051) от 06.10.2025
+
+Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and Expressive Oota / Без эмоциональная Касивада и эмоциональный Ота [2025, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ухмыляясь, Оота игнорирует свои однозначные оценки и ищет новый источник развлечения. Вскоре его внимание привлекает одноклассница Касивада, загадочная ученица, которая всегда сохраняет бесстрастное выражение лица. Оота замышляет нарушить ее спокойное поведение с помощью страшилок и озорных проделок, хотя его тактика всегда приводит к обратному результату.
+Оота известен (   Читать дальше...   )Жанр: комедия, романтика, повседневность.Режиссер: Камитани ТомохироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF827ED601EC3E025F5E413EEDAF818CFAD4CC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822503   (101044) от 06.10.2025
+
+Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечка, любовь и ошибки! [2025, TV, 1 из 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Это наказание за то, что такая толстая и уродливая девчонка, как я, влюбилась в такого красавца, как ты...» Юмеко страдала от огромного комплекса неполноценности. Затем с ней произошел страшный несчастный случай. Хотя Юмеко каким-то образом удалось спастись от верной гибели, она проснулась совершенно другим человеком. «Это... я...?! Я такая милая!!» Окружающие не (   Читать дальше...   )Производство: студия Marvy Jack / マーヴィージャックЖанр: комедия, романтикаРежиссер: Кога КадзуомиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28137522DFDFFBF1AD26163B6629F889BE7E7A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822519   (101043) от 06.10.2025
 
 Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мой статус убийцы очевидно превосходит геройский [2025, TV, 1 из ?] WEBRip 720p raw
@@ -6,7 +59,7 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +111,7 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +140,7 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +169,7 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +195,7 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +222,7 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -195,7 +248,7 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +275,7 @@ Shinjite Ita Nakama-tachi ni Dungeon Okuchi de Korosarekaketa ga Gift "Mugen Gac
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -248,7 +301,7 @@ Mofa Gongzhu de Xiao Fannao | Who Made me a Princess | Однажды я ста�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -274,7 +327,7 @@ Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. / Мой от�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -301,7 +354,7 @@ Sawaranaide Kotesashi-kun / Don't Touch Kotesashi / Не трогай меня, 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +381,7 @@ Alma-chan wa Kazoku ni Naritai / Alma-chan Wants to Be a Family! / Альма х
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +407,7 @@ Ranma 1/2 (2025) | Ранма 1/2 (2024) [ТВ-2] [2025, TV, 1 из 12] WEBRip 7
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +433,7 @@ Kikaijikake no Marie | Mechanical Marie | Механическая Мари [202
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +461,7 @@ Toujima Tanzaburou wa Kamen Rider ni Naritai | Tojima Wants to Be a Kamen Rider 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -437,7 +490,7 @@ Sanda | Санда [2025, TV, 1 из 12 эп.] WEBRip 1080p raw+eng
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -465,7 +518,7 @@ Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда �
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -491,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -517,7 +570,7 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -543,7 +596,7 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,7 +622,7 @@ Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! | Леди
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,7 +648,7 @@ Lets Play: Quest Darake no My Life | Сыграем [2025, TV, 1 из 12 эп.] 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -621,7 +674,7 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -632,58 +685,6 @@ Shabake | Мирские стремления [2025, TV, 1 из 12 эп.] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C422F1B324E1DE3FC91BCD1E9798C7BA7AAB6E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821958   (91153) от 04.10.2025
-
-Saigo ni Hitotsu dake Onegai Shite mo Yoroshii Deshou ka | May I Ask for One Final Thing? | Могу попросить ещё кое-что? [2025, TV, 1 из 13 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91153.jpg" />
-</div>
-
-
-###  Подробнее
-
-В детстве леди Скарлет часто ввязывалась в драки, предпочитая словесной перепалке кулаки. Она считала, что поступает правильно и приносит благо обществу, наказывая обидчиков, но подобное поведение порицалось в высшем обществе, поэтому старший брат постоянно отчитывал сестру за нелепые выходки. Но в итоге увещевания близких и помолвка со вторым принцем королевства (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключения, фэнтезиРежиссер: Сакамото КадзуяПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E54C459A3E99C281791B03908A08184F95ADDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821382   (52138) от 02.10.2025
-
-Kakuriyo no Yadomeshi Ni | Kakuriyo: Bed and Breakfast for Spirits Season 2 | Повар небесной гостиницы [ТВ-2] [2025, TV, 1 из 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студентка колледжа по имени Аой унаследовала от своего покойного деда способность видеть духов. Аой гордится своим кулинарным мастерством, и однажды она кормит духов капп, когда внезапно появляется бог и хозяин «Тэндзинья» (Небесной гостиницы) и забирает Аой. Он говорит, что из-за долгов деда она должна стать его невестой. Аой не нравится эта идея, и она заявляет, (   Читать дальше...   )Производство: Gonzo, MakariaЖанр: фэнтезиРежиссер: Ёсидзаки ДзёПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1376E29AF087AE39D4EAE19B49497D28AAC29AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

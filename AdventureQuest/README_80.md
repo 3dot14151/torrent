@@ -1,3 +1,107 @@
+###  Публикация: 1730396   (53236) от 15.06.2024
+
+Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Куда попадает наша душа перед тем, как перевоплотиться? Это мир Промежутка, затерянный между сном и явью. Здесь нет плохих и хороших, нет добра и зла, этот мир живет по своим законам. В нем сложно выжить и еще труднее – спастись. Лишь одна субстанция питает обитателей Промежутка – Цвет. Все вокруг: предметы, чувства, существа – ее источник, а любое действие ведет (   Читать дальше...   )Тип издания: RepackРазработчик: Ice-Pick LodgeЖанр: Экшены, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701687   (53080) от 17.06.2024
+
+Q.U.B.E. 10th Anniversary (2022) [Ru/Multi] (1.4.24) Repack dixen18
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Q.U.B.E. 10th Anniversary - переиздание культовой головоломки от первого лица, добавляющее огромное количество нововведений, среди которых дополнительная глава, новые пазлы, переработанные геймплейные аспекты, улучшенные визуальные эффекты и многое другое. QUBE 10 предлагает пройти Дублированный Сектор 8 - полноценную новую кампанию на 4-6 часов реального времени.Тип издания: RepackРазработчик: Toxic GamesЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1177FF3F077DBE5A551868310F886794B56EE7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730984   (52959) от 18.06.2024
+
+Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1975 год. В водах Шотландии терпит катастрофу буровая платформа «Бейра Д». Исследуйте тонущую платформу и спасите членов своего экипажа от ужаса за гранью логики и реальности. Still Wakes the Deep - возвращение к жанру ужаса от первого лица от The Chinese Room, создателей получивших признание игр Amnesia: A Machine for Pigs, Everybody’s Gone to the Rapture и Dear (   Читать дальше...   )Тип издания: SceneРазработчик: The Chinese RoomЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F4D003B3673CE1C8ACFDFBA7112C6E2A9BC025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730967   (52925) от 18.06.2024
+
+Chiyo (2024) [Multi] (1.0.6.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Chiyo - это посвященный японской мифологии инди-хоррор от первого лица. Перенеситесь в прошлое, в эпоху правления Эдо, запомнившееся за счет рассвета паранормальной активности. Обладающая сверхъестественными способностями Идате Чиё пытается раскрыть какой злой дух поселился в заброшенном особняке, но даже такой опытный экстрасенс был не готов к ужасу, который разразится (   Читать дальше...   )Тип издания: SceneРазработчик: Nimbus GamesЖанр: Экшены, Приключенческие игры, СимуляторыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5BF4D710B25F91176FA05483F90FF244BEC266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731105   (52870) от 19.06.2024
 
 HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
@@ -6,7 +110,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Night is Grey (2024) [En] (1.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ A Castle Full of Cats (2022) [Ru/Multi] (1.08) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Homebody (2024) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Alisa (2021) [Multi] (1.18) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ A Tower Full of Cats (2024) [Ru/Multi] (1.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ REPUNK (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ HORROR TALES: The Beggar (2024) [Ru/Multi] (14729589) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Robbo Millennium (2000) [Pl] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Fork Road (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51694.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (2.618.0.0/dlc) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack seleZ
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Day Of Survival (2024) [En] (1.0) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16C44F3364B9F3608BAAE708AA11B9BAECD06718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733668   (51517) от 30.06.2024
-
-SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51517.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPY×ANYA: Operation Memories ставит вас на место очаровательной Ани Форгер, которой поручено задание чрезвычайной важности: создать фотодневник. Эта адвенчура - не типичный шпионский триллер, а очаровательная смесь повседневной жизни и странных задач. Вам предстоит провести Аню через школу, семейные праздники и увлекательные путешествия, и все это с целью запечатлеть (   Читать дальше...   )Тип издания: SceneРазработчик: GrooveBoxJapanЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Испанский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Испанский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF00E107CA5D56B41A8A695EE4B555235BDFEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734182   (51342) от 02.07.2024
-
-GASPING.2 (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51342.jpg" />
-</div>
-
-
-###  Подробнее
-
-GASPING.2 - это однопользовательская игра на выживание. В заброшенном игровом мире игроки будут собирать отходы, еду и реквизит, а затем с помощью производственного стола изготавливать необходимые припасы, используя газовую плиту для приготовления пищи. В пустыне есть 30 огромных вентиляционных башен, возле которых прячутся песчаные черви. Убив песчаных червей, вы (   Читать дальше...   )Тип издания: RepackРазработчик: Citizen's Arrow StudioЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B42B9596D6182E7E52AA3E90BE5D9055D1A014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734085   (51327) от 02.07.2024
-
-SPY×ANYA: Operation Memories (2024) [Multi] (1.0.5/dlc) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51327.jpg" />
-</div>
-
-
-###  Подробнее
-
-SPY×ANYA: Operation Memories ставит вас на место очаровательной Ани Форгер, которой поручено задание чрезвычайной важности: создать фотодневник. Эта адвенчура - не типичный шпионский триллер, а очаровательная смесь повседневной жизни и странных задач. Вам предстоит провести Аню через школу, семейные праздники и увлекательные путешествия, и все это с целью запечатлеть (   Читать дальше...   )Тип издания: RepackРазработчик: GrooveBoxJapanЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Испанский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Испанский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C3E524C43651BF51594935D1A16BAC7286F3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734462   (51212) от 03.07.2024
-
-STUFFED (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51212.jpg" />
-</div>
-
-
-###  Подробнее
-
-STUFFED - это процедурно-генерируемый шутер от первого лица, действие которого происходит во сне маленькой девочки. Играя за плюшевого медвежонка, вы будете сражаться с кошмарами, защищая свою хозяйку. Играйте в одиночку или с друзьями в режиме совместной игры до 4 участников.Тип издания: RepackРазработчик: Waving Bear StudioЖанр: Экшены, Казуальные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE7B78AB22DEE0C0FEEAB8C75A44D12ACD88F8F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

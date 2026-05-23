@@ -1,25 +1,22 @@
-###  Публикация: 1578176   (348167) от 22.09.2022
+###  Публикация: 953022   (351425) от 03.11.2015
 
-One Mind Ministry - Gates of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
+SRWare Iron 46.0.2450.0 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. No Funeral [00:03:36]
-02. Her Shadows [00:03:32]
-03. Beholder [00:04:21]
-04. Revelation [00:04:52](   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:32:25
+Безопасный, удобный и быстрый в работе браузер на основе исходного кода проекта Chromium. Обладая интерфейсом и многими функциями, знакомыми пользователям по Google Chrome, SRWare Iron отличается своей политикой по отношению к безопасности и конфиденциальности. В нем отсутствуют какие-либо «следящие» модули, в чем неоднократно обвинялся браузер от Google.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25CC6775FBFFF9E9D2722042896027864B7E552D
+magnet:?xt=urn:btih:9B74A3F574D374852D391C7535CF7A387BD30331
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578371   (348166) от 22.09.2022
+###  Публикация: 953097   (351424) от 03.11.2015
 
-Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
+Обои - Fantastic pictures part 60 [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Ruins [00:04:20]
-02. Lost Shoes Blues [00:06:23]
-03. Hear Them Coming [00:04:16]
-04. Graveyard Of Giants [00:05:09](   Читать дальше...   )Жанр: Heavy Psych, Stoner, Bluesy RockПродолжительность: 2 CD, 01:12:31
+Обои на фантастическую тему.Формат: JPGРазрешение файлов: 1920x1080 - 2560x1600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C6A5154E000D3E139DF36E485AFE8E5F7DE9B3B
+magnet:?xt=urn:btih:21BC01E57DF470664644EAB43A42ED54B4871A72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578306   (348165) от 22.09.2022
+###  Публикация: 953229   (351423) от 03.11.2015
 
-Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
+Fedora 23 Wayland Live (KDE, XFCE, MATE Compiz, LXDE, SoaS + Cinnamon) [i686] 6xDVD
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Linux, Unix и другие ОС
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Future Shock 	4:33
-02. False Messiah	5:16
-03. Black Night    	3:40
-04. Witch-Hunt      	3:19(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 00:40:38
+Официально представлен релиз Linux-дистрибутива Fedora 23. Для загрузки доступны 32- и 64-разрядные сборки продуктов Fedora Workstation, Fedora Server и Fedora Cloud, а также набор "спинов" c Live-сборками десктоп-окружений KDE, Xfce, LXDE, MATE-Compiz, Cinnamon и SOAS (Sugar on a Stick).
+
+Дополнительно поставляется образ для Docker и сборки для различных (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7308C6E5CE58FACAA4FFDB82DBA892EF0F4FE3E
+magnet:?xt=urn:btih:DD88D7709BD7FD4DA5FD005882B47F28B0468C08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578365   (348164) от 22.09.2022
+###  Публикация: 953026   (351422) от 03.11.2015
 
-Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Rock, Speed Metal, Heavy Metal>
+Cyberfox 42.0 for Intel + Portable [Ru/En]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Chasing Shadows	4:38
-02. 4th Reich	5:49
-03. Eyes Of The World	5:57
-04. Hold On To Your Dream	3:34(   Читать дальше...   )Жанр: Rock, Speed Metal, Heavy MetalПродолжительность: 01:08:32
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры Intel. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC335291AAE17EEF1CF2C0027A593FD7C1521CB8
+magnet:?xt=urn:btih:9134603E8E1898568C19832ED401D933678E0319
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +104,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578178   (348163) от 22.09.2022
+###  Публикация: 953176   (351421) от 03.11.2015
 
-Moritz - About Time Too (2017) [FLAC|Lossless|image + .cue] <AOR, Melodic Rock>
+Kylie Minogue - Kylie Christmas (2015) [MP3|320 кб/с]<Pop, Christmas>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. About Time Too
-02. One More Beautiful Day
-03. To The Moon and Back
-04. Chance Of A Lifetime(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:52:01
+01. It’s the Most Wonderful Time of the Year
+02. Santa Claus Is Coming to Town (with Frank Sinatra)
+03. Winter Wonderland
+04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60A955551BAAC28E615C258E2AAF0B4B519ABA06
+magnet:?xt=urn:btih:74021EA244979EA2A25DF67C4412D3FF8DAC137B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578287   (348162) от 22.09.2022
+###  Публикация: 953105   (351420) от 03.11.2015
 
-Stratovarius - Enigma: Intermission II (2018) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ballad>
+Обои - Best Wallpapers Mixed 163 [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Enigma
-02. Hunter
-03. Hollowed
-04. Burn Me Down(   Читать дальше...   )Жанр: Rock, Power Metal, BalladПродолжительность: 01:15:01
+Обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4055A801266A687250634CF97BC271C2C211DC4
+magnet:?xt=urn:btih:F7644622571C52EC98FC9D213686A24F337B2C70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +159,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578303   (348161) от 22.09.2022
+###  Публикация: 765649   (351419) от 03.11.2015
 
-Ellis Marsalis - Whistle Stop (1994) Columbia [WavPack|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+Bersarin Quartett - Discography 5 Releases (2008-2015) [MP3|320 кб/с]<Dark Ambient, Modern Classical, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Verflossen Ist Das Gold Der Tage (03:34)
+ 02. Staub Und Sterne (04:31)
+ 03. Hinter Uns Die Wirklichkeit (04:14)
+ 04. Bedingungslos (04:17)(   Читать дальше...   )Жанр: Dark Ambient, Modern Classical, Ambient |Продолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5EEFAD69B49F8153D343342B62B90462A409A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952993   (351418) от 03.11.2015
+
+New York Jazz Trio - Christmas Songs & Classics (2015) [MP3|320 кб/с]<Christmas, Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-01. Whistle Stop [4:58]
-02. Dee Wee [6:33]
-03. A Moment Alone [4:18]
-04. Magnolia Triangle [6:07](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:12:42
+Также известный как New York Trio, чисто студийный джазовый коллектив специализирующийся на записи классических произведений.01. The Christmas Song "Chestnuts Roasting On An Open Fire"
+02. Jingle Bells
+03. I'll Be Home For Christmas
+04. Santa Baby(   Читать дальше...   )Жанр: Christmas, JazzПродолжительность: 00:52:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D51D56FD7674E99B40B63CFC863BD4009931A4C
+magnet:?xt=urn:btih:A80B49C06CC9F5D251738E61D070D52830D394DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,306 +217,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578201   (348160) от 22.09.2022
+###  Публикация: 953153   (351417) от 03.11.2015
 
-Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maniac (05:51)
-2. A Girl (04:41)
-3. So Jealous (05:16)
-4. Emptiness (05:09)(   Читать дальше...   )Жанр: Rock, Prog-RelatedПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83252CC79D9ADEC71DCFF6DB72BADC1551DB207B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578166   (348159) от 22.09.2022
-
-Prayer - Silent Soldiers (2018) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Treatment
-02. Rock And A Hard Place
-03. Fires Of The Heart
-04. Feel Like A Prisoner(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3BE97C53D8203A81193627A702F48399EFA8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578216   (348158) от 22.09.2022
-
-water, please - Welcome to Waterline (2022) [MP3|320 Kbps] <post rock, indie rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sandking [00:06:01]
-02 - Welcome to the City [00:05:05]
-03 - Nostromo [00:06:37]
-04 - Poseidon [00:04:18](   Читать дальше...   )Жанр: post rock, indie rockПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665A8B3BEFE6453BE7A236FBEDFE96C9657F5CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578223   (348157) от 22.09.2022
-
-Supergrass - Supergrass (1999) 2CD, Remaster, 2022, Echo [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving (John Leckie 2022 Remix) [00:05:23]
-02. Beautiful People (2022 Remix) [00:03:54]
-03. Pumping On Your Stereo (John Leckie & Mick Quinn 2022 Remix) [00:03:46]
-04. Born Again (2022 Remix) [00:03:34](   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F927E3E3BC05DF688042DB105BB82F3699B1B28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578369   (348156) от 22.09.2022
-
-Deadheaven - 2 Albums (2014-2022) [MP3|320 Kbps] <Modern Metal, Cyber Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:02]
-02. Продай свою душу [00:04:08]
-03. Мишень [00:03:44]
-04. Система - смерть [00:05:12](   Читать дальше...   )Жанр: Modern Metal, Cyber MetalПродолжительность: 2 CD, 01:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DF3699372EB1842249FF08231C79846AC7F4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578377   (348155) от 22.09.2022
-
-Маленький патриот из Падуи / Il piccolo patriota padovano (1915) WEBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Драматическая история о маленьком итальянце, который волею судеб попадает в бродячий цирк, но сбегает оттуда. И всеми силами пытается вернуться на родину. А родину свою, солнечную Италию, он помнит и преданно любит. И готов отстаивать ее честь на чужбине.Производство: Италия, Film Artistica Gloria (Torino)Жанр: драма, короткометражный, немое киноРежиссер: Леопольдо КарлуччиАктеры: Ermanno RoveriПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0E472649F03AAE56A08B60A86CA900C242291A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578286   (348154) от 22.09.2022
-
-Anthea - Tales Untold (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tales Untold (04:09)
-02 - Ascendence (03:21)
-03 - Song for Winter (04:03)
-04 - The Deceiver (05:11)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41DD9D7F978DAACAC9CA382D30572C9B01C69FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724428   (348150) от 21.11.2013
-
-Бестолковые / Clueless (1995) BDRip [H.264/720p-LQ]  [Hi10P]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Папа-адвокат получает 500 долларов в час за то, что ругается с клиентами. Его дочь выбирает одежду для школы по компьютеру - богата. Ее подруга Дионн устраивает на голове сооружения, выполняющие функции головного убора при полном отсутствии головного мозга. У всех школьников пэйджеры и мобильные телефоны.
-Представляете, каково приходится их бедным, низкооплачиваемым (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Эми ХекерлингАктеры: Алисия Сильверстоун, Стейси Дэш, Бриттани Мерфи, Пол Радд, Дональд Фэйсон, Элиза Донован, Брекин Мейер, Джереми Систо, Дэн Хедайя, Уоллес Шоун и др.Перевод: Профессиональный (многоголосый закадровый), Профессиональный (двухголосый закадровый), Авторский (одноголосый закадровый)Язык субтитров: АнглийскийФормат: MKVПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC60FF94D690E4C65AD556F70BD0CD4675DC71EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409712   (348129) от 12.11.2011
-
-Александр Бушков | Бешеная (Книга 1) (2000) [MP3, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающая история, разворачивающаяся на страницах романа "Бешеная", начинается с череды зверских убийств, отмеченных почерком маньяка. Очаровательная девушка, сотрудница уголовного розыска, идя по следам убийцы, проникает в самое логово секты сатанистов.
- Роман «Бешеная» – первая книга из цикла произведений о капитане Дарье Шевчук, старшем оперуполномоченном (   Читать дальше...   )Жанр: ДетективИздательство: Нигде не купишь
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E09FCD52FE05B2CF9EC6434A295E5EF8D8B3658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409589   (348126) от 12.11.2011
-
-Карлос Руис Сафон | Кладбище Забытых Книг (Книга 1). Тень ветра [2011] [MP3, Николай Бенцлер]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие романа начинается в 1945 году в Барселоне, где герой, будучи еще десятилетним мальчиком, знакомится с некой таинственной книгой, которая совершенно меняет его жизнь. На протяжении двадцати лет герой пытается разгадать тайны, связанные с этой книгой, встречая на своем пути странных незнакомцев, ослепительно красивых женщин, изучая заброшенные владения проклятого (   Читать дальше...   )Жанр: МистикаИздательство: Нигде не купишьПродолжительность: 18:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458E4E7B9683289B2D8CE7D785AB0B460AF87616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409812   (348122) от 12.11.2011
-
-Андрей Вознесенский | Ров [1987] [MP3]
+Олег Мазурин | Убить отступника (2015) [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Андрей Андреевич Вознесенский (1933–2010) – русский поэт, прозаик, художник, архитектор. Один из самых известных поэтов-шестидесятников.
-Вы услышите необычное чтение поэтом своих стихов, хотя по природе своей оно всегда необычно.Жанр: ПоэмаПродолжительность: 00:48:19
+В декабре 1825 года в Санкт–Петербурге, столице Российской империи, произошло восстание заговорщиков, которых позже назовут декабристами. Мятеж был подавлен, но, как известно, «декабристы разбудили Герцена», а тот «развернул революционную агитацию», что имело весьма существенные последствия – как для нашей страны, так и для всего мира в целом… Достаточно сказать, (   Читать дальше...   )Жанр: Историческая фантастика, Альтернативная историяФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3474FE1F8CA4C9290CBF9427D3EDA529EEABE6DC
+magnet:?xt=urn:btih:6C5FC4CE9D8FF4A90A0BA44CAA937CB27C056184
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,25 +243,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 409434   (348115) от 12.11.2011
+###  Публикация: 953111   (351416) от 03.11.2015
 
-Владислав Крапивин | Гуси-гуси, га-га-га... (2011) [MP3]
+Movist 1.3.18 [Multi/Ru]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Корнелий Глас, благополучный обыватель, в одночасье оказывается на самом дне жизни. В буквальном смысле. На пороге смерти он знакомится с детьми без будущего, и это знакомство переворачивает все его существование... Возможен ли взлет со дна к небу?..Жанр: ФантастикаПродолжительность: 08:04:03
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+
+Movist больше не поддерживает декодер QuickTime, только FFmpeg. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 ноября 2015Разработчик: MovistПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BAADCDBD15D3C75F845FBB89DE1A6F26BC5A81E
+magnet:?xt=urn:btih:B6E14FFC7BB2D21FCFDF053B0857250735DA466E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,30 +271,240 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467679   (348113) от 23.11.2012
+###  Публикация: 953135   (351415) от 03.11.2015
 
-Beneath The Massacre - 3 альбома (2007/2008/2012) [FLAC/APE|Lossless]<Brutal / Technical Death Metal>
+AdwCleaner 5.017 Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_348113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Beneath The Massacre - технодэт/брутал-команда из Монреаля, Квебек, Канада, собравшаяся в 2004 году. Их музыка частично инспирирована хардкором и разбавлена странными брейкдаунами и "грувовыми" риффами.01. Symptoms (3:06)
-02. Hunted (2:28)
-03. Left Hand (2:42)
-04. Hopes (3:33)
-05. It (2:57)
-06. Light (2:51)
-07. Incongruous (1:04)
-08. Pedestal (3:32)
-09. Grief (2:15)
-10. Damages (3:49)(   Читать дальше...   )Жанр: Brutal / Technical Death MetalПродолжительность: 00:31:12
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DD24A84FBA368741E28DAD1D73A2EED87D0AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178998   (351414) от 30.10.2017
+
+VA - Electrozombies - Undead And Open-Minded: Volume 3 (2017) [MP3|320 Kbps] <Synthpop, Electropop, Futurepop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. digital ENERGY - Trust (Electrozombies Version) (04:05)
+02. Ray Noir - All Alone (Feat. Mariann Rosa) (03:20)
+03. Lorelei Dreaming - Echo Chamber (03:53)
+04. Softwave - On And On And On (Jerry's Alternate Version) (03:13)(   Читать дальше...   )Жанр: Synthpop, Electropop, FuturepopПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC606A43F4E8246728586E96351BB611800088E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179152   (351413) от 30.10.2017
+
+Векторный клипарт - Halloween collection 45 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Хэллоуин
+36 EPS PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAF99A9044E6246DCE9D9F8DBFE52C0D0B91915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179040   (351412) от 30.10.2017
+
+Э. А. Асратян, А. М. Рябиновская | Учение Павлова и психика верующего человека (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+К числу самых могущественных средств борьбы с религией, взятых на вооружение современным передовым естествознанием, принадлежит и великое материалистическое учение И. П. Павлова о высшей нервной деятельности. Учение Павлова, будучи одним из фундаментальных во всем естествознании и философии, служит убедительнейшим опровержением религиозных догм о бессмертной душе, (   Читать дальше...   )Жанр: История, религиоведение, философия, психологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACC34FE397BDB8EBEE6B6EB01AD9C9CC599AE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179148   (351411) от 30.10.2017
+
+Векторный клипарт - Halloween collection 44 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Хэллоуин
+22 EPS PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52AAE592D6A9E253ABA427EF84846C00D0C2184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178750   (351410) от 30.10.2017
+
+VA - Solarstone Presents Pure Trance Vol.6 (Mixed by Robert Nickson, Solarstone & Factor B) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.  David Forbes & Hal Stucker - Monolith (Original Mix) 4:30
+02.  Slam Duck - Mercury II (Original Mix) 4:45
+03.  Matter - The Bends (Original Mix) 4:18
+04.  Forerunners - Just For A While (Original Mix) 3:55(   Читать дальше...   )Жанр: TranceПродолжительность: 06:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D2E28F204E204DC9E3C8F2741164323759E573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179176   (351409) от 30.10.2017
+
+Журнал | Дарья. Биография №12 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дарья. Биография - захватывающие и неординарные истории о судьбах известных людей, чьи имена стали легендами.
+Какими на самом деле были эти люди, как добивались успеха и переживали поражения? Кого любили, о чем думали и мечтали? Об их судьбах, порой непростых и трагических, расскажет новый журнал "Дарья. Биография". Каждый месяц вас ждут захватывающие, (   Читать дальше...   )Жанр: Жизнь знаменитых людейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC49779DF4C0F8B7EC952FDD57D46D80F868143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179238   (351408) от 30.10.2017
+
+Журнал | Мир криминала №22 (ноябрь 2017) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Самые громкие и скандальные преступления в России и за рубежом, специальные расследования, эксклюзивные материалы из жизни преступного мира - на страницах очередного номера журнала.Жанр: История, криминалистика, детективФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2887E358339B1B6117616968EB96A723A90AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179076   (351407) от 30.10.2017
+
+Журнал | Сваты на кухне №10 (36) (октябрь 2017) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+"Сваты на кухне" - журнал, в котором своими любимыми рецептами делятся читатели. В каждом номере более 200 кулинарных и околокухонных советов, «вкусные» премудрости, праздничные, экономные и быстрые рецепты. Читатели получат множество кулинарных советов, которые смогут тут же применить на практике; разнообразят свое домашнее меню с помощью рецептов-помощников, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -569,29 +516,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576736   (348112) от 23.11.2012
+###  Публикация: 1179003   (351406) от 30.10.2017
 
-Ben Vida - Esstends-Esstends-Esstends (2012) [MP3|~245 кб/с (V0)]<Abstract, Musique Concrète, Experimental>
+VA - Cult Classic Records Presents (2017) [FLAC|Lossless|Web-DL|tracks] <Chill Hop, Instrumental Hip-Hop, Jazz Hop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-1. Qweek Plus Enner (Outro Too)
-2. Zizzlerz
-3. Ssseeeeiiiiii
-4. Pin Ans Sweep
-5. EnnerForrance (Esstend III)Жанр: Abstract, Musique Concrète, ExperimentalПродолжительность: 00:36:33
+01. Uppeach & Thomas Prime – NordanVinden (2:57)
+02. SamuraiGuru & Thomas Prime – Watch'N lil Bill (2:18)
+03. Saib. & Thomas Prime – Sand Castles (3:16)
+04. Vessel & Prime – These Are My Tears (2:57)(   Читать дальше...   )Жанр: Chill Hop, Instrumental Hip-Hop, Jazz HopПродолжительность: 00:43:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2EFA32CC234DC18D05A8A7B440938DDEF0F89B5
+magnet:?xt=urn:btih:1F95A986F41F228B1040374030F2833CD5977035
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,25 +545,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579826   (348110) от 23.11.2012
+###  Публикация: 1179151   (351405) от 30.10.2017
 
-Журнал | Shape №12 [декабрь 2012] [PDF]
+VA - Club Traxx - Psy Progressive 3 (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Audiofire (UK) - Charaka (Yeke Yeke Edit)
+02. Indra - Games of Psy
+03. Astrix - Follow Me (Stryker Remix)
+04. Sonic Species - Just Another Freak (Vertical Mode Remix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DFBA61D5115188059C478C2F81916585F1E45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179141   (351404) от 30.10.2017
+
+Векторный клипарт - Halloween collection 42 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+ХэллоуинФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71B11894C0CBFD8E82C98B6F025097A40C691ED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179183   (351403) от 30.10.2017
+
+Журнал | Загадки истории №41 (октябрь 2017) [PDF]
 
 >>Журналы
->>Женские журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-"Shape" - журнал для женщин, которые желают быть собой, но при этом стремятся к совершенствованию. На страницах журнала представлены материалы о том, как стать модной, выглядеть привлекательной, правильно заботиться о своем здоровье, изменить и сохранить свою фигуру, справляться с жизненными проблемами, где отдыхать, что читать, как организовать свой досуг и многое другое.Формат: PDF
+Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CB6ED2867FD7B7959127264E71334B01E294142
+magnet:?xt=urn:btih:660419273FE0769274BAFB4509F5061E1634CA4D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +627,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579950   (348105) от 23.11.2012
+###  Публикация: 1179196   (351402) от 30.10.2017
 
-Геттисбург/ Gettysburg (1993) BDRip
+VA - Hits Cocktail Vol.14 (2017) [MP3|320 Kbps] <House, Club, Dance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Осень 1863 года. Армия конфедератов продвигается к северу Пенсильвании. Впереди их ожидают вражеские дивизии. Две великие армии встретятся в Геттисбурге. Три долгих дня судьба будущей неделимой нации будет висеть на волоске…Производство: СШАЖанр: Драма, Военный, ИсторияРежиссер: Рональд Ф. МаксвеллАктеры: Том Беренджер (Tom Berenger), Мартин Шин (Martin Sheen), Стивен Лэнг (Stephen Lang), Джефф Дэниелс (Jeff Daniels), Ричард Джордан (Richard Jordan), Эндрю Прайн (Andrew Prine), Купер Хукаби (Cooper Huckabee), Патрик Горман (Patrick Gorman)Перевод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 04:31:14
+001.  Dmitrii G feat. Misha Klein - Rainbow Girl 5:09
+002.  Sick Individuals feat. Greyson Chance - Walk Away 3:18
+003.  Burak Yeter - Echo (Rocket Fun Remix) (Original Mix) 3:45
+004.  Teknova - Spaceships (Original Mix) 3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:35:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:267EB251952F2E63A233160606ACD92F638B32B2
+magnet:?xt=urn:btih:5DF99A53AC4E0B5522C89FF8AB2A43E0D647C003
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +656,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579065   (348103) от 23.11.2012
+###  Публикация: 1179197   (351401) от 30.10.2017
 
-Чеви Стивенс | Похищенная [2011] [TXT, FB2, RTF]
+Журнал | Военная история №12 (2017) [PDF]
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-Целый год взаперти, один на один с похитителем-психопатом - и некогда самодостаточная Энни О'Салливан уже не властна над своим телом и близка к потере рассудка. Но даже в ее воспаленном мозгу не могла родиться мысль о том, что она не случайная жертва и кто-то помог маньяку сделать выбор. Выжить любой ценой... Теперь Энни не остановится даже перед убийством.Формат: TXT, fb2, RTF
+Тематическое издание для всех интересующихся развитием военного дела от древних времен до наших дней. Масса интересного и познавательного не только для тех, кто любит историю. Знаменитые крепости, великие полководцы, ручное оружие, женщина на войне. И многие другие смежные темы - в статьях нового номера издания.Жанр: Популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43F7F7970EFD3B04518A82EC0C21F82DF41B74A1
+magnet:?xt=urn:btih:CE22BFD4FDFA81861C3CCF27FBA4D85DD0ADD747
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,51 +682,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 579859   (348102) от 23.11.2012
+###  Публикация: 1179070   (351400) от 30.10.2017
 
-Domino Rally [Wii] [ENG] [NTSC] (2009)
+Танцы (2017.10.29) WEB-DLRip (сезон 4, выпуск 12)
 
->>Архив торрентов
->>Архив Игр
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
 ###  Подробнее
 
-В городе полно людей в беде. Сделайте свой путь через целый ряд этапов, включая парк, поле для гольфа, ночь городского и даже концертный зал, так вы пытаетесь помочь людям с их проблемами.Жанр: ActionЯзык интерфейса: ENG
+Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 02:30:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D202D22FCD9CE39B45019097CA2E9C1AE4B0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579779   (348100) от 23.11.2012
-
-[Wallpapers] обои Деушки НЮ(часть 2)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые девушки НЮ,откровенных(слишком)фото нет.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E6082D76508E679BBC332AC8D6670DF9885F15
+magnet:?xt=urn:btih:1F52C197AF9F38E61857B556951E091EFF56F899
 ```
 
 https://mybot314.ru/tekegram_catalog/

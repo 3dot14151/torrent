@@ -1,3 +1,111 @@
+###  Публикация: 1513743   (164267) от 13.12.2021
+
+Большие манёвры / Grandes manoeuvres, Les (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Красавец-офицер Арман де ла Верн заключает со своими друзьями пари, что до начала манёвров соблазнит неприступную Мари-Луизу Ривьер с такой же лёгкостью, как любую другую девушку. Его стремление заканчивается тем, что он по-настоящему влюбляется...Производство: Франция, Италия, Cinétel, Filmsonor S.A., Rizzoli Film S.p.a., S.E.C.A.Жанр: драма, мелодрама, комедияРежиссер: Рене КлэрАктеры: Мишель Морган, Жерар Филип, Жан Дезайи, Пьер Дюкс, Жак Фаббри, Жак Франсуа, Ив Робер, Брижит Бардо, Лизе Деламар, Жаклин МайянПеревод: дублированный, профессиональный многоголосыйСубтитры: французские, английскиеПродолжительность: 01:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA55E2E8C2EDA84A35E515FD4BCD19837FA763A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343905   (164208) от 18.12.2019
+
+Первая полоса / The Front Page (1974) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм о чокнутых и диких чикагских газетчиках 20-х годов. Хилди Джонсон главный репортер в Чикагской газете. Он намерен уйти с работы, чтобы жениться. Его главный редактор Уолтер Бернс, имеет другие планы и не намерен его отпускать.Производство: США / Universal PicturesЖанр: КомедияРежиссер: Билли УайлдерАктеры: Джек Леммон, Уолтер Мэттау, Сьюзен Сарандон, Винсент Гардения, Дэвид Уэйн, Аллен Гарфилд, Остин Пендлтон, Чарльз Дёрнинг, Херб Эдельман, Мартин ГабелПеревод: Двуголосый профессиональный, авторскийСубтитры: АнглийскиеПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B659FEC51A73D1EF8B233AAB759960DEA4BFA55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427256   (164094) от 17.12.2020
+
+1863 год / Rok 1863 (1922) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+По роману "Верная река" Стефана Жеромского.
+Старейшая в польской кинематографии целиком сохранившаяся экранизация литературного произведения.
+
+1863 год. Царство Польское охвачено кровавыми сражениями между польскими повстанцами и царскими войсками. Отряд русских драгунов гонится за остатками разбитого отряда восставших. Среди них князь Юзеф Одровонж. Изнемогая (   Читать дальше...   )Производство: ПольшаЖанр: Драма, мелодрама, историяРежиссер: Эдвард ПухальскийАктеры: Рышард Собишевский, Мария Хрыневич, Казимеж Ласоцкий, Хенрик Рыдзевский, Станислава Хшановска, Антоний Беднарчик, Хелена Марселла-Палиньска, Станислав Хрыневич, Александр Зельверович, Мечислав Гельневский, Ама ВолковичЯзык озвучки: НемойСубтитры: Польские интертитры, русские отдельным файломПродолжительность: 01:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA3F5F3D14C8FDB67AE4AA5C01BDB41C7B8F293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427632   (163789) от 17.12.2020
+
+Гнев сабель / Im Reich des silbernen Lowen (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Якобы умерший магараджа из Мосула и разбойник Абу Сейф хотят завладеть сокровищами Халдеев и похищают дочь Халдейского царя, Ингдшу.
+Кара Бен Немси и Хаджи Халеф Омар отправляются на поиски принцессы. По дороге они встречают странноватого лорда Линдсея и его слугу Арчи. Всем вместе предстоит пережить массу приключений.Производство: Испания, Германия (ФРГ)/ Balcázar Producciones Cinematográficas S.A., CCC Filmkunst GmbHЖанр: ПриключенияРежиссер: Франц Йозеф ГотлибАктеры: Лекс Баркер, Мари Верзини, Ральф Вольтер, Зигхардт Рупп, Джордже Ненадович, Густаво Рохо, Анна-Мария Бланк, Чарльз Фоусет, Глория Камара, Фернандо СанчоПеревод: Многоголосый профессиональный, Петербург 5-й каналСубтитры: ОтсутствуютПродолжительность: 01:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96A4CB81F0166733FAF46800CF3779D7571EADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 176001   (162766) от 18.12.2020
 
 Сломанные побеги / Broken Blossoms (1919) DVDRip
@@ -6,7 +114,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_158339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11A0373FA32C504A6200729C2E425F6DD846B996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082974   (156163) от 22.12.2016
-
-Погоня / The Chase (1966) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штат Техас. В тихом провинциальном городке следит за порядком добропорядочный шериф Колдер. Однажды покой городка нарушает известие о том, что из тюрьмы бежал Баббер, который желает свести старые счеты кое с кем из жителей города. Коррумпированные отцы города испугались появления беглеца, ведь он слишком много знает об их грязном прошлом.Производство: США / Columbia Pictures Corporation, Horizon PicturesЖанр: Триллер, Драма, КриминалРежиссер: Артур ПеннАктеры: Марлон Брандо, Джейн Фонда, Роберт Редфорд, Э. Г. Маршалл, Энджи Дикинсон, Дженис Рул, Мириам Хопкинс, Марта Хайер, Ричард Брэдфорд, Роберт ДюваллПеревод: Дублированный, многоголосый закадровый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 02:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A787CB46E5170064C27F08F88BDBCD3CB72358AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600764   (156052) от 28.12.2022
-
-Жорж Мельес: Первый волшебник кинематографа / Georges Melies: First Wizard of Cinema (1904-1906) DVDRip (диск третий)
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается коллекция фильмов Жоржа Мельеса, изданная студией "Фликер аллей" на пяти DVD. Жорж Мельес построил первую в мире киностудию в 1896 около Парижа; оттуда увидели свет фильмы фантастические, сказочные, мечтательные, исторические, фантазийные, мелодрамы, комедии положений - даже эротические фильмы. Вы найдёте здесь образчики всех (   Читать дальше...   )Производство: Франция, StarFilmЖанр: немое кино, короткометражныйРежиссер: Жорж МельесАктеры: Жорж Мельес, Фернанда Албани, Жанна д’Альси, May de Lavergne, Клодель, Миш, Bruneval, ManuelПеревод: НемойСубтитры: Интертитры в некоторых фильмахПродолжительность: 00:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC7EF520EB342717B87784CE00A671FD1B98D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600776   (155939) от 28.12.2022
-
-Жорж Мельес: Первый волшебник кинематографа / Georges Melies: First Wizard of Cinema (1907-1908) DVDRip (диск четвертый)
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлагается коллекция фильмов Жоржа Мельеса, изданная студией "Фликер аллей" на пяти DVD. Жорж Мельес построил первую в мире киностудию в 1896 около Парижа; оттуда увидели свет фильмы фантастические, сказочные, мечтательные, исторические, фантазийные, мелодрамы, комедии положений - даже эротические фильмы. Вы найдёте здесь образчики всех (   Читать дальше...   )Производство: Франция, StarFilmЖанр: немое кино, короткометражныйРежиссер: Жорж МельесАктеры: Жорж Мельес, Фернанда Албани, Жанна д’Альси, Mlle. Bodson, Manuel, Андре МельесПеревод: НемойСубтитры: Интертитры в некоторых фильмахПродолжительность: 00:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7BFE45287C87C30CD6CBC8BA18B291E3697B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082299   (155776) от 22.12.2016
-
-Сладкая жизнь / La dolce vita (1960) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист Марчелло - наблюдатель и участник всех эпизодов жизни итальянской элиты конца 50-х годов. Женщины как тени сменяют друг друга, не задевая его чувств, даже явление американской кинодивы Сильвии, воплощения сексуальности и порока, не выводит его из ступора…Производство: Италия, Франция / Cinecitta, Gray-Film, Riama FilmЖанр: Драма, КомедияРежиссер: Федерико ФеллиниАктеры: Марчелло Мастроянни, Анита Экберг, Адриано Челентано, Анук Эме, Ивонн Фюрно, Магали Ноэль, Ален Кюни, Аннибале Нинки, Надя Грей, Лекс Баркер, Вальтер Сантессо, Жак Серна, Риккардо Гарроне, Валерия Чанготтини, Ида Галли, Лаура БеттиПеревод: Профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 02:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73623C0162D199E2AD4F74DC9AA6E078345D9E63
 ```
 
 https://mybot314.ru/tekegram_catalog/

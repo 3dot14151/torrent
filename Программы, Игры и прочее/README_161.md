@@ -1,3 +1,84 @@
+###  Публикация: 1766497   (33646) от 19.12.2024
+
+Party Hard Go v0.100034 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Party Hard вы играете за того, кто действительно устал от соседей, устраивающих громкие вечеринки. Вместо того чтобы звонить в полицию, вы решаете, что лучше убить всех - используя свой верный нож и окружающую среду. Тактическая стратегия следует за серией убийств в партиях через США.Тип издания: PaidРелиз состоялся: 18 дек. 2024 г.Разработчик: tinyBuildПоддерживаемая ОС: Android 4.4+Жанр: АркадыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC8A4CF93168059825D680EA7A38B94CBC7BC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766672   (33614) от 20.12.2024
+
+Dead God Land: Survival Games v0.0.0263 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Зомби на этих мрачных островах очень свирепые. Хорошо, что есть убежище, где я могу выжить. Смотри, я тут смастерил крутое оружие. Теперь кошмары превратятся в ночные сафари, а мы выживем в мире зомби! :) - Рик улыбнулся, размахивая огромной дубинкой с гвоздями перед мертвым зомби. Выжить на острове в компании орд зомби под силу не каждому. Общение с ходячими мертвецами (   Читать дальше...   )Тип издания: Mod (Много денег)Релиз состоялся: 4 дек. 2024 г.Разработчик: DevVision GamesПоддерживаемая ОС: Android 7.0+Жанр: ЭкшнЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADC4CD35CC279AA1C7F94B7DE60672F33BB037D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766637   (33601) от 20.12.2024
+
+MiHome v10.0.702 Mod by Vevs [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Самая быстрая и качественная модификация MiHome.
+Управление и связь с устройствами.
+Подключение устройств к сети.
+Подключение устройств друг к другу.Тип издания: ModРелиз состоялся: 19.12.2024Разработчик: Beijing Xiaomi Mobile Software Co.,LtdПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388FFCCFC93BAE42B65BD8F56821D16DE690E76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766667   (33588) от 20.12.2024
 
 Fallout Shelter 1.21.0 [Ru]
@@ -6,7 +87,7 @@ Fallout Shelter 1.21.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Mountains of Madness 8.6.161 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +139,7 @@ Exploding Kittens® 2 v0.0.19 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +166,7 @@ Beat Find / Распознавание музыки v1.6.51 Mod by Alex.Strannik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +219,7 @@ DREDGE v1.5.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +271,7 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +297,7 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33410.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +375,7 @@ Bendy and the Ink Machine v1.0.840 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +401,7 @@ A Kindling Forest v1.3 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +427,7 @@ ARK: Ultimate Mobile Edition 1.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +455,7 @@ Woolly Boy and the Circus 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +483,7 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +509,7 @@ Homo Machina v1.6.38 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +535,7 @@ Castlevania: SotN v1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -480,7 +561,7 @@ The Grinch 1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +587,7 @@ Universe For Sale 1.0.4 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +615,7 @@ Not Another Weekend v1.12 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,7 +644,7 @@ DYSMANTLE v1.4.0.03 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,7 +671,7 @@ X Downloader & Video Player v2.1.25 Premium Mod by PlatinumMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -602,85 +683,6 @@ XDownloader — это мощный инструмент, который поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769000   (32925) от 26.12.2024
-
-Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматическое размытие фона - это быстрое и простое в использовании приложение для создания потрясающих изображений с эффектом размытия фона.Тип издания: AdfreeРелиз состоялся: 24.12.2024Разработчик: Judi StudioПоддерживаемая ОС: Android 7.0+Язык интерфейса: Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739514   (32910) от 27.12.2024
-
-Радио онлайн - PCRadio v2.7.5.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный клиент для прослушивания интернет-радио. Присутствует возможность смены качества аудиопотока. Поддерживается вывод 32 битного звука. В наличии обширный каталог с категориями и возможностью поиска.
-Радио онлайн - PCRADIO Более 8 лет является лидером в области интернет вещания, благодаря технологии экономии трафика и сохранения отличного качества звука радиостанций. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 26.12.2024Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769257   (32844) от 27.12.2024
-
-Unforeseen Incidents v1.0.90 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unforeseen Incidents - это интерактивная детективная игра в классическом стиле, действие которой разворачивается в красиво нарисованном мире. Присоединяйтесь к Харпер Пендрелл и участвуйте в сложном расследовании, умных диалогах и богатом наборе персонажей в этой захватывающей приключенческой игре.Тип издания: PaidРелиз состоялся: 21 нояб. 2024 г.Разработчик: Application Systems Heidelberg Software GmbHПоддерживаемая ОС: Android 10+Жанр: ПриключенияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 ```
 
 https://mybot314.ru/tekegram_catalog/

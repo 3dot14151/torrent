@@ -1,3 +1,107 @@
+###  Публикация: 905097   (653205) от 04.06.2015
+
+Стивен Ходж | Дзэн-буддизм. Уроки мудрости учителей дзэн (2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мудрость и простота, изящная поэзия и юмор, а иногда провокационные высказывания, эксцентричное поведение и нетрадиционные методы обучения, все это уроки великих учителей дзэн-буддизма. В книге описываются ключевые аспекты жизни и учения девятнадцати великих дзэнских учителей, которые на своем примере показали, как освободиться от страданий, достичь спокойствия и (   Читать дальше...   )Жанр: История, Биографии, Религии мираФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19D550286A1B9826AC2E6162E1D26D3C32B663B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904942   (653203) от 04.06.2015
+
+Криста Лестер | Буддизм по-кроличьи. Вприпрыжку по пути к просветлению (2014) [PDF, DOCX, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Счастливый и умиротворенный кролик приносит радость повсюду, куда бы ни прискакал! Так считает Криста Лестер, создатель микроблога @BunnyBuddhism и автор книги о кроличьем буддизме. Ее главные герои – персонажи удивительные, трогательные и умные. Они черпают вдохновение в тысячелетней мудрости великих духовных учений – буддизма, даосизма и христианства. Глубокие (   Читать дальше...   )Жанр: Религия, ЮморФормат: PDF, DOCX, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D92B60E42336DED3CB318978DC7367F836A73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141034   (652555) от 09.06.2017
+
+Схиархимандрит Агапит (Беловидов) | Преподобный Амвросий Оптинский (2010) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена великому старцу XIX века, преподобному Амвросию Оптинскому (1812-1891). Богатый материал о его жизни, 30-летнем старческом подвиге, духовных дарах и наставлениях людям собраны схиархимандритом Агапитом (Беловидовым), который сам начал иноческий путь в Оптиной пустыни. Уникальность этого жизнеописания преподобного Амвросия в том, что это житие пастыря, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8171770C68519F5894308EE664F38539E0D6040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226976   (652366) от 23.05.2018
+
+Режин Перну | Хильдегарда Бингенская (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга известного француского автора Режин Перну создаёт яркий образ Хильдегарды Бингенской, бенедиктинской монахини 12 в., отличавшейся необычайной одарённостью: она занималась богословием и записывала мистические картины бытия, являвшиеся ей в видениях, она сочиняла стихи и музыку, изучала свойства растений и их использование в медицине, лечила физические и душевные (   Читать дальше...   )Жанр: ЖитиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C504763E239F747C2438BEBD007C61D015C4C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226791   (652362) от 23.05.2018
 
 Благословение (изд.) | Кто нас корит, тот нам дарит. Пути к очищению души (2013) [PDF, DJVU]
@@ -6,7 +110,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -464,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -490,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -585,110 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19FFB2CCE7DA8F99CCCA8F78D990297914180E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 680054   (644382) от 16.07.2013
-
-Луи Буйе | О Библии и Евангелии (1988) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644382.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О Библии и Евангелии" Луи Буйе - краткая, но значительная работа по библейскому богословию. Позволяет увидеть Библию как единое целое и проследить этапы Библейского Откровения.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D9287370E375B5E1DA991E4C30810E1BE88E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032551   (644105) от 08.07.2016
-
-А.А. Кострюков | Русская Зарубежная Церковь в 1925—1938 гг.: Юрисдикционные конфликты и отношения с московской церковной властью (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена истории Русской Зарубежной Церкви в 1925— 1938 гг. и является продолжением исследования «Русская Зарубежная Церковь в первой половине 1920-х гг.» (2007 г.). Период, рассмотренный в монографии, был ознаменован разделениями внутри русской церковной эмиграции, а также разрывом Зарубежного Синода с Московской Патриархией. Работа построена на основании (   Читать дальше...   )Жанр: История РПЦ 20-го века, РПЦЗФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCB8D1EC0913F79A5C621918702761EF35EFA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032796   (644029) от 08.07.2016
-
-Альберто Мелло | Страсти пророков [Темы пророческой духовности] (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое исследование известного современного библеиста Альберто Мелло представляет столь далеких от нас и малопонятных библейских пророков близкими и понятными, дает ключ к новому прочтению и осмыслению их книг. Автор убедительно показывает: идеал пророков - не бесстрастие, не апатия, а - симпатия, сострадание. Сострадание Богу и человеку.Жанр: БиблеистикаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F32E73C905F63DFE5A0C69F448DFE568BD08E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032448   (643904) от 08.07.2016
-
-Татьяна Носенко | Иерусалим: три религии - три мира (2006) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена истории становления Иерусалима как священного города трех монотеистических религий - иудаизма, христианства и ислама. В ней рассказано о возникновении религиозных святынь, развитии традиций паломничества, связанных с Иерусалимом, о сосуществовании трех общин в Святом городе на протяжении многих столетий. В последней части книги показаны истоки "иерусалимской (   Читать дальше...   )Жанр: История религийФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A240B42CB6445CAEB08F41A6E68FDAA9231977
 ```
 
 https://mybot314.ru/tekegram_catalog/

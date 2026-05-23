@@ -1,3 +1,85 @@
+###  Публикация: 948352   (410644) от 20.10.2015
+
+Алексей Захаренко | Карьера веб-дизайнера. С нуля до первой продажи за 14 дней (2014) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данный курс отлично подойдет вам, даже если:
+* Вы никогда не открывали программу фотошоп
+* У вас нет опыта и навыков в веб-дизайне
+* Вы только закончили школу или уже давно на пенсии(   Читать дальше...   )Жанр: ДизайнПродолжительность: 05:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF225F757567FBCAF85C37AC1BF51D5EF6A8648D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413257   (409322) от 03.10.2020
+
+Gumroad, Josh Gambrell, Ponte Ryuurui | Дизайн Sci-Fi меха в Blender 2.83 и 2.90 / SciFi Mech Design in Blender 2.83 & 2.90 (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это полноценный видеокурс, демонстрирующий передовые рабочие процессы и методы моделирования твердых поверхностей в Blender.
+Два преподователя с различными стилями преподования и моделирования покажут как создать научно-фантастического меха.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 48:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1950CDD93BF7DA9649A1D2D3D6F8CD8554A2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573523   (408736) от 02.09.2022
+
+Lynda, Joel Bradley | Substance B2M (2017) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bitmap2Material (B2M) это приложение от Allegorithmic, которое дает вам возможность создавать карты для физически корректного рендеринга из одного исходного изображения. В данном курсе вы узнаете, как эффективно использовать программу чтобы улучшить ваш процесс работы с PBR текстурами. Джоэл Брэдли показывает в курсе навигацию по интерфейсу B2M. Затем он показывает (   Читать дальше...   )Производство: LyndaЖанр: ВидеокурсЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D912EC9231E9F1A9C9877EB46D6D4F80332946B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573522   (408582) от 02.09.2022
 
 Lynda, Joel Bradley | Substance Designer Essential Training Updated (2018) PCRec [EN, RU]
@@ -6,7 +88,7 @@ Lynda, Joel Bradley | Substance Designer Essential Training Updated (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Digital Tutors, Dan Cox | Designing a Modular Structure for Games in 3ds Max (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +140,7 @@ Lynda, Aaron F. Ross | 3ds Max Advanced Materials (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +166,7 @@ Gumroad, Tim Bergholz | Ultimate Weapon Tutorial – Complete Edition (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +193,7 @@ Pluralsight | Моделирование штурмовой винтовки в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +273,7 @@ Udemy, Nexttut, Nikolay Naydenov | Female Character Creation in Zbrush (2019) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +300,7 @@ ZTM | Веб и мобильный дизайн в 2020 году: UI / UX, Figma
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +357,7 @@ Shane Hurlbut | Как освещать рекламные ролики в вы�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +384,7 @@ Shane Hurlbut | Продвинутая коммерческая режиссур
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +410,7 @@ Eduard Mykhailov | Безумные визуальные эффекты в After
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +436,7 @@ Pluralsight, Dan Cox | Creating Game-ready Modular Structures in 3ds Max (2016) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +463,7 @@ Gameinstitute, Dojn | Game Mathematics (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +492,7 @@ Eduard Mykhailov | Rich Glitch (2019) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +518,7 @@ Jesse Pitela | Курс по созданию огня и дыма с плаги
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +544,7 @@ Jesse Pitela | Курс Для Начинающих по Симуляции Жи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +570,7 @@ Jesse Pitela | Курс для начинающих по созданию зап
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +596,7 @@ Jesse Pitela | Курс по созданию продвинутых крупн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +622,7 @@ Max Twain | Bad Cat (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +648,7 @@ Max Twain | NOIRE (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,7 +676,7 @@ Max Twain | Mystic (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -605,86 +687,6 @@ Max Twain | Mystic (2020) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47E30502241368BEBA2E805E18764328FCB4BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414311   (386822) от 07.10.2020
-
-Max Twain | Global Wedding (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увеличьте скорость обработки и качество фотографий с помощью пресетов и автоматизации действий. Вас ждут пять стильных методик постобработки в Adobe Photoshop.Производство: Photoshop MasterЖанр: Digital ArtПродолжительность: 06:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFD78F204D3AA440D8D8CD7BC6378C04F839D6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414257   (386821) от 07.10.2020
-
-Max Twain | Джоконда (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трансляция проходила в режиме онлайн на платформе «Фотошоп-мастер».
-На протяжении 4-х часов прямо перед зрителями Макс Твейн создавал АРТ. Автор придерживался своей концепт-идеи, те кто подключился онлайн, предлагали свои решения и задавали вопросы в чате. Таким образом, все участники получили возможность повлиять на конечный результат.Производство: Photoshop MasterЖанр: Digital ArtПродолжительность: 05:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFC804A705B62E79057C97D36AFC322665BA4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414255   (386816) от 07.10.2020
-
-Max Twain | Workshop (2020) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Делаем ART в прямом эфире.
-Делаем арт все вместе, в прямом эфире. Заранее предоставляется крутой исходник, ты можешь повторять или делать по-своему. В ходе эфира интерактив с участниками позитивная, творческая атмосфера, после эфира выдается его видеозапись в дальнейшем видеозапись не продается.Производство: Photoshop MasterЖанр: Digital ArtПродолжительность: 14:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C63F400BD17A7669283A143DA94CE6B68056690
 ```
 
 https://mybot314.ru/tekegram_catalog/

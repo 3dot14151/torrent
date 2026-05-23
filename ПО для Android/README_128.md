@@ -1,3 +1,84 @@
+###  Публикация: 1739994   (48423) от 30.07.2024
+
+Фитнес тренер FitProSport v4.101 Paid [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вместе с персональным фитнес тренером «FitProSport» Ваши занятия станут максимально эффективными!Тип издания: Paid / Full с МаркетаРелиз состоялся: 01.07.2024Разработчик: FitProSportПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E2269E440AC6BB0ED2457CA873CDF7BFA27C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729984   (48338) от 31.07.2024
+
+МТС Music v9.31.0 Mod by Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Альтернатива классической Яндекс Музыке с точно такой же базой музыки, но с немного другим интерфейсом и поддержкой устаревающих устройств. В наличии обширный каталог списков под ваше настроение и разнообразных хитпарадов. Работает хорошо. МТС Music — это 65 миллионов треков, подкасты и радио для абонентов любых операторов.
+
+МТС Music без подписки это:
+• радио и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 31.07.2024Разработчик: MTS PJSCПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252C4B627F9641E8870AA323CA1ED23643B0E9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739999   (48314) от 31.07.2024
+
+Здоровая спина и прямая осанка v3.5.2 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ведь не зря говорят: "Человек настолько молод и здоров насколько гибок его позвоночник". В наше время боль в спине, пояснице и отсутствия гибкости позвоночника, встречается очень часто, не говоря уже таких болезнях как сколиоз.Тип издания: PremiumРелиз состоялся: 30.07.2024Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5C8D619C7889ED5FA21C7A12C446DD7B1831E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740374   (48174) от 01.08.2024
 
 DailyArt - Daily Dose of Art v3.3.0 Mod by youarefinished [Ru/Multi]
@@ -6,7 +87,7 @@ DailyArt - Daily Dose of Art v3.3.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +113,7 @@ Phrasebook - Learn Languages / Разговорник v19.0.1 Mod by Balatan [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +139,7 @@ OfficeSuite Pro + PDF v14.7.53148 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +165,7 @@ ES File Explorer File Manager v4.4.2.12 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +191,7 @@ Mock Locations (fake GPS path) v1.24.6 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +217,7 @@ Listonic / Список покупок v8.10.1 Mod by NURIK kz [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +243,7 @@ SnapEdit - AI photo editor v6.7.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47226.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +269,7 @@ jetAudio HD Music Player Plus v12.2.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +295,7 @@ WPS Office + PDF v18.12 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +321,7 @@ IPTV# (ex. LazyIPTVDeluxe) v3.09 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +347,7 @@ Photo Sherlock v1.119 Mod by Mixroot  [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +373,7 @@ Astrological Charts / Астрологические Карты Pro v11.0 [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +399,7 @@ GPS АнтиРадар v45.2 Mod by 0x7d [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +425,7 @@ jetAudio HD Music Player Plus v12.2.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +478,7 @@ Horary Chart / Астрология: Хорарная Карта v4.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +504,7 @@ PhotoRoom v5.2.4 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +556,7 @@ Unified Remote v3.24.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +582,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.85 Mod by Mixroot [Ru/Mu
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +608,7 @@ PDF Extra PDF Editor & Scanner v10.16.2608 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +634,7 @@ ADV Screen Recorder v4.13.1 Mod by Balatan [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +660,7 @@ PictureThis - Plant Identification v4.3.0 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -590,84 +671,6 @@ PictureThis - Plant Identification v4.3.0 Mod by youarefinished [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E03C69F205DB98E54CE964597BF1F24E43261BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743649   (46375) от 18.08.2024
-
-AR Ruler App: Линейка Рулетка v2.8.7 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46375.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARuler - лучшее и бесплатное приложение на Android для измерений, использующее технологию дополненной реальности (Augmented reality или кратко AR)! Приложение AR Ruler использует технологию дополненной реальности (AR) для измерения различных предметов с помощью камеры вашего смартфона. Просто нацельтесь на обнаруженную горизонтальную плоскость и начните измерять!Тип издания: ProРелиз состоялся: 16.08.2024Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E61AA2D4E7B089920FE0D23E36122E16C3C64D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728929   (46325) от 19.08.2024
-
-Bria Mobile: VoIP Softphone v6.16.4 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клиент SIP. Поддерживает множество сервисов. Обширная система настроек. Похоже, самый лучший в своём классе. Bria Mobile - ваш VoIP-софтфон с поддержкой протокола SIP для ежедневного делового общения. Оставайтесь на связи в любом месте, пользуясь сервером вызовов или VoIP-сервисом. Включает поддержку аудио и видео высокой четкости, а также протоколы XMPP и SIP SIMPLE.Тип издания: ModРелиз состоялся: 19.08.2024Разработчик: CounterPath CorpПоддерживаемая ОС: Android 10.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2D9BA0775187ED651E533ACF016C845F857EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744284   (46254) от 20.08.2024
-
-TV+ HD v1.2.5 Mod by ajrys [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатное приложение, в котором представлены основные российские телеканалы. Есть возможность настроить приложение под свой вкус и добавить стримы/телеканалы из любых источников (HLS). Просмотр онлайн ТВ осуществляется через интернет (IPTV/ОТТ), поэтому для стабильной работы требуется интернет-канал с пропускной способностью от 2 Мбит/с для обычных каналов от 6 (   Читать дальше...   )Тип издания: Mod / CloneРелиз состоялся: 09.08.2024Разработчик: AndevAppsПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000C6A15688655C552C30D666FF251065B34A02A
 ```
 
 https://mybot314.ru/tekegram_catalog/

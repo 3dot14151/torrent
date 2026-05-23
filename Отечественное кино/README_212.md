@@ -1,3 +1,108 @@
+###  Публикация: 281381   (187041) от 18.11.2022
+
+Красная комната (2006) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Катя возвращается в Москву из Америки после долгого отсутствия. За океаном остались благополучный муж и ребенок. Здесь ее ждут уже незнакомая глянцевая Москва, шикарный гостиничный номер, старые друзья-приятели, которых можно перечесть по пальцам. А вот родная дочь Лена, оставленная ею десять лет назад в московском интернате, совсем не горит желанием общаться с экс-мамой, (   Читать дальше...   )Жанр: ДрамаРежиссер: Виктор Мережко.Актеры: Ольга Ломоносова, Марина Богомолова, Юрий Беляев, Ольга Машная, Тимофей Фёдоров, Екатерина Казакова, Анна Амантес, Ольга Тураева, Евгений Редько и др.Продолжительность: 01:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A9EFE185E243792559374B3B95EEDC9342EAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 157467   (186991) от 18.11.2022
+
+Голубка (2009) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Русская душа поразительна — вечно стремится к какой-то одной ей известной гармонии. Особенно если это душа художника — до чертиков одинокого, которому только что стукнуло сорок. Каждый день он гонит свой велосипед в поле, падает в траву и смотрит в небо. Он знает: чтобы вышла картина, нужно нечто, что одной душе и ведомо.
+А чего хочет душа художника? Чтобы ее понимали. (   Читать дальше...   )Производство: РоссияЖанр: Комедия, Мелодрама, ДрамаРежиссер: Сергей Ольденбург-СвинцовАктеры: Александр Коршунов, Инга Стрелкова-Оболдина, Мирослава Карпович, Клавдия Коршунова, Кирилл Кяро, Агриппина Стеклова, Иван Косичкин, Олег Тополянский, Арсений Ахметзянов, Ирина ЖеряковаПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E066CDE7472C7F39BC6E7516EDD21A2D05C72119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591167   (186987) от 18.11.2022
+
+Позывной «Барон» (2020) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Российские и узбекские спецслужбы слаженно работают против всемирного зла — терроризма и проводят специальную операцию по перекрытию наркотрафика для прекращения финансирования террористических ячеек. Агенту под прикрытием нужно будет не попасться на удочку террористам-вербовщикам, найти любовь и блестяще спасти миллионы жизней.Производство: Россия, Узбекистан / Кинокомпания InfernoЖанр: боевик, криминал, драмаРежиссер: Рустам СагдиевАктеры: Фархад Махмудов, Таукел Мусилим, Юлдуз Раджабова, Каан Урганджиоглу, Игорь Лифанов, Константин Соловьев, Виктор Вержбицкий, Виктория Толстоганова, Сергей Астахов, Али МухаммадПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FDA0EEBB95395E72538180F20A8A07C9CBCE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 891892   (186924) от 20.09.2023
+
+Монгол / Mongol (2007) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Не презирай слабого детеныша — он может оказаться сыном тигра», — гласит монгольская пословица. Мальчик Тэмуджин, которому предстоит стать Чингисханом, повелителем половины мира, прошел через голод, унижения, рабство. На него охотились, его пытали и предавали. Он выжил, хотя казалось, что это невозможно. Его сила, ум и воля к жизни были несравнимы с возможностями (   Читать дальше...   )Производство: Россия, Германия, КазахстанЖанр: боевик, драма, приключения, военный, биография, историяРежиссер: Сергей Бодров (старший)Актеры: Алия, Теген Ао, Таданобу Асано, Бай Ин, Хулан Чулуун, Бао Ди, Баерцецег Ерденабат, Ден Ба Те Эр, Ю Эр, Сай Хин ГаПеревод: Одноголосый закадровыйЯзык озвучки: Русский, монгольскийСубтитры: Русские (forced, full), AнглийскиеПродолжительность: 02:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC18CD8115C8F429464609A843E264A35E8EB6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525501   (186919) от 20.09.2023
 
 Монгол / Mongol (2007) [720p] BDRip [Directors Cut]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_186735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_186069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_185780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -297,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -323,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -506,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_182605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182135.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -569,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5C2CECCBCD24AF4BA89F83534E14C3E496941AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427434   (181750) от 29.11.2020
-
-Аванпост (2019) BDRip [H.264/1080p] [Extended Cut]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем что-то произошло. Связь с большей частью населенных пунктов Земли оборвалась. Космонавты передали с орбиты, что видят сверху небольшое пятно в Восточной Европе, по своим очертаниям напоминающее круг. То, что военные находят за границей этого круга, шокирует. В магазинах, в автомобилях, на дорогах, в зданиях больниц и вокзалов, повсюду — следы (   Читать дальше...   )Производство: Россия / ТВ-3, Premier Studios, 1-2-3 ProductionЖанр: Триллер, фантастика, боевикРежиссер: Егор БарановАктеры: Лукерья Ильяшенко, Пётр Фёдоров, Светлана Иванова, Алексей Чадов, Ксения Кутепова, Константин Лавроненко, Филипп Авдеев, Артем Маркарьян, Сергей Годин, Артем ТкаченкоПеревод: Не требуется (Лицензия Blu-ray GER)Субтитры: ОтсутствуютПродолжительность: 02:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15682A1558CA7708A8AE8E245F82AAB1AAABB26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593067   (181375) от 25.11.2022
-
-Дополнительный урок (2022) WEB-DLRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время очередного дежурства патрульная Вера Седова в одиночку предотвращает трагедию в колледже, но при этом погибает студент. Она утверждает, что у парня был обрез, однако никакого оружия не обнаружено. Полицейскую проклинают родители и общественность. Единственный, кому становится по-человечески жалко Веру, — адвокат по назначению Илья Нестеров. Илья всё больше (   Читать дальше...   )Производство: Россия / ООО «Смарт Фильм», АНО «Интерфест»Жанр: драма, детективРежиссер: Анна КурбатоваАктеры: Кирилл Кяро, Юлия Александрова, Олег Васильков, Влад Коноплёв, Матвей Астраханцев, Олег Чугунов, Александра Дроздова, Валерия Богданова, Даниил Слуцкий, Николай БалобанСубтитры: отсутствуютПродолжительность: 01:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81296C67AD08CB584E4CA8778F43E4F223A0221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199888   (181365) от 25.11.2022
-
-Двое (2010) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Партизаны получают задание захватить на глухой лесной дороге новый шифровальный аппарат немцев. В результате ожесточенного боя гибнут почти все немцы и партизаны. В живых остается только офицер-шифровальщик Герберт и молодой партизан Алексей Бурьян.Производство: Россия, Украина,  компания Inter Media ProductionЖанр: ВоенныйРежиссер: Анатолий МатешкоАктеры: Андрей Мерзликин, Маркус Бьокер, Сергей Калантай, Олеся ВласоваПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BFBB5A0E108FBA15AD21744F576338187FC193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 38070   (181327) от 25.11.2022
-
-Два в одном (2007) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм состоит из двух новелл.
-На сцене театра повесился актер. Как-то в этом замешан рабочий сцены. Но тело лицедея в петле — далеко не единственная, да и не самая захватывающая интрига, раздирающая труппу. Настоящая смерть пришла в мир условности, и уже невозможно предположить, куда заведет череда событий. И понять, сколько еще смертей ждет эту труппу. А может быть, (   Читать дальше...   )Производство: Украина, Россия, "SOTA Cinema Group", "Одесская киностудия", "Централ Партнершип"Жанр: Драма, комедияРежиссер: Кира МуратоваАктеры: Александр Баширов, Сергей Бехтерев, Наталья Бузько, Рената Литвинова, Богдан Ступка, Анатолий Дриженко, Леонид Кушнир, Павел Макаров, Юрий Невгамонный, Анатолий Трухин, Михаил Волошин, Владимир Горянский, Жан Даниель, Валерия Дмитриева, Валерий Завадский, Виктор Кара, Елена Королева, Яков Кучеревский, Игорь Малахов, Филипп Панов, Нина Русланова, Игорь Равицкий, Александра (   Читать дальше...   )Продолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE3F0C477B2C5E9775C7D6E4B38E54B91BB6277
 ```
 
 https://mybot314.ru/tekegram_catalog/

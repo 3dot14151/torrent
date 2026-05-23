@@ -1,3 +1,192 @@
+###  Публикация: 1337940   (271116) от 13.11.2019
+
+Windows 10 Enterprise 1909 18363.476 x64 Rus by OneSmiLe (13.11.2019)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru_windows_10_business_editions_version_1909_x64_dvd_675b5388
+Интегрированы последние обновления на 13.11.19.
+Удалены все модерн приложения, кроме магазина и поиска(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEF3A11B9D7F76306835A305E150A70089DE76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338053   (271101) от 13.11.2019
+
+Windows 10 Enterprise LTSC 2019 17763.864 x64 Rus by OneSmiLe (13.11.2019)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru_windows_10_enterprise_ltsc_2019_x64_dvd_78e7853a
+Интегрированы последние обновления на 13.11.19.
+Работа с образом - DISM.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45612BA2CE1AB0E615C180982EB309DADCFBD0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337867   (271096) от 13.11.2019
+
+Джокер / Joker (2019) WEBRip [H.264/720p-LQ] [AVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Готэм, начало 1980-х годов. Комик Артур Флек живет с больной матерью, которая с детства учит его «ходить с улыбкой». Пытаясь нести в мир хорошее и дарить людям радость, Артур сталкивается с человеческой жестокостью и постепенно приходит к выводу, что этот мир получит от него не добрую улыбку, а ухмылку злодея Джокера.Производство: США, Канада, BRON Studios, Creative Wealth Media Finance, DC ComicsЖанр: Триллер, драма, криминалРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Роберт Де Ниро, Зази Битц, Фрэнсис Конрой, Бретт Каллен, Шей Уигэм, Билл Кэмп, Гленн Флешлер, Ли Гилл, Джош ПэйсПеревод: Авторский одноголосый - А.Важенин (BadBajo)Субтитры: Корейские хардсабыПродолжительность: 01:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C2FB29634C458A323B080B2FD0CADFC3CFDA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 260403   (271079) от 25.12.2010
+
+Формула 1 / Formula 1 (All season 2010) SATRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сезон 2010 года Формулы-1 — 61-й сезон Формулы-1. Технический и спортивный регламенты были и продолжают оставаться объектом спора между FIA и FOTA. Действующий чемпион среди пилотов — Дженсон Баттон присоединился к команде McLaren, а действующий обладатель кубка конструкторов — Brawn GP был приобретён концерном Daimler AG и был преобразован в заводскую команду Mercedes-Benz. (   Читать дальше...   )Телекомпания: Россия 2Жанр: СпортФормат: MKVПродолжительность: 19 выпусков по ~02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877FA45C51AB124B7C912BC8770EC5889C4B194B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188929   (271053) от 05.12.2017
+
+Глава Роскомнадзора исключил введение цензуры в интернете по образцу Китая
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Глава Роскомнадзора пообещал оставить интернет без цензуры
+Жителям России не надо опасаться цензуры в интернете, аналогичной той, что существует в Китае.Глава Роскомнадзора Александр Жаров заявил, что Россия не собирается перенимать подходы Китая в регулировании интернет-контента, так как отношение двух стран к этому вопросу принципиально различается. Об этом он (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101307   (270930) от 05.12.2017
+
+Resident Evil 4 / Biohazard 4 (2014) [Ru] (1.06) Repack Other s [Ultimate HD Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Resident Evil 4 специальному агенту Леону С. Кеннеди поручается спасти похищенную дочь президента США. Расследование приводит его в захолустную европейскую деревню, населенную агрессивными фанатиками таинственной секты Лос Иллюминадос, стоящей за похищением. Леону предстоит столкнуться с чудовищными мутантами и враждебными селянами, разум которых порабощен паразитами (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D76135C48DF345E724E1092C3A7D8CDE2D5179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265986   (270780) от 01.12.2018
+
+Ростех разработал чип для интернета вещей
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Холдинг «Росэлектроника» Госкорпорации Ростех завершил создание первой российской микросхемы для Интернета вещей (Internet of Things, IoT). Чип размером 5*5 мм предназначен для приема и передачи информации в оптимальном для Интернета вещей частотном диапазоне от 100МГц до 2,5ГГц. Это первая отечественная микросхема, которая обеспечивает цифровую связь на расстоянии (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266125   (270687) от 01.12.2018
 
 ABBYY Finereader 14 Enterprise  14.0.105.234 Repack (Тестирование) [Multi/Ru]
@@ -6,7 +195,7 @@ ABBYY Finereader 14 Enterprise  14.0.105.234 Repack (Тестирование) [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +249,7 @@ FIFA 19 (2018) [Ru/Multi] (1.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +275,7 @@ Grand Theft Auto IV / GTA IV [XBOX360] [PAL / NTSC/J] [XGD2] [Ru] (2008) | R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_270339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +433,7 @@ Adobe Photoshop 2020 21.0.1.47 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +485,7 @@ mini10PE 18.12.2 [Ru] [x86/x64] (авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -322,7 +511,7 @@ Windows Login Unlocker 1.0 (тестирование) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -350,7 +539,7 @@ HellGate: London / London 2038 (2007/2018) [Ru/En] (1.2a) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -376,7 +565,7 @@ VMware Workstation 15 Pro 15.5.1 Build 15018445 (15.11.2019) RePack by KpoJIuK [
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -402,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -431,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -457,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -483,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -491,188 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 
 На Игры могут ехать только чистые российские атлеты под нейтральным флагом
 Президент Международного олимпийского комитета (МОК) заявил, что его организация возьмет на себя все расходы по участию спортсменов из России в зимней Олимпиаде в Пхёнчхане. По словам Томаса Баха, российские спортсмены смогут на церемонии закрытия Олимпиады пройти под флагом РФ.Президент Международного (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189926   (269218) от 07.12.2017
-
-Mozilla Firefox Quantum 57.0.2 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободный веб-браузер Mozilla Firefox на движке Gecko, ориентированный на приватность и безопасность в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений интерфейса и, как следствие, работать стало (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB710FB191583B0C1419770EE7D17576B26CAE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266382   (269040) от 03.12.2018
-
-Intel приступила к распространению новых универсальных драйверов Modern Drivers для Windows 10
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269040.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этой неделе Intel сообщила о начале распространения набора драйверов нового типа Windows Modern Drivers, его второе название – Universal Windows Drivers (UWD). Этот набор драйверов для встроенной графики Intel HD Graphics, как подсказывает само его название, является универсальным для всех актуальных платформ Microsoft – Universal Windows Platform (UWP), семейство (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384782   (269032) от 03.12.2018
-
-Windows 7 xDark ™ Deluxe x64 RG - Codename: State Of Independence 4.3 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка на базе оригинального образа Windows 7 Ultimate SP1 x64 от команды xDark™. Из оригинального образа ничего не удалено, были применены твики реестра и отключены некоторые службы для повышения стабильности и быстродействия системы, применён оригинальный стиль оформления по умолчанию xDark™ Deluxe v.4.3. В сборку интегрирован IE9 и последние апрельские обновления.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F833A2D69BD1B931D8567F5856058738ECB7008B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716953   (269029) от 03.12.2018
-
-Книжная серия | Враг у ворот. Фантастика ближнего боя [51 книга. Обновляемая] (2011-2018) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альтернатива с боевым уклоном. Подлый враг вторгается, русский народ грудью встает на защиту. Враг будет разбит - победа будет за нами.Жанр: Боевая фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B63BC021F82AB0C1DC935176BD843DE426879F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302399   (268587) от 16.11.2019
-
-A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1349 год. Черная смерть опустошает Францию. Амиция и ее младший брат Гуго спасаются от Инквизиции в разоренном чумой краю. Чтобы уйти от погони и огнем и светом разогнать полчища крыс, героям придется объединить силы с другими подростками. И только узы дружбы помогут им преодолеть немыслимые ужасы, которые ждут их на пути. В борьбе за жизнь... нет места невинности.Тип издания: RepackРазработчик: Asobo StudioЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189616   (268503) от 08.12.2017
-
-Госдума одобрила передачу мэрии Москвы права взимать штрафы за нарушение ПДД
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Государственная дума приняла в первом чтении законопроект, который позволит мэрии Москвы самостоятельно выписывать штрафы за нарушение правил дорожного движения, забрав эти функции у МВД. За документ проголосовали 304 депутата, 99 выступили против, пятеро воздержались. Трансляция заседания шла на сайте Думы.Москве предложено передать право рассматривать следующие (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189334   (268500) от 08.12.2017
-
-Google объявил о запуске бюджетной версии Android
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новейшую версию системы с 6 декабря смогут получить маломощные устройства.Компания Google объявила, что 6 декабря вместе с обновлением операционной системы Android 8.1 выйдет её облегчённая версия Android (Go Edition), способная работать на устройствах начального уровня.Особенностями Go Edition станут облегчённые приложения, занимающие в два раза меньше места. Благодаря (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

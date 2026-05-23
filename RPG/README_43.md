@@ -1,3 +1,81 @@
+###  Публикация: 1668854   (171814) от 21.10.2023
+
+Space Wreck (2023) [En] (1.3.24) Scene Tenoke
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Space Wreck - пошаговое приключение, события которого произойдут в космосе. Вы играете колонистами, покинувших Землю в поисках нового дома. Но по дороге случилось неприятно. На шаттл с пассажирами напали космические корсары. Корабль был сильно поврежден и теперь необходимо попасть на заброшенную станцию неподалеку, чтобы отыскать рабочие детали.Тип издания: SceneРазработчик: Pahris Entertainment SIAЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE6974DB7FBDAEBA57A2E7EB8B64AB6373F4F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671029   (171485) от 23.10.2023
+
+Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Что-то неладно в тихом средневековом городке Сенора. Таинственное Темное Братство, кажется, взяло под свой контроль город, и задача персонажа игрока - раскрыть личности злодеев и освободить жителей. Большая часть игрового процесса посвящена исследованию города и его окрестностей, общению с людьми и сбору информации, которая будет способствовать развитию истории. (   Читать дальше...   )Тип издания: LicenseРазработчик: WestkaЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470995DB595CA23E9FC921DAA2EDA8B744C026AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514772   (170801) от 05.12.2021
+
+The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Ru/Multi] (1.4.51.41549/dlc) License CODEX [Ultimate Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Готовы окунуться в тактическую ролевую игру, до краёв наполненную обаянием, юмором и сумасшедшими персонажами?! Они нескладные, неопытные и склочные, но... им придётся терпеть друг друга, чтобы добраться до главного сокровища данжена - статуэтки Гладуэльфёры. Однако у них быстро возникает ощущение дежавю... Проведите этот отряд сомнительных героев через приключение, (   Читать дальше...   )Тип издания: LicenseРазработчик: Artefacts StudioЖанр: Приключенческая ролевая игра с пошаговой стратегией бояЯзык озвучки: Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F5D8447F1E659A926FD744F74B424B5A161358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596213   (170202) от 09.12.2022
 
 Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
@@ -6,7 +84,7 @@ Agarest: Generations of War 2 (2015) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Legend of Heroes: Trails in the Sky: Second Chapter (2015) [En] (2019.12.08)
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Ashen (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Gamedec (2021) [Ru/Multi] (1.7.1.r70100/dlc) License GOG [Digital Deluxe Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Oaken (2023) [Multi] (1.1.2/dlc) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Pool of Radiance: Ruins of Myth Drannor (2001) [Ru] (1.4) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.1hf/dlc) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Dark Deity II (2) (2025) [En] (1.14) License GOG [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Folk Hero (2023) [Ru/Multi] (1.0.9) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Lovecraft's Untold Stories (2019) [Ru/Multi] (1.35) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Gray Zone (2022) [Ru/Multi] (1.9) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Little Goody Two Shoes (2023) [En] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Company of Crime (2020) [Ru/Multi] (1.0.5.1178) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Racine (2023) [Multi] (1.0.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Lillusion (2023) [Multi] (1.0) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Colony Ship: A Post-Earth Role Playing Game (2021) [En] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACF8A8E056192111D6054F1F55162DC0F4C507AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676013   (159186) от 11.11.2023
-
-Alluna and Brie (2019) [En] (1.0) Scene TinyIso
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159186.jpg" />
-</div>
-
-
-###  Подробнее
-
-События Alluna and Brie происходят в реальном мире в городе Аксон, Австралия. Для визуализации используется анимированный стиль, через который демонстрируется не только окружение, но и все внутриигровые моменты. Центральным персонажем является девочка по имени Бри, у которой совсем недавно появилась уникальная способность материализовать сырные сэндвичи из воздуха. (   Читать дальше...   )Тип издания: SceneРазработчик: Lached Up Games, FRAG GamesЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1783551C4091B0A8D47C1421F3A45C175711384E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676078   (159100) от 11.11.2023
-
-DYSMANTLE (2021) [Ru/Multi] (1.3.0.55/dlc) Scene Rune
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло много лет, и вы, наконец, покидаете свое убежище. Но дивный старый мир уже не такой, как прежде. Теперь он полон отвратительных и жутких существ. В этом мире, похоже, нет места человеку, ведь в нем властвует природа. И со временем все станет только хуже. Вам предстоит найти способ выбраться с этого проклятого острова. Но до тех пор наслаждайтесь сладостью (   Читать дальше...   )Тип издания: SceneРазработчик: 10tons LtdЖанр: Ролевая игра, Survival, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Китайский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A48E4756B42A8266188902AF110D271A3AECA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967533   (158522) от 20.12.2015
-
-Shadows Heretic: Kingdoms (2014) [Ru/En] (1.0.0.8183) Repack R.G. Механики
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир застыл на краю пропасти. Демоны заполонили окрестные земли, превратив их в выжженную пустыню всего за одну ночь. Последняя надежда на спасение – Пожиратель: существо, которое бродит промеж миров, порождение тени, тварь, поглощающая души павших врагов.Тип издания: RepackРазработчик: Games FarmЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8E42D706DADF77302A6259C2891EF7240CED3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

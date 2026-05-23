@@ -1,3 +1,108 @@
+###  Публикация: 1102337   (890800) от 09.02.2017
+
+Мама напрокат (2010) WEB-DLRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Маленькая Соня живет с отцом и бабушкой. Мать давно бросила семью, уехав в Америку в поисках другой судьбы. Несмотря на то, что отец и бабушка очень любят Соню, девочка все-таки страстно мечтает о матери, чем очень огорчает отца, не верящего в порядочность женщин после поступка бывшей жены. Но он решает доказать и Соне, что мачеха — это не лучший выход из положения.Производство: Россия, Украина / StarMediaЖанр: КомедияРежиссер: Николай МихайловАктеры: Елена Панова, Илья Шакунов, Ольга Полякова, Лариса Кадочникова, Майя КузьмишинаПродолжительность: 01:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69366706818A6356D0F81941F6D9DA46D6709DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184444   (890787) от 19.03.2010
+
+Тимур и его коммандос (2004) DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Тимур, сын скрывающегося в офшорной зоне преступного авторитета по кличке Кашалот, после нескольких лет учебы в Англии приезжает в Россию на летние каникулы. Теперь в его полном распоряжении — громадный коттедж отца, личный повар и отряд вооруженной до зубов охраны.
+Однако чрезмерная опека бдительных стражей мешает далекому от реалий Родины мальчику выполнить задание командира школьного скаутского отряда: Всегда и везде помогать людям и защищать животных. Единственный выход использовать боевую силу восьмерых коммандос в мирных целях. В результате возникают ситуации, о которых ни Тимур, ни его папаша не могли и предположить.Жанр: КомедияРежиссер: Игорь МасленниковАктеры: Алексей Панин, Катя Масленникова, Леонид Якубович, Михаил Светин, Петя Кадочников, Юрий ГальцевПродолжительность: 01:40:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102313   (890456) от 09.02.2017
+
+Пиковая дама: Черный обряд (2015) BDRip [H.264/1080p-LQ] [GER Transfer]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+С древних времен считается, что любое зеркало может стать порталом в мир мертвых. Одним из старейших мистических ритуалов с зеркалом является обряд вызова Пиковой Дамы. Четверо подростков в шутку решают призвать ее, но даже не подозревают, на какие ужасы они обрекли себя и своих близких. Теперь мстительный призрак не остановится, пока не получит их души.Производство: Россия / Enjoy Movies, UltrafilmЖанр: УжасыРежиссер: Святослав ПодгаевскийАктеры: Алина Бабак, Игорь Хрипунов, Владимир Селезнев, Валерия Дмитриева, Сергей Походаев, Евгения Лоза, Валентин Садики, Мария Фомина, Максим Стоянов, Наталья Домерецкая, Наталья Жукаркина, Дмитрий КуличковПеревод: Не требуетсяСубтитры: отсутствуютПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BDADC2D1AC9A2F23BAC8D344E28065C6D74B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493965   (890302) от 06.09.2021
+
+Пальма (2020) BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Овчарка по кличке Пальма вынужденно расстается с хозяином: тот улетает за границу, а верную собаку не берут на рейс и оставляют прямо на летном поле. Пальма прячется в аэропорту и каждый день встречает самолеты в надежде, что хозяин вернулся. Но время идет… 9-летний Коля — тоже новенький в аэропорту: он потерял маму и переехал к отцу-пилоту, которого почти не знает. (   Читать дальше...   )Производство: Россия, Япония /  OKKO Studios, Телеканал «РОССИЯ 1», АМЕДИА, Марс Медиа ЭнтертейнментЖанр: Cемейный, ПриключенияРежиссер: Александр Домогаров мл.Актеры: Виктор Добронравов, Лили, Леонид Басов, Владимир Ильин, Валерия Федорович, Евгения Дмитриева, Игорь Хрипунов, Павел Майков, Владимир Симонов, Ян ЦапникПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6159C5CAE771376F03B64A8820E92F65A3102C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101498   (890249) от 09.02.2017
 
 Золотая рыбка (2017) HDTV [H.264/1080i-LQ]
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60A331426EDB4BCCCE1613EB6998BD493B54E387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494871   (885541) от 09.09.2021
-
-Шугалей 3 (2021) HDTVRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Максим Шугалей и Самер Суэйфан после долгого плена в ливийской тюрьме «Митига» наконец-то возвращаются в Россию. Несколько месяцев спустя на Шугалея выходит бывший управляющий банка в Триполи Фарид и предлагает встретиться в Египте — у него появилась новая информация о террористах в Ливии. Но встреча друзей в Каире так и не состоится. Чтобы помочь Фариду избежать (   Читать дальше...   )Производство: Россия, Кино альянсЖанр: Боевик, приключенияРежиссер: Михаил ВассербаумАктеры: Кирилл Полухин, Олег Абалян, Алексей Кравченко, Евгений Терских, Владимир Петров, Дмитрий Сутырин, Екатерина Решетникова, Самвел Мужикян, Виталий Такс, Сергей Яценюк и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52404ADBD19B7FE6C54E27FC1BE280EF931BE5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494865   (885481) от 09.09.2021
-
-Пальма (2020) BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Овчарка по кличке Пальма вынужденно расстается с хозяином: тот улетает за границу, а верную собаку не берут на рейс и оставляют прямо на летном поле. Пальма прячется в аэропорту и каждый день встречает самолеты в надежде, что хозяин вернулся. Но время идет… 9-летний Коля — тоже новенький в аэропорту: он потерял маму и переехал к отцу-пилоту, которого почти не знает. (   Читать дальше...   )Производство: Россия, Япония / OKKO Studios, Телеканал «РОССИЯ 1», АМЕДИА, Марс Медиа ЭнтертейнментЖанр: Cемейный, ПриключенияРежиссер: Александр Домогаров млАктеры: Виктор Добронравов, Лили, Леонид Басов, Владимир Ильин, Валерия Федорович, Евгения Дмитриева, Игорь Хрипунов, Павел Майков, Владимир Симонов, Ян ЦапникПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F156305C49AD871847C101586A5A3379C3DEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296341   (885364) от 19.02.2011
-
-Новая Земля (2008) [1080p]  BDRemux
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Боевик, Фантастика, ДрамаРежиссер: Александр МельникАктеры: Константин Лавроненко, Марат Башаров, Ингеборга Дапкунайте, Сергей Жигунов, Сергей Колтаков, Евгений Титов, Том «Тайни» Листер мл., Игорь Письменный, Андрей Феськов, Дмитрий ШаракоисПродолжительность: 01:59:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641221   (884775) от 08.04.2013
-
-Джокеръ (1-2 серии из 2) (2002) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый барин Михаил Васильевич Кречинский, просадив в карты почти всю наличность, оказывается на грани банкротства. Поправить свои пошатнувшиеся финансовые дела Кречинскому может помочь выгодная женитьба на девушке Лидии. Кречинский прикидывается помещиком с имением в Симбирской губернии. В итоге получает и Лидочку, и знатное приданое. Но семейное счастье молодоженов (   Читать дальше...   )Жанр: КомедияРежиссер: Михаил КозаковАктеры: Михаил Ефремов, Игорь Верник, Анатолий Равикович, Елена Подкаминская, Иван Кокорин, Виктор Борцов, Ольга Остроумова, Олег Марусев, Александр Самойленко, Артём Семакин, Александр Тютин, Михаил Церишенко, Юрий Яковлев-СухановПродолжительность: 2 x ~ 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC41C5F50504061B3644EF9C7B7658CD930209E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

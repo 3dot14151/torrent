@@ -1,3 +1,81 @@
+###  Публикация: 1366724   (920141) от 13.03.2020
+
+Star Wars: Rivals v6.0.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Star Wars: Rivals - шутер, разработанный специально для мобильных устройств, в котором вы сможете противостоять вашим противникам в реальном времени. Вы сможете выбрать героя из легендарных персонажей всей эпохи Star Wars, осваивая и улучшая их навыки в PvP боях. Собирайте боевую команду, раскройте стратегию противника и используйте своё оружие, чтобы победить.Тип издания: Free (Удален из Google Play)Релиз состоялся: 12.01.2018Разработчик: DisneyПоддерживаемая ОС: Android 4.4+Жанр: Приключения, Экшен, ТирЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A1F299B550BE008921506E66EFF0BEB4DFD9D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366727   (920137) от 13.03.2020
+
+PC Creator - PC Building Simulator v1.0.57 + Mod [Ru/En]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+PC Creator - PC Building Simulator – отличный симулятор на андроид, где вы будете собирать компьютеры. Если вы всегда хотели узнать что-же находится внутри вашего системного блока, то эта игра создана для вас. В этой игре вы станьте сборщиком компьютеров и пройдете путь от новичка до профессионала своего дела. Собирайте и разбирайте различные компьютеры, устанавливайте (   Читать дальше...   )Тип издания: Оригинал + ModРелиз состоялся: 25.02.2020Разработчик: UltraAndreПоддерживаемая ОС: Android 5.0+Жанр: СимуляторыЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DD35135C50FFBB81C7FB4CA870FD81B5D12F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366922   (920134) от 13.03.2020
+
+WiFi Analyzer Premium v1.3 build 8 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+WiFi Analyzer Premium - премиум версия многофункционального приложения которое позволит вам превратить ваше Андроид устройство в анализатор Wi-Fi сетей, при этом вы сможете использовать полученные данные для выбора наиболее оптимальных сетей, кроме этого информация доступна не только для общего использования, но и для эксплуатации определенных программ и приложений. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 5.11.2018Разработчик: Abdelrahman M. SidПоддерживаемая ОС: Android 5.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07BF16DF529FFE85F69497B9A4EF0EF713C1BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366903   (920133) от 13.03.2020
 
 Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
@@ -6,7 +84,7 @@ Pro QR & Barcode Scanner PDF417 Scanner, Reader v2.1.0.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ XRecorder Pro 1.2.2.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Star Wars: Knights of the Old Republic (KOTOR) + Mod v1.0.7 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ GameKeyboard + v6.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Groovepad - Music & Beat Maker v1.1.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +293,7 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918756.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Hungry Shark VR v1.0 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Speedcam Downloader v4.0.7 [Ru] - закачка файлов радаров д�
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +423,7 @@ ProCam X (HD Camera Pro) 1.16 (Paid) [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +449,7 @@ iGO Primo NextGen 9.18.27.682862  arimi @ Vamibg skin mod [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +475,7 @@ PhotoPills v1.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +501,7 @@ SimpleRockets 2 v0.9.205 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ DraStic DS Emulator vr2.5.2.0a build 101 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +553,7 @@ AIDE Premium Key v3.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +579,7 @@ App Cloner v2.1.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +631,7 @@ Apex Launcher Pro v4.7.2 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +657,7 @@ Screen Stream Mirroring v2.5.4e [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,87 +668,6 @@ Screen Stream Mirroring - Транслируйте ваш экран в реал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00DA2F7B40A9949437EDAB554A2D76A8F130A0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490942   (915283) от 22.08.2021
-
-LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Фото и Видео (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спрятать фото? Просто и легко! Спрятать видео? Ещё проще!
-Скачайте фото сейф LOCKED и присоединитесь к людям, которые действительно заботятся о своей приватности и безопасности! 😎
-Спрятать фото и видео поможет секретный альбом LOCKED! Скройте и защитите свои фотографии, видео и другие личные файлы в секретной скрытой папке. Теперь они в самом безопасном хранилище (   Читать дальше...   )Тип издания: Пиратка (разблокирован Premium)Релиз состоялся: 20.09.2020Разработчик: Privacy GeeksПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7390C582FD65D3C3AA8FC476A58F6B25273E6561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089973   (915270) от 26.01.2017
-
-Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Diaro предназначена для фиксации ваших действий, мыслей и идей в течение дня, а также для синхронизации данных между всеми устройствами. Это позволит вам создать ваш личный дневник / ежедневник и вести ваши заметки в виде простого списка или по дням календаря.
-Через кнопку «Поиск» вы можете найти записи по любому ключевому слову в названии или тексте, а (   Читать дальше...   )Тип издания: Пиратка (разблокирована Pro)Релиз состоялся: 26.01.2017Разработчик: Pixel Crater Ltd.Поддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DEB5AB7BF8DA73590D395814E5E44956CB65C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367358   (915229) от 16.03.2020
-
-Sci-Fi Launcher Pro v2.8.8 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sci-Fi Launcher Pro позволит вам почувствовать себя самым настоящим профессиональным хакером. Множество встроенных команд и настроек обеспечат вам доступ ко многим возможностям. Мгновенно найти нужное приложение или контакт телефона поможет тема Aris. Можно не только находить, но и удалять, перемещать, читать информацию о приложении, контакте, отключать поиск, добавлять (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.03.2020Разработчик: Aris Open UniverseПоддерживаемая ОС: Android 4.3+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

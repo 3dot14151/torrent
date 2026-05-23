@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1867233   (1066774) от 24.04.2026
+
+VA - Король и Шут. Навсегда (2026) [MP3|320 Kbps] <Punk Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Андрей Князев/Алексей Горшенёв/КняZz - Лес (OST «Король и Шут. Навсегда»)
+2. Андрей Князев - Ром (OST «Король и Шут. Навсегда»)
+3. Король и Шут - Фокусник (OST «Король и Шут. Навсегда»)
+4. Король и Шут - Отражение (OST «Король и Шут. Навсегда»)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77475A3BEDF68AD9037AD369873BFF069E4E40A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866507   (1066304) от 21.04.2026
 
 Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
@@ -7,7 +36,7 @@ Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +65,7 @@ Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -57,6 +86,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865939   (1065446) от 18.04.2026
+
+VA - Atomic Heart, Vol.6 (2026) Original Game Soundtrack [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. GeoffPlaysGuitar/Алла Пугачёва/Atomic Heart - Позови меня с собой (Geoffrey Day Remix)
+2. GeoffPlaysGuitar/Эдита Пьеха/Atomic Heart - Только мы (Geoffrey Day Remix)
+3. IOWA/Acid Minerale/Atomic Heart - Мой ненаглядный
+4. GeoffPlaysGuitar/Atomic Heart - Lambada (Geoffrey Day Rework)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80540A21FAC7D38F34F1EE721D94E61F658BE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853569   (1056800) от 13.02.2026
 
 VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
@@ -65,7 +123,7 @@ VA - RC Cars (Недетские гонки) OST (2002) Оригинальные
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -94,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -123,7 +181,7 @@ VA - Atomic Heart - Vol.1 (2023) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -152,7 +210,7 @@ Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -181,7 +239,7 @@ Darren Korb - Hades OST (2020) [MP3|320 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -210,7 +268,7 @@ Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига спр�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -239,7 +297,7 @@ Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла проти
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +326,7 @@ Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from th
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -297,7 +355,7 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +384,7 @@ OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саун
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -355,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000892.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -384,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -419,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -454,7 +512,7 @@ Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -483,7 +541,7 @@ Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, In
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +570,7 @@ Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -541,7 +599,7 @@ Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,7 +628,7 @@ Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +657,7 @@ Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic O
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -628,7 +686,7 @@ Quincy Jones / Ray Brown Orchestra - Music From The Adventurers /OST/ (1970) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -662,7 +720,7 @@ Ludwig Goransson - The Mandalorian / Мандалорец (Original Score) (2019
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -691,7 +749,7 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -702,64 +760,6 @@ Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356058   (980540) от 29.01.2020
-
-Colin Stetson - Color Out of Space / Цвет из иных миров (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Darkwave>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West of Arkham (03:52)
-02. The Gardners (04:02)
-03. Contact (04:57)
-04. Drawing the Lightning (01:24)(   Читать дальше...   )Жанр: Soundtrack, Score, DarkwaveПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CA784237E2D3AEDA543F285DE71233F4FC53AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356269   (980515) от 29.01.2020
-
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
 ```
 
 https://mybot314.ru/tekegram_catalog/

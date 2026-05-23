@@ -1,3 +1,81 @@
+###  Публикация: 1653501   (206211) от 16.08.2023
+
+Aurora - Poweramp Skin 8.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Aurora - это красочный скин для Poweramp v3. Вы можете изменить практически все, чтобы Poweramp выглядел минималистичным, прозрачным и потрясающим. Этот скин также поддерживает Material You Dark and Light (только для Android 12 и выше). По сравнению с Luminous и Luminous Black, этот скин имеет несколько более спокойные акцентные цвета и разнообразие цветов фона, (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 09.08.2023Разработчик: Mixified PixelПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3032E092B78F7FB94C56AA4B733FEB8938F4910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653499   (206157) от 16.08.2023
+
+Luminous Black - Poweramp Skin 8.9 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Luminous Black – это современный черный скин для Poweramp v3. Вы можете изменить практически все, чтобы Poweramp выглядел минималистичным, прозрачным и потрясающим. Этот скин также поддерживает Material You (только для Android 12 и выше). По сравнению с Aurora и Luminous, этот скин имеет более яркие акцентные цвета и различные варианты черного цвета фона, такие как (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 09.08.2023Разработчик: Mixified PixelПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6782D777684A8C5075130B10AD581BC9769C26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583064   (206054) от 12.10.2022
+
+Rapid VPN - Unlimited Hotspot 1.0.6 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Rapid VPN - лучшее приложение VPN для просмотра ваших любимых сайтов, сохранения анонимности при просмотре веб-страниц и защиты вашей конфиденциальности от хакеров.Тип издания: ModРелиз состоялся: 4 июл. 2022 г.Разработчик: Lucky 123 GroupПоддерживаемая ОС: Android 7.0 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC59B507109EBF981457FAA8334362A6E5F355EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653999   (205956) от 18.08.2023
 
 MyRadar - Weather Radar Pro 8.49.7 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@ MyRadar - Weather Radar Pro 8.49.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +110,7 @@ BZ Напоминания и Дни Рождения v3.3.4 Mod by Alex.Strannik
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ SkyVPN - быстрый безопасный VPN 2.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Flowx: Weather Map Forecast 3.404 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ ElectroCalc v3.2 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Node Video - Pro Video Editor 6.4.1 Mod by ImanAlien [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +266,7 @@ KillApps: Закройте приложения v1.27.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ MyMovie - Видеоредактор 12.5.4 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Moovit v5.103.0.556.556 Mod by Joipoi [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Photomath Plus 8.28.0 (b70000935) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -295,7 +373,7 @@ PixelLab Pro - Text on pictures 2.1.1 Mod by KirIif' [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -321,7 +399,7 @@ BBVpn VPN: Unlimited VPN Proxy 3.4.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -350,7 +428,7 @@ Malloc Privacy & Security VPN 3.37 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -376,7 +454,7 @@ BSPlayer Pro 3.18.246-20230801 Mod by master1274 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -454,7 +532,7 @@ Kiwi VPN Proxy: Safer & Faster 43.30.09 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -480,7 +558,7 @@ One Shield Plus 2.7 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -506,7 +584,7 @@ Moon+ Reader Pro 8.3 (803004) Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -559,7 +637,7 @@ Word Surf v3.8.7 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -596,88 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:890B45624C1F3004FA9592DD3AE11C6F5CBA0D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595229   (204515) от 04.01.2023
-
-ПТЭЭП-2022 v3.2 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мобильная врсия Правил технической эксплуатации электроустановок потребителей.
-ПТЭЭП 2022 - Правила технической эксплуатации электроустановок потребителей
-Утверждены приказом Минэнерго России от 12 августа 2022 г. N 811
-Данный документ вступает в силу с 07.01.2023 г.(   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 19.12.2022Разработчик: Instruktag KnigaПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D98B603EF171DDF1AFABC124CE4FBC09F7AC0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575571   (204474) от 04.01.2023
-
-Rutube v28.4.4 Mod by Alex.Strannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смотрите что любите: в любое время, с любых устройств. Смотрите что любите: в любое время и с любых устройств! Развлекательная платформа Rutube — это один из крупнейших российских видеохостингов, на котором более 10 млн зарегистрированных пользователей. На сервисе представлен премиальный контент российских и иностранных правообладателей.Тип издания: AdFreeРелиз состоялся: 20.12.2022Разработчик: RuTubeПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3811D5E2E1ACCB74B9443CFDEDE01095AE45BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574038   (204467) от 05.01.2023
-
-Взахлёб v3.3.1 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любишь читать или слушать интересные истории? Но не любишь «много букв»? Тогда зацени приложение Взахлёб! Вместо длинных текстов – найдёшь короткие захватывающие истории, чат-переписки и квесты!
-Их много и все они разные: страшные истории, мистические, жуткие и, конечно, романтические из нашего клуба романтики. Прочувствуй эмоции героев онлайн: загляни в их переписку, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.12.2022Разработчик: OOO SilitiПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06141D7261B81FCADDAA423015301D70422BB158
 ```
 
 https://mybot314.ru/tekegram_catalog/

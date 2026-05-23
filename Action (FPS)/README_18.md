@@ -1,3 +1,115 @@
+###  Публикация: 1032100   (647172) от 06.07.2016
+
+Hard Reset Redux (2016) [Ru/Multi] (1.1.1.0) Repack R.G.Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В Безоаре, единственном уцелевшем городе людей, майор Флетчер, ветеран боевых действий и солдат CLN, втянут в конфликт двух величайших врагов человечества. Ему предстоит выяснить, что все далеко не так, как кажется.Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3501AB9B83721EFD1DE26928D21896DBF7758212
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074236   (646332) от 29.03.2019
+
+Killing Floor 2 (2016) [Ru/Multi] (1078/dlc) License CODEX [Digital Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В KILLING FLOOR 2 игроки окажутся в континентальной Европе, где вспышка болезни, вызванная неудачным экспериментом компании Horzine Biotech, быстро распространяется и принимает невероятный масштаб, парализуя Европейский Союз. Всего спустя месяц после заключительных событий в KILLING FLOOR, образцовые клоны заполонили все и цивилизация погружается в кризис.Тип издания: LicenseРазработчик: Tripwire InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0229D75EF9C8FC77EECDD346382DF7DCA9DC15FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763659   (642949) от 09.06.2015
+
+Zeno Clash 2 (2013) [Ru/En] (1.04) SteamRip Let'sРlay [Special Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действия игры разворачиваются в мире Зенозоик, где протагонистом является герой из первой части игры — Гэт. По словам разработчиков, действия будут продолжаться с момента окончания первой части игры. Будут введены новые персонажи, а также все основные персонажи из первой игры будут перенесены в Zeno Clash 2, а именно: Дэдра, Голем, Отец-Мать, Римат и др. Отец-Мать (   Читать дальше...   )Тип издания: SteamRipРазработчик: ACE TeamЖанр: Action / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Итальянский, ИспанскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780F4B7892732DF71DCFDDA3A454A11436CEBC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518231   (640479) от 04.07.2012
+
+Dead Island. Game of the Year Edition [Ru/En] (Steam-Rip/1.3) 2011 | R.G. Игроманы
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ужас. Насилие. Безумие. Бедлам. Праздничные каникулы превратились в нечто ужасное. Тропический остров наполняется хаосом после загадочного появления толп зомби. Единственный шанс выжить — это бороться насмерть, чтобы найти выход с этого острова, где вы просто-напросто отрезаны от всего остального мира.
+
+Dead Island сочетает в себе экшен с видом от первого лица с особенным вниманием к ближнему бою, развитию ваших персонажей и улучшению множества видов оружий. Действие игры происходит под пеленой темной истории, созданной под впечатлением от классических фильмов про зомби, которая поразит вас своими смелыми ходами и затягивающим действием, пройти которую, к тому же, вы сможете вместе со своими друзьями в кооперативном режиме, поддерживающем одновременную игру 4-х человек.
+
+Действие разворачивается в открытом для передвижений тропическом острове, где орды разлагающихся зомби поджидают игроков за каждым углом, пока они пытаются выполнить ряд захватывающих миссий во время своего праздничного отдыха. С небольшими запасами оружия и экипировки, игрок должен полагаться на правильное обращение с оружием ближнего боя в динамичных боях с ордами зомби для своей защиты. Разнообразные приспособления помогут превратить обычное оружие в инструмент массового уничтожения.
+
+Кроме животрепещущего действа, которое удовлетворит даже самого искушенного любителя зомби, Dead Island содержит элементы ролевой игры, которые позволяют игрокам продвигать одного из персонажей по своему пути, изучая новые способности и свежие тактические приемы во время приключений в опасных местах острова. К тому же, в любой момент к игроку сможет подключиться до 3-х других игроков и присоединиться к непрерывной борьбе с глубоко проработанным сюжетом и кооперативным режимом игры.
+
+С целиком новым движком Chrome Engine 5, на котором был создан Dead Island, игра использует все последние наработки разработчиков Techland, позволяя игрокам насладиться невиданными красотами острова, пышными лесами и проработанными городскими улочками.(   Читать дальше...   )Тип издания: Steam-RipРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7474FB27C162CEA330187CF33E851BE32511E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049901   (640381) от 15.06.2017
 
 Dying Light: The Following (2016) [Ru/Multi] (1.12.2/dlc) SteamRip Let'sPlay [Enhanced Edition]
@@ -6,7 +118,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.12.2/dlc) SteamRip Let'sPlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +144,7 @@ Dishonored (2013) [Ru/En] (1.4/dlc) Repack R.G. Механики [Game of the Ye
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +170,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +196,7 @@ Bulletstorm (2017) [Ru/Multi] (1.1.12022) Repack xatab [Full Clip Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +222,7 @@ Dead Effect - Дилогия (2014-2016) [Ru/En] (1.4/1.0.3) Repack Mizantrop133
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +248,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +275,7 @@ Downward Spiral: Horus Station (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +301,7 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +327,7 @@ House of Evil 2 (2019) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +353,7 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_636585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +379,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +405,7 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +431,7 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +457,7 @@ Bunker 58 (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +483,7 @@ Agony (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +509,7 @@ GAIN (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +535,7 @@ Tales of Destruction (2016) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +562,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +588,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +614,7 @@ Dead Effect 2 (2016) [Ru/Multi] (190 401.1357/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +640,7 @@ Get Even (2017) [Ru/En] (1.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +666,7 @@ GHOUL (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +677,6 @@ GHOUL (2018) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFF9F3758E183172FD18CFB123F363410B4A6EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229649   (624052) от 07.06.2018
-
-GHOUL (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня игры Нил (Nil) - профессиональный вор. Она заключает контракты и исполняет то, что хотят его работодатели; но конечно не всегда все идет гладко как хотелось бы. Ее следующая задача - украсть красную сумку. Нил останавливается в гостинице за пределами города и у нее появляется эта возможность. Но странное чувство, которое она испытывала с тех пор, (   Читать дальше...   )Тип издания: RepackРазработчик: Miracle StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA5097F9A21600C6B75DA6502C8923B638B0758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035958   (623996) от 18.07.2016
-
-Crysis 3 (2013) [Ru] (1.3/upd3) Portable PortGamPC
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в 2047 году, спустя 24 года после событий, описанных в Crysis 2. После подавления угрозы цефалоподов возник вакуум власти, который в итоге оказался заполнен C.E.L.L., развившейся из частной военной компании в многопрофильную мегакорпорацию. Установив монополию в ряде ключевых областей экономики, в том числе — в энергетике, C.E.L.L. задействовала (   Читать дальше...   )Тип издания: PortableРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFC6547DD90D3CCC54DA3A1DED371A1988EFE6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295014   (623590) от 10.04.2019
-
-Call of Duty: World at War (2008) [Ru] (1.7.1263) Repack xatab
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1944 году победа союзников уже не вызывает сомнений. Исход войны предрешен, но гитлеровцы и японские солдаты по-прежнему стоят насмерть. Последняя стадия великого противостояния приближается, и игрок окажется в эпицентре событий. Две напряженные и безумно затягивающие кампании пройдут на островах Тихого океана и на растерзанных артиллерией улицах Берлина.Тип издания: RepackРазработчик: TreyarchЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B558BBBE47313DE7EABF97C77BE4E00E1D3599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225676   (620518) от 09.06.2018
-
-The Forest (2018) [Ru/Multi] (1.08) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой игры остается в живых после крушения самолета на необитаемом острове. Основная задача - выжить: рубите деревья, чтобы построить себе убежище, охотьтесь на диких животных или ищите и садите плоды, чтобы не умереть с голоду, а также не забывайте поддерживать очаг, чтобы не замерзнуть..Тип издания: RepackРазработчик: Endnight GamesЖанр: Survival Horror, SandboxЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47C716F0FBAA71B0A9C6D5CBB864F7D56AD2BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

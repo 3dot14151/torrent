@@ -1,3 +1,203 @@
+###  Публикация: 1289335   (688278) от 15.03.2019
+
+АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Час по часу
+2. Зародила меня матушка
+3. Эх, молодой
+4. Лежу я в больнице(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028678   (688246) от 23.06.2016
+
+Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt - Blood and Wine (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - Blood and Wine (02:57)
+02. Mikolai Stroinski - Fanfares and Flowers (03:11)
+03. Piotr Musial - For Honor! for Toussaint! (02:04)
+04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551974   (688238) от 23.06.2016
+
+Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]<Indie Folk, Alternative Rock, British Folk, Folk rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative/Indie Rock, British Folk, Indie Folk, Indie Pop, Alternative Pop/RockФормат: Deluxe EditionПродолжительность: 00:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C265B41CA9F1833C697020BAFD9CD19603DB2536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134553   (687429) от 16.05.2017
+
+Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Watts (01:14)
+02. Opening (02:54)
+03. Titles (02:30)
+04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B11B9ABBF47E778CA6CBC7E1FB778E979C287C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134512   (687345) от 16.05.2017
+
+VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un creador (1996) [MP3|128 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Raul Garello y su Orquesta - Buen amigo
+02. Miguel Calo y su Orquesta - Yuyo verde
+03. Alberto Marino y su Orquesta - Mano cruel
+04. Sexteto Mayor - Kicho(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134556   (687333) от 16.05.2017
+
+Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Watts (01:14)
+02. Opening (02:54)
+03. Titles (02:30)
+04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F47BBC62A329F1B58C31CDCBF9884953E1EF40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134506   (687238) от 16.05.2017
+
+Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя зоопарка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Warsaw Zoo, 1939 (05:07)
+02. The Bombings (00:57)
+03. Aftermath (02:48)
+04. The Escape (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D4570EEBC430DCE287B246590BF4EF80B56C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134510   (687218) от 16.05.2017
 
 Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
@@ -6,7 +206,7 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +235,7 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +264,7 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +293,7 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686641.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +322,7 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +351,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +380,7 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +409,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +438,7 @@ VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +467,7 @@ Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +496,7 @@ Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +525,7 @@ Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Traile
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +554,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +583,7 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +612,7 @@ Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +641,7 @@ VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +670,7 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +699,7 @@ Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +728,7 @@ Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,228 +742,6 @@ Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507361   (683953) от 08.06.2012
-
-Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683953.jpg" />
-</div>
-
-
-###  Подробнее
-
-(08:46) 1. To Be With You
-(09:15) 2. Lonesome
-(10:57) 3. Be Gentle
-(06:07) 4. Silent Attitude
-(04:50) 5. Near And Far
-(10:18) 6. Follow The Senses
-(09:27) 7. Soft Touch
-(05:17) 8. Bкeak AwayЖанр: MeditativeПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507739   (683153) от 08.06.2012
-
-Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_683153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidamari No Ki ~Akatsuki~ (4:16)
-02. Umi E. (5:08)
-03. Seimei No Ki (3:48)
-04. Hashire (4:30)
-05. Umi E ~Piano Version~ (4:00)
-06. Seimei No Ki ~Piano Version~ (3:18)
-07. Hidamari No Ki ~Piano Version~ (4:03)
-08. Yasashii Kaze (2:39)
-09. Anun (0:58)
-10. Omowarete (1:02)(   Читать дальше...   )2000Жанр: Score, Smooth JazzПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506751   (682990) от 08.06.2012
-
-Ара Геворкян/Ara Gevorgyan - 6 Альбомов (1997-2010) [MP3|128-320 kb/s<Армянская музыка>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ani
-02. Ararat
-03. Armavir
-04. Artashat
-05. Artsakh
-06. Musa ler
-07. Mush
-08. Ov hayots ashkhar
-09. Ovkianosic Ayn koxm
-10. Tsovic tsov(   Читать дальше...   )1997-2010Жанр: Армянская музыкаПродолжительность: 01:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7352C806CBFA3DACB475AB64EEB108F76AD18669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134508   (682911) от 18.05.2017
-
-Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hunter (01:47)
-02. The Counselor (Titles) (04:10)
-03. The Lovers (01:51)
-04. A Warning (Moral Decisions) (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82825B6BD5A90B07E80AA40F81EA5CDD897F283D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135205   (682897) от 18.05.2017
-
-Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dreamcatcher
-02. The Elves Are Coming
-03. Her Celtic Eyes
-04. Morrigan(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222558   (682874) от 30.04.2018
-
-Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Unfinished Conversation
- 02 – Autumn Snowfall
- 03 – Autumn in Bruges
- 04 – Christian’s Workshop(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26965670168D6E6A75BA3FB1E5088C4A58CC51FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222529   (682610) от 30.04.2018
-
-Alan Silvestri - Мстители: Война бесконечности / Avengers: Infinity War (Deluxe Edition) (2018) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Avengers (0:25)
-02. Travel Delays (2:43)
-03. Undying Fidelity (5:05)
-04. He Won't Come Out (2:31)(   Читать дальше...   )Жанр: Soundtrack, scoreПродолжительность: 01:56:29
-
-01. The Avengers (0:26)
-02. Travel Delays (Extended) (4:45)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64D4251BF0505AFAF87F1F99587FEB951F3B1C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

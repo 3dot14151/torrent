@@ -1,3 +1,108 @@
+###  Публикация: 885383   (586634) от 15.07.2015
+
+Danna ga Nani o Itteiruka Wakaranai Ken 2 Sureme / Я своего мужа совсем не понимаю 2 - Юбилейный тред [2015, TV, 13] HDTV 720p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение первого сезонаЖанр: комедия, повседневностьРежиссер: Нагай Симпэй / Nagai Shinpei / 永居慎平Продолжительность: 13 серий по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B83C177D79BD119D885439F7B2FB1FD4FC4470CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857704   (585097) от 06.08.2016
+
+Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 14 эп. + 7 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сэйя Каниэ в детстве был знаменитым актером, но потом пережил трагедию и спрятался в образе законченного нарцисса и эгоиста. Красавца-отличника ничто не волнует, хотя… можно и послушать, когда тихая одноклассница Исудзу Сэнто сует тебе в лоб неясно откуда взявшийся старинный мушкет. Так Сэйя узнал о парке развлечений Амаги, оказавшимся анклавом волшебной Кленовой (   Читать дальше...   )Производство: Студии Kyoto Animation и Animation DoЖанр: комедия, фэнтезиРежиссер: Такэмото ЯсухироПеревод: Sa4ko aka Kiyoso ft. Zenobian (01-14 + 7 SP)Язык субтитров: русскийПродолжительность: 14 серий по 24 минуты + 7 спешиалов по 4 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D9809B27BE738D4701ACA277CEE589AD638104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918823   (584722) от 17.07.2015
+
+Xenosaga The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p Hi10P raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Более 4000 лет назад человечество покинуло колыбель своей цивилизации, планету Земля. Осваивая просторы вселенной, человеческий род процветал и в полной мере использовать все технологии. Люди научились выживать в сложных условиях космоса, создали Киборгов и впоследствии Андроидов, научились совершать квантовые скачки в пространстве.
+Однако, борясь за выживание, человеческой (   Читать дальше...   )Производство: Toei AnimationЖанр: приключения, фантастика, мехаРежиссер: Кога ГоПеревод: Donki & TR"]FЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Формат: mkvПродолжительность: 12 эп., 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A4BEC4F701D077ECC00D94FA8866A8D539C490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918788   (584662) от 17.07.2015
+
+Saint Seiya: Legend of Sanctuary | Рыцари Зодиака (фильм шестой) [2014, MV] BDRip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Описание: Кидо Саори, с рождения обладающая мистической силой, в день своего шестнадцатилетия узнает, что является воплощением богини Афины. С этого момента ее жизнь наполняется невероятными событиями. Загадочное Святилище под управлением Святого отца отправляет подручных, дабы те избавились от самозванки, что выдает себя за Афину. Но на помощь Саори приходят юные (   Читать дальше...   )Производство: Toei AnimationЖанр: приключения, фэнтезиРежиссер: Сато КэйитиПеревод: Anku & mutagenbЯзык субтитров: Русский (отключаемый)Формат: mkvПродолжительность: 95 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67ED0D57F7FE61F691E6AEBAA4C968A7C29CC682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041072   (584417) от 07.08.2016
 
 NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BDRip 1080p raw
@@ -6,7 +111,7 @@ NieA_7 | NieA Under 7 / Ния под_семёркой [2000, TV, 13 из 13] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Sarusuberi: Miss Hokusai / Дочь Хокусая [2015, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Appleseed XIII | Яблочное зернышко OVA-2 [2011, OVA, 13 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Selector Infected WIXOSS | Селектор: Заражение WIXOSS [ТВ-1][
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Kaginado | Key и всякое | Кагинадо [ТВ-1] [2021, TV, 12 из 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Mahouka Koukou no Rettousei / Mahouka / The Irregular at Magic High School / Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Tenkuu no Shiro Laputa / Laputa: The Castle in the Sky / Небесный зам
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +294,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +323,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +352,7 @@ Slow Loop | Медленная петля [2022, TV, 12 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +381,7 @@ Evangelion Shin Gekijouban: Ha / Evangelion 2.22: You Can (Not) Advance / Ева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +407,7 @@ Evangelion Shin Gekijouban: Jo / Evangelion 1.11: You are (not) alone / Еван
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +433,7 @@ Uchi no Maid ga Uzasugiru! | UzaMaid! | Наша служанка слишком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +459,7 @@ Golden Time / Золотая Пора [2013, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +485,7 @@ Alice or Alice | Алиса или Алиса: Брат-сестролюб и е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +511,7 @@ Boku wa Tomodachi ga Sukunai Next | Haganai Next | У меня мало друз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +537,7 @@ Ginga Eiyuu Densetsu: Die Neue These - Kaikou | Легенда о героях �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +565,7 @@ Tada-kun wa Koi o Shinai | Tada Never Falls in Love | Тада-кун не вл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +591,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Я — девочка-волшебница
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +617,7 @@ DMC | Detroit Metal City | Detroit Metal City: The Animated Series | Детро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +643,7 @@ Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорци
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +669,7 @@ Rinne no Lagrange: Flower declaration of your heart S2 / Сердца твоег
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,112 +680,6 @@ Rinne no Lagrange: Flower declaration of your heart S2 / Сердца твоег
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB23D30CE00D1C50AC38993EEA5F48A15470FA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811436   (576338) от 11.08.2014
-
-Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ-2] [2014, TV, 11] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юго Хатикэн не зря поступил в сельскохозяйственную школу Эдзо! Из городского недотепы он начал потихоньку превращаться в надежного парня, упорного в учебе, не бегающего от работы, а при случае готового и погарцевать на лихом коне. Деревенские ребята с сурового острова Хоккайдо, не так давно бывшего японским Диким Западом, приняли новичка и доверили ему пост вице-президента (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Дэай Котоми / Deai Kotomi / 出合小都美Продолжительность: 11 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF48EC2A6C704129946EE046B8D128AC61BF0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150903   (575920) от 17.07.2017
-
-New Game! OVA | Новая игра! OVA [2017, OVA, 1] DVDRip 576p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусный эпизод про горнолыжный курорт и горячие источники под открытым небом.Жанр: повседневность, комедияРежиссер: Фудзивара Ёсиюки / Fujiwara Yoshiyuki / 藤原佳幸Продолжительность: 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40049079947DACEC1BFE557B8004C21ABAE6EC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001266   (575838) от 14.08.2016
-
-Hantsu x Trash / Охотник и корзина / Трэш и Угар [2015, OAD, 2] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонус к эксклюзивному ограниченному изданию восьмого тома манги.
-
-R-18 !Производство: Hoods EntertainmentЖанр: комедия, эттиРежиссер: Сайто ХисасиЯзык субтитров: Русский (отключаемый)Продолжительность: 12 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7368929F26C5298A42198B49E2C275D51E604EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551797   (575457) от 31.05.2022
-
-Shin Ikkitousen | Новые школьные войны: Истинная сила тысячи [2022, TV, 3 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет основан на классическом китайском романе XIV века «Троецарствие» и рассказывает о войне в регионе Канто в Японии, где бойцы, известные как «тощи», представляющие семь различных школ, сражаются за власть.Производство: Студия Arms / アームスЖанр: приключенияРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 3 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5268CEFF326A24B92D170017FBA7A7B0F3E7A5CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

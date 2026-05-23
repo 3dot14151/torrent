@@ -1,3 +1,85 @@
+###  Публикация: 1496266   (872851) от 17.09.2021
+
+Rohan Dalvi | Making dessert in Houdini Part 2 (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это обновленная версия курса Tea and Cookies (Чай и печеньки). Мы, как и тогда, посмотрим на темы моделирования, шейдинга, освещения и рендера. Главное отличие курса в том, что вместо рендера Mantra, мы будем использовать рендер Redshift, Octane и Arnold.
+Вторая часть пока что доступна в двух вариантах для Redshift и Octane. Мы сфокусируемся на освещении и рендере. (   Читать дальше...   )Жанр: Создание видеоЯзык озвучки: Русский (отдельным файлом)Продолжительность: 02:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE6ED0158B1A81CBE0D6B4888B9882EE477F35DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496268   (872597) от 17.09.2021
+
+Uartsy, Marshall Vandruff | Animal Anatomy (2016) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы узнаете о том, как следует анализировать формы из которых состоят животные, узнаете об их построении. Все эти знания вы сможете применить в своей работе и нарисовать любое существо под любым углом без примера.
+Профессионалы, работающие над созданием разных существ зачастую вдохновляются внешним видом животных. Понимание анатомии животных даст вам (   Читать дальше...   )Производство: UartsyЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 14:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E96A1D433D85913748F963DC8441C030385D6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496745   (871049) от 18.09.2021
+
+Digital Tutors, Joshua Kinney | Game Asset Production Pipeline for Unity (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой серии уроков по Unity мы шаг за шагом создадим ассет и рассмотрим процесс его создания для Unity целиком.
+Мы начнем с общих рекомендаций по настройкам для создания игровых ассетов в приложениях типа 3ds Max. После чего займемся созданием высокополигонального ассета при помощи 3ds Max и ZBrush.
+Затем научимся быстро моделировать и разворачивать наш игровой (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C4933F6B9E0F68F6A8BF5B88860F42DB60607A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106779   (870894) от 20.02.2017
 
 Дмитрий Федотов | Композитинг в программе Eyeon Fusion (2012) PCRec [H.264]
@@ -6,7 +88,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +116,7 @@ Pixel, Сергей Галак | Анимация персонажа в After Ef
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +225,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 7-8 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +251,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 5-6 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +277,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +303,7 @@ Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +331,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 9-10 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +357,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 1-2 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +383,7 @@ kalachevaschool, Калачева Вероника | Ла-Ла Курс (2017) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +409,7 @@ Profileschool | DaVinci Resolve 11 Lite. Базовый уровень (2015) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +435,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +461,7 @@ Liveclasses, Дмитрий Ларионов | Работа с разными р
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +514,7 @@ XYZ School, Егор Гришин | Основы иллюстрации (2021) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +541,7 @@ Highlights | Основы веб-дизайна (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +568,7 @@ Lynda.com | Photoshop CC 2015 for Photographers Fundamentals (2016) PCRec [H.264
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +594,7 @@ Lynda.com | Photoshop for Photographers 2015 Creative Cloud Updates (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +621,7 @@ kalachevaschool, Анна Расторгуева | Экстрим-скетчин
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,7 +647,7 @@ kalachevaschool, Анна Эгида | Экстрим 5. Портрет горо
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +673,7 @@ kalachevaschool, Вероника Калачева и тд | Экстрим ск
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,91 +686,6 @@ kalachevaschool, Вероника Калачева и тд | Экстрим ск
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBBB0B286A7922EC0938AB7D587CC6FACA0A273E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498851   (852540) от 29.09.2021
-
-kalachevaschool, Анна Эгида | Летний экстрим-скетчинг с проверкой (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скетчинг — это быстрые зарисовки. Когда не нужны краски, мольберты и тишина в радиусе километра от вас.
-Городской скетчинг — не про точную перспективу и прямые линии. Будем учиться рисовать быстро, экспрессивно, и в то же время постигнем выразительные приемы, которые помогут передать характер города.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E50DA3AF74257257F8D7C0FD1A19FE6DEE8E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498841   (852534) от 29.09.2021
-
-kalachevaschool, Анна Эгида | Онлайн-курс «Летний экстрим-скетчинг» (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экстрим скетчинг от школы Вероники Калачевой.
-Даешь летний экстрим!
-Столько всего можно нарисовать летом в городе: жара, уличные кафе, вылазки в парк, фонтаны, лимонады, самокаты, скейты, обалденные закаты и танцы на свежем воздухе…
-Это и есть экстрим-скетчинг — рисовать минимумом средств с максимальной выразительностью!(   Читать дальше...   )Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9435E16E8BFBD4C8DC1D79BF1473D71057A9B5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498844   (852528) от 29.09.2021
-
-kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-курс «экстрим-скетчинг 3» (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даешь летний экстрим!
-Столько всего можно нарисовать летом в городе: жара, уличные кафе, вылазки в парк, фонтаны, лимонады, самокаты, скейты, обалденные закаты и танцы на свежем воздухе…
-Это и есть экстрим-скетчинг — рисовать минимумом средств с максимальной выразительностью!
-Необходимые материалы: брашпен (фломастер-кисть), 2 линера - потоньше и потолще.Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE596CCBBE8B14D781078E0817E1F4D64088E638
 ```
 
 https://mybot314.ru/tekegram_catalog/

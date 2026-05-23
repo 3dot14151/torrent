@@ -1,3 +1,29 @@
+###  Публикация: 1079843   (657526) от 04.06.2017
+
+Lara Croft GO: The Mirror of Spirits (2015) [Ru/Multi] (1.0/dlc) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Lara Croft GO предлагает довольно необычный взгляд на секс-символ игровой индустрии: это одна из немногих игр про Лару Крофт, где игрок решает пазлы, а не занимается пассивной объективацией (то есть, не пялится на трехмерную задницу героини). Считать это достоинством или недостатком — личное дело каждого, но любителям пораскинуть мозгами в любом случае не придется (   Читать дальше...   )Тип издания: RepackРазработчик: Square Enix MontréalЖанр: Adventure, TBS, Logic (Puzzle), 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3A25A2ABEAB6B1E05D325FB56C85A7979D1199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539480   (656851) от 26.03.2022
 
 Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
@@ -6,7 +32,7 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Guitar Hero Antology / Антология Guitar Hero [En] (RePack) 2007-2009 | 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +112,7 @@ Hirilun (2022) [Ru/Multi] (1.0c) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +138,7 @@ Aztech Forgotten Gods (2022) [Ru/Multi] (1.0.8.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +164,7 @@ THE MERCURY MAN (2018) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +190,7 @@ Spider: Rite of the Shrouded Moon (2015) [Ru/Multi] (1.1.1.11836) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +216,7 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +244,7 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +271,7 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +297,7 @@ Brigador (2016) [En] (1.0) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +323,7 @@ TEKKEN 7 (2017) [Ru/Multi] (2.21/dlc) License CODEX [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +349,7 @@ Brigador (2016) [En] (1.0) SteamRip ALiAS
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +375,7 @@ Harold (2015) [Ru/Multi] (1.0.0.1.3) Repack xGhost
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -377,7 +403,7 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +429,7 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +455,7 @@ Fossil Echo (2016) [En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +481,7 @@ Pinball FX2 (2013) [Multi] (1.0.28/dlc) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +507,7 @@ Impact Winter (2017) [Ru/Multi] (1.0.10) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +534,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +560,7 @@ Zombie Forest 2 (2018) [Ru/En] (1.01) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +586,7 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +616,7 @@ Fossil Echo (2016) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +642,7 @@ Unworthy (2018) [En] (1.0.1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +668,7 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -653,32 +679,6 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D335A4BFD6F18521BDC345AB67F27ABD9A8BFB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519486   (636687) от 06.07.2012
-
-Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 2007 | X-pack
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историки Второй мировой войны называют атаку на Перл-Харбор самой увесистой и хлёсткой пощёчиной, которую когда-либо получали вооружённые силы США. Японским лётчикам удалось застать противника врасплох: последовавший разгром военно-морской базы американцев спровоцировал затяжное и упорное противостояние на Тихом океане. Бывшие союзники, США и Япония бились с невероятным ожесточением, широко применяя флот, пехоту и в особенности авиацию. «В особенности», потому что самолёты палубного базирования одинаково хорошо подходили и для борьбы с наземными силами, и для поражения морских целей, и, разумеется, для достижения превосходства в воздухе.(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Simulator (Flight Combat) / 3DЯзык озвучки: n/aЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
 ```
 
 https://mybot314.ru/tekegram_catalog/

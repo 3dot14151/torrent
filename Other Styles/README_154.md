@@ -1,3 +1,206 @@
+###  Публикация: 1652199   (206693) от 10.08.2023
+
+Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Guitar, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Coffee
+02. Romantic Weekend
+03. Sexy Summer
+04. Play Your Game(   Читать дальше...   )Жанр: Instrumental, Guitar, Easy ListeningПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652298   (206626) от 10.08.2023
+
+Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <Instrumental, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Orlando (4:56)
+02. Seveness (5:29)
+03. Laguna (6:36)
+04. Pavane (3:01)(   Читать дальше...   )Жанр: Instrumental, New Age, AmbientПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DDA83986FD2CCA2B1176906F13061E804C0B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615834   (206188) от 28.02.2023
+
+VA - Romantic Collection. New Age (2000) [OGG Vorbis|480 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Ameno
+02. Deep Forest - Sweet Lullaby
+03. Shiva - Shiva's Dance
+04. Enigma - Principles Of Lust(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD26CE5AED08709844A0E1CBE55B46F00894163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653530   (206187) от 16.08.2023
+
+Yin Yoga Music Collection, Interstellar Meditation Music Zone, Spa Music Consort - Positive Transformation (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Spa Music Consort - Pure Awareness (3:36)
+02. Yin Yoga Music Collection - Yoga Balance (2:59)
+03. Spa Music Consort - Relax Yourself (3:05)
+04. Interstellar Meditation Music Zone - Perfect Harmony (3:32)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3FC43F6E9A788F48670F85665FDB5C62B48764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653321   (206123) от 16.08.2023
+
+Goran Bregović - The Belly Button Of The World (2023) [FLAC|Lossless|tracks + .cue] <Balkan Ethno, World Music, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+1. The Belly Button Of The World (8:46)
+2. A Moment Of Melancoly (4:52)
+3. A Christian Tale (13:14)
+4. A Jewish Tale (11:49)(   Читать дальше...   )Жанр: Balkan Ethno, World Music, FolkПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F849F0491500A1DE49958CF40A71B701C534BFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653776   (206037) от 17.08.2023
+
+VA - Б. Рубашкин, И. Ребров•Звезды русской эмиграции (1999) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Б. Рубашкин - Казачок
+02. Б. Рубашкин - Два друга
+03. Б. Рубашкин - Моя Одесса
+04. Б. Рубашкин - Татьяна(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654716   (205013) от 22.08.2023
+
+VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Simon - Natalia (8:16)
+02. Mikhail Catan - Lucid Dream (6:30)
+03. Marga Sol - Hidden Tribes (A X L Remix) (5:36)
+04. Efrén Atienza - Apollonia (Stephane Salerno Remix) (6:03)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654724   (205011) от 22.08.2023
 
 VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -6,7 +209,7 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC 2.0|44.1/48/16/24|WE
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 3-4 (1966) [FLAC 24/96, 
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -93,7 +296,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -180,7 +383,7 @@ Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Et
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -209,7 +412,7 @@ Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024)
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 1-2 (1965) [FLAC 24/96|L
 >>Instrumental (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Enigma-Forest-Transit 8 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Enigma-Forest-Transit 7 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Enigma-Forest-Transit 11 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +586,7 @@ Jed Kurzel  - Alien: Covenant  / Чужой: Завет (2017) [MP3|320 Kbps] <S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Fausto Papetti - Exitos De Fausto Papetti (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +644,7 @@ The Sri Chinmoy Bhajan Singers (Шри Чинмой) - Sing (2008) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -470,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -499,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_199888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -542,209 +745,6 @@ Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627165   (199392) от 22.04.2023
-
-Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, Tibetan Bowls>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loslassen vom Alltag
-02. Die Entspannung genieben
-03. Sich rundherum Wohlfuhlen
-04. Die innere Ruhe genieben(   Читать дальше...   )Жанр: Meditative, Tibetan BowlsПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629310   (199323) от 26.04.2023
-
-The Church Organ All Stars - Best of the Church Pipe Organ and the Hammond B-3 Organ for Christmas, Halloween and More! (2008) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Organ Stomp [02:07]
-02. Blue Organ Bossa [02:37]
-03. New Orleans Nights [02:22]
-04. Acid Jazz B-3 [02:47](   Читать дальше...   )Жанр: Hammond, Instrumental, JazzПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8522404EAD80481930A506078661B402B07A23C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616749   (198910) от 05.05.2023
-
-Iron Horse - 2 альбома (2001-2005) [MP3|320 кб/с]<Bluegrass, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Waited Too Long (03:03)
-02. Holdin' The Wind (02:50)
-03. Shine Jerusalem (03:11)
-04. Old Elijah (04:36)(   Читать дальше...   )Жанр: Bluegrass, CountryПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A1501E539B730D978B09A1CFAA8CAA92E67B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170420   (198046) от 22.05.2023
-
-Ry Cooder - Crossroads (1986) [FLAC|Lossless|image + .cue] <Blues, OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossroads (4:25)
-02. Down In Mississippi (4:26)
-03. Cotton Needs Pickin' (2:59)
-04. Viola Lee Blues (3:12)(   Читать дальше...   )Жанр: Blues, OSTПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03E39E0473545B7358EB2D7FF74A96CD8F50D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079610   (197688) от 30.05.2023
-
-Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|WEB-DL|tracks|image] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygène, Pt. 1 (7:39)
-02. Oxygène, Pt. 2 (7:47)
-03. Oxygène, Pt. 3 (3:15)
-04. Oxygène, Pt. 4 (4:06)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9608D0F67DA7502765692DAE71D60862A3057976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637015   (197641) от 02.06.2023
-
-VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome to Kollektiv
-2. VOV-А6/CH
-3. Lullaby
-4. A Fridge Called Nora(   Читать дальше...   )Жанр: OSTПродолжительность: 01:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55ABE762F6CB633D33D79B7D2A7D742111BCE6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637028   (197632) от 02.06.2023
-
-VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogrov, Atomic Heart - Welcome to Kollektiv (03:54)
-02. Boogrov, Atomic Heart - VOV-А6/CH (02:26)
-03. Palina, Atomic Heart - Lullaby (02:28)
-04. Mick Gordon, Palina, Atomic Heart - A Fridge Called Nora (04:11)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE96DB97F3A20878711581EA8E44FCBA1FE700F
 ```
 
 https://mybot314.ru/tekegram_catalog/

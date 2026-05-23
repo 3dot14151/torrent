@@ -1,3 +1,107 @@
+###  Публикация: 1521006   (137914) от 31.12.2021
+
+Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабуки-тё, Дело №221: Кабуки-тё [2019, TV, 24 эп. + 1 OVA] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Восточная часть района Синдзюку. Здесь, залитый неоновыми огнями, расположился Кабуки-тё — самое беспокойное место во всём городе. И чем ярче свет этих огней, тем гуще вокруг них собираются тени… Но во тьме, скрывающей преступников, есть лучик света — дом, в котором под опекой миссис Хадсон живут детективы. Их семеро, и каждый по-своему чудак: детектив-перфекционист (   Читать дальше...   )Производство: Студия Production I.G / プロダクション・アイジーЖанр: детектив, драма, комедия, приключенияРежиссер: Ёсимура АйПеревод: русские - Wakanim (дехардсаб, оформление, перевод лирики - ваш покорный слуга), остальные - FunimationЯзык озвучки: ЯпонскийСубтитры: Русские, Английские, ИтальянскиеПродолжительность: 24 эп. по 25 мин. + OVA 27 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D291E0404D371CB3BE8F69AF78E425FF5A9C38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286529   (137834) от 30.12.2020
+
+Sword Art Online: Alicization | Мастера меча онлайн: Алисизация [2018, TV, 47 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Июнь 2026 года. Кикуока Сейдзиро предлагает Казуто «Кирито» Киригае простую работу в частной организации RATH в качестве тестера аппарата погружения в виртуальную реальность четвёртого поколения. По условиям контракта Казуто должен провести внутри виртуального мира несколько дней. Однако когда он возвращается в реальность, все его воспоминания о времени, проведённом (   Читать дальше...   )Производство: студия A-1 Pictures Inc.Жанр: приключения, фэнтезиРежиссер: Оно МанабуПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 47 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8DEF3904097C7C29C955DC8A60CF0E6D006A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176980   (137828) от 31.12.2017
+
+TsukiPro The Animation / ЦукиПро Аниме [2017, TV, 13] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SOARA, Growth, SolidS и QUELL - это четыре группы, принадлежащие Tsukino Entertainment Production (TSUKIPRO). Данный сериал изображает их музыку, переполненную уникальностью, и драму, окружающая их жизнь! Вы откроете эту сверкающую коробку сокровищ музыки?Производство: PRA / ピー・アール・エーЖанр: повседневность, музыкальныйРежиссер: Мотонага КэйтароПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D479E4628DF45B1048F1889C29C770A1C2C4F64A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059400   (137800) от 31.12.2016
+
+Проект по воспитанию волшебниц | Mahou Shoujo Ikusei Keikaku | Magical Girl Raising Project [2016, TV, 12 эп.] WEB-DL 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В мире аниме существует социальная онлайн-игра под названием «Проект воспитания девочек-волшебниц», позволяющая одному из десяти тысяч игроков (женского пола) стать взаправдашней «девочкой-волшебницей», обладающей невероятными физическими качествами, красотой и магическими силами, отличающими её от прочих людей. В один прекрасный день администрация игры объявляет, (   Читать дальше...   )Производство: студия Lerche /Жанр: махо-сёдзёРежиссер: Хасимото ХироюкиПеревод: TimecraftЯзык субтитров: #1 Русский; #2 АнглийскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186826   (137797) от 31.12.2017
 
 Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centimeters Apart. | Мы всегда были в 10 сантиметрах друг от друга. [2017, TV, 6] WEBRip 720p raw
@@ -6,7 +110,7 @@ Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centime
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Radio City Fantasy: Machikado no Maerchen | Городская радио-ска
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Nande Koko ni Sensei ga!? | Why the Hell Are You Here, Teacher!? | Что зде
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Ко
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Keishichou Tokumu Bu Tokushu Kyouakuhan Taisaku Shitsu Dai Nana Ka: Tokunana | S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +244,7 @@ Hoshiai no Sora | Stars Align | Небо, где встретились звёз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Himote House | Himote House: A Share House of Super Psychic Girls | Дом Хи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137418.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Kekkai Sensen & Beyond | Фронт кровавой блокады-2 [2017, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +322,7 @@ Senran Kagura: Shinovi Master - Tokyo Youma Hen / Сэнран Кагура 2 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +351,7 @@ Shokugeki no Souma: Shin no Sara | Food Wars! The Fourth Plate | Кулинар�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +377,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | В�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +429,7 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +455,7 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +481,7 @@ Enen no Shouboutai | Fire Force | Пламенная бригада пожарн
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +507,7 @@ Obey Me! (2022) | Повинуйся мне! (2022) [12, Web] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -430,7 +534,7 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -456,7 +560,7 @@ Arknights: Holy Knight Light / Рыцари ковчега: Святые рыц�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +586,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +612,7 @@ Acchi Kocchi / Там-сям [2012, TV, 12 + 1Sp] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -536,7 +640,7 @@ Afro Samurai Resurrection (Director's Cut) | Афросамурай: Воскр�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -562,7 +666,7 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -573,110 +677,6 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F86118D495E52E6824D84AE87B8DB9F2DEE3971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345040   (130986) от 08.12.2023
-
-Mahou Kishi Rayearth 2 | Magic Knight Rayearth 2 | Рыцари магии 2 [1995, TV, 29 из 29] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеряв Основу, мир Цефира погружается в хаос. Миры, расположенные неподалёку, преследуя каждый свою цель, стремятся захватить разрушающийся мир, а неведомая сила, средоточие зла, используя момент, собирается вообще уничтожить вселенную. И лишь легендарные Рыцари-маги могут восстановить былое равновесие.Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Жанна ТачёваЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 29 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4EF5AD9933C4E96A5EF0359D0B290BFF02A8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345039   (130971) от 08.12.2023
-
-Mahou Kishi Rayearth | Magic Knight Rayearth | Рыцари магии [1994, TV, 20 из 20] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три восьмиклассницы – Хикару, Юми и Фу – были на экскурсии в Токийской телебашне. Неожиданно странная сила захватила девочек и увлекла их в загадочный мир. Там их встретил таинственный учитель Клеф, который наспех объяснил пришелицам, что те перенеслись на Сефиро по воле принцессы Эмералд. Принцесса – душа этого мира, его правительница и магическая заступница – оказалась (   Читать дальше...   )Производство: TMS / トムス・エンタテインメントЖанр: приключения, комедия, фэнтезиРежиссер: Хирано ТосикиПеревод: Станислав ФроловЯзык озвучки: японский, английскийСубтитры: русские, английскиеПродолжительность: 20 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E57DC9AA8D9DA7BF8D548BEA44B1350794D2D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345044   (130967) от 08.12.2023
-
-Rayearth | Magic Knight Rayearth | Рыцари магии [1997, OVA, 3 из 3] DVDRip 480p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смогут ли три очаровательных беззаботных школьницы, случайно перенесенных в параллельную реальность, где правит изощренное волшебство, стать бесстрашными воительницами, магическая сила которых защитит обитателей этого мира?Производство: TMS / トムス・エンタテインメントЖанр: приключения, фэнтезиРежиссер: Хирано ТосикиПеревод: Жанна ТачёваЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 3 эп. по 45 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A19FFF9052F250A4867E95C02A1D91C8B36531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665831   (129623) от 10.12.2023
-
-Dekoboko Majo no Oyako Jijou / The Family Circumstances of the Irregular Witch / Семейные обстоятельства легкомысленной ведьмы [2023, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алиса — ведьма, живущая одна в лесу. Однажды она находит в глуши младенца с огромным количеством маны. Вначале Алиса впадает в замешательство, но потом решает вырастить малышку и назвать её Виолой. Спустя 16 лет, Виола вырастает не только в дочь, обожающую свою маму, но и в настоящую женщину, и теперь уже Виолу принимают за мать Алисы.Жанр: комедия, фэнтези, повседневность.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C115B1AE4A301666397A59B09D68EDF4DA07F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1857928   (1060511) от 11.03.2026
+
+Анатолий Романов - Признание (2026) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01 - Признание [00:03:21]
+02 - Так много нежности [00:04:46]
+03 - Бархатный сезон [00:03:29]
+04 - Отражение любви [00:03:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9962FB62E4BD0E9CD7357AF0EF12F7AC089DD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857914   (1060510) от 11.03.2026
+
+Юрий Коновалов - Оптимист (2026) AI-generated content [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01 - Оптимист [00:03:31]
+02 - Маэстро, я пою для вас [00:04:54]
+03 - Цыганское счастье [00:05:10]
+04 - Беспутная [00:03:04](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324AF51F9CCE4142563CFC1258F7A4D0E9005300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857912   (1060509) от 11.03.2026
+
+Олег Нестеров - Шансон 2026 (2026) AI-generated content [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01 - Давай помолчим [00:03:13]
+02 - А собака ждёт [00:03:27]
+03 - Сердце рвёт на части [00:02:39]
+04 - Поцелуй меня, удача [00:02:49](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7181DCC46FC90DA923C0AB23CBC0045EC3FB0113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857435   (1059676) от 06.03.2026
+
+Евгений Любимцев - Колыма (2025) [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+01 - А где ж вы, косы [00:03:23]
+02 - В Одессе девочки [00:03:34]
+03 - Не улетай с осенним ветром [00:04:19]
+04 - Летит над зоною снежок [00:03:21](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948C421C092AE85C77CA1C4707DDDC8F574BD65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857437   (1059675) от 06.03.2026
 
 Игорь Калашников - Забытый романс (2026) [MP3|320 Kbps] <Chanson, Pop>
@@ -6,7 +122,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Волчий шансон: Сборник крутых песен otKOSTETa
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Колючий Шансон: Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Новые хитовые песни 2026, Часть 2 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 1 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 2 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 4 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Слушаем шансон (Лучшие песни), Часть 5 (2026) 
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Шансон 90-х, Часть 4 (Избранные песни десят�
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +412,7 @@ iSenin - Ветры (2026) AI-generated content [MP3|320 Kbps] <Chanson, Pop>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -441,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - Александр Асмолов - Старый рубль (2026) AI-gener
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - Красивый шансон (2025) [MP3|320 Kbps] <Chanson>
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -556,7 +672,7 @@ VA - Новые хитовые песни 2026, Часть 1 (2026) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -585,7 +701,7 @@ VA - Русский Шансон_ Сборник крутых песен otKOSTE
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -614,7 +730,7 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -628,122 +744,6 @@ VA - Самые новые песни о любви 12 (2026) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51FD0CE4A05CCD2EE8047D4664B4FE0298AD9617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851600   (1055310) от 02.02.2026
-
-VA - Шансон премьера 2026 январь (Новые песни. Новые хиты) (2026) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Виктор Королев - Твои поцелуи (3:54)
-02.  Алёна Петровская - Позвони (2:32)
-03.  Артур Руденко - Первый снег (3:33)
-04.  Надежда Мельянцева - Судьбы ирония (3:03)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59021A791FC62DB093051732F46549999AE792C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849407   (1054012) от 26.01.2026
-
-Александр Новиков - Помнишь, Девочка?... (1996) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01		Помнишь, Девочка?..
-02		Вы Уезжаете
-03		На Прощанье
-04		Катилась По Асфальту(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A2EA9DE02C108B424079AE00628C088DA50D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848324   (1054010) от 26.01.2026
-
-Vayper - Песни на стихи Некрасова Н.А. (2026) [MP3|~190 Kbps (V2)] <Shanson, Powerful, Synthwave, Nu-metal, Theatrical rock>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - Вино (Некрасов Н.А.
-02 - Внимая ужасам войны… (Некрасов Н.А.)
-03 - Генерал Топтыгин (Некрасов Н.А.)(   Читать дальше...   )Жанр: powerful, synthwave with nu-metal, Theatrical rock, Русский шансонПродолжительность: 9 CD, 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0A6A7BD1A299F7F0A20C92C731E544FD21475C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846965   (1054008) от 26.01.2026
-
-Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12 месяцев (SWH, Disco) [00:06:04]
-02. 12 месяцев (SWH, Folk Rock) [00:05:15]
-03. Анчар (А.C. Пушкин, Synth Rock) [00:04:48]
-04. Иди на свет (SWH, Synth Rock) [00:03:58](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F93F4FBD3E9D465EA704174B0A24092835B9127
 ```
 
 https://mybot314.ru/tekegram_catalog/

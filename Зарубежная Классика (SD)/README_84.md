@@ -1,3 +1,108 @@
+###  Публикация: 1069867   (370620) от 05.11.2016
+
+Лоуренс Аравийский / Lawrence of Arabia (1962) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о легендарном герое Первой мировой войны - английском разведчике Т. Э. Лоуренсе, действовавшем среди арабских племен и возглавившем их в походе против турок.Производство: Великобритания / Horizon Pictures (II)Жанр: Драма, Приключения, Военный, Биография, ИсторияРежиссер: Дэвид ЛинАктеры: Питер О’Тул, Алек Гиннесс, Алек Гиннесс, Джек Хоукинс, Омар Шариф, Хосе Феррер, Энтони Куэйл, Клод Рейнс, Артур Кеннеди, Дональд Вулфит, Мишель РэйПеревод: Профессиональный (многоголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: Русский, АнглийскийПродолжительность: 03:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB625C80A9C7F87C76051A854A99B9D2BF1A61BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324737   (369952) от 27.09.2019
+
+Последний закат / The Last Sunset (1961) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Среди ковбоев, перегоняющих скот, скрываются убийца и преследующий его шериф. Противники многое узнают друг о друге во время долгого и опасного путешествия, но развязка все же жестока и неизбежна. Интересный психологический сценарий известного драматурга Далтона Трамбо, куда он, правда, намешивает все: от индейцев до кровосмесительства.Производство: США / Brynaprod S.A.Жанр: Драма, Мелодрама, ВестернРежиссер: Роберт ОлдричАктеры: Рок Хадсон, Кирк Дуглас, Дороти Мэлоун, Джозеф Коттен, Кэрол Линли, Невилл Брэнд, Режис Туми, Джеймс Вэстмолэнд, Адам Уильямс, Джек ЭламПеревод: Многоголосый профессиональный (Selena International по заказу СТС)Субтитры: Английские (Full, SDH)Продолжительность: 01:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1720C79DCA14461845E1B97FF205452D9E9C89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946812   (369584) от 26.10.2015
+
+Придурок / The Jerk (1979) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Узнав, что он приемный сын, Нэйвин бросает своих названых чернокожих родителей и отправляется за смыслом жизни в Сент-Луис. Поначалу большой город не принимает новичка, и Нэйвину упорно приходится доказывать, что он чего-то стоит.
+Долго мучиться не приходится, как говорится - дуракам везет, и на провинциального паренька нежданно-негаданно, оптом, сваливаются и богатство, (   Читать дальше...   )Производство: США, Aspen Film SocietyЖанр: Комедия, МузыкальныйРежиссер: Карл Райнер / Carl ReinerАктеры: Стив Мартин (Navin R. Johnson, Cat Juggler, Pig Eye Jackson, Engineer Fred,), Бернадетт Питерс (Marie Kimble Johnson), Кэтлин Адамс (Patty Bernstein), Мэйбл Кинг (Mother), Ричард Уорд (Father), Дик Энтони Уильямс (Taj Jonson), Билл Мэйси (Stan Fox), М. Эммет Уолш (Madman), Дик О’Нил (Frosty), Морис Эванс (Hobart), Хелена Кэрролл (Hester), Рен Вудс (Elvira Jonson)Перевод: Профессиональный (многоголосый, закадровый), Авторский (Михалев Алексей)Продолжительность: 01:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB3ADFA9F91C9A804D2E35E04FD413366BE26E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950616   (369482) от 26.10.2015
+
+Смоки и Бандит 2 / Smokey and the Bandit II (1980) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение комедии «Смоки и Бандит». Известные по первой части Бандит и Снеговик на этот раз за 400 тысяч долларов везут из Флориды в Техас беременную слониху. А помешать им хочет тот же злопамятный шериф. Он позвал на помощь всех своих родственников полицейских. Но это ему не помогло, так как Снеговик вызвал на подмогу водителей - дальнобойщиков...Производство: США / Universal Pictures, Rastar PicturesЖанр: Комедия, ПриключенияРежиссер: Хэл НидэмАктеры: Берт Рейнолдс, Джеки Глисон, Джерри Рид, Дом ДеЛуис, Сэлли Филд, Пол УильямсПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: АнглийскийПродолжительность: 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D022C953FE1B9D5D2E8D0065F0410CEB60F490BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413496   (369366) от 15.10.2020
 
 Красный каньон / Red Canyon (1949) BDRip [H.264] [AVO]
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365360.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -480,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,115 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F559D3BE3D5D6C74CFDB4099CE2355CC78AEE2E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407124   (360970) от 07.11.2011
-
-Большая тропа (Большая слежка)/ The Big Trail (1930) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая роль Джона Уэйна.
-Следопыт и охотник Брек Коулман подозревает Реда Флэка и его подручного Лопеса в убийстве своего старого друга. Желая разобраться и отомстить, он соглашается отвести караван пионеров под началом Флэка от реки Миссисипи в Орегон. К каравану присоединилась дочь полковника Рут Кэмерон вместе с младшим братом Дэйви и маленькой сестрой.
-По пути (   Читать дальше...   )Производство: США, Fox Film CorporationЖанр: Мелодрама, приключения, вестернРежиссер: Рауль Уолш, Луис Р. ЛоффлерАктеры: Джон Уэйн, Маргарит Черчилль, Эль Брендел, Талли Маршалл, Тайрон Пауэр ст., Дэвид Роллинз, Фредерик Бертон, Иэн Кит, Чарльз Стивенс, Луиз Карвер и др.Перевод: Одноголосый любительскийСубтитры: ОтсутствуютПродолжительность: 02:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E746AB7851F76901612F4BD4E6D7C80C5AB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406628   (360421) от 07.11.2011
-
-Челюсти / Jaws (1975) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на экраны вышла экранизация бестселлера Питера Бенчли в постановке режиссера Стивена Спилберга, мир в одночасье изменился навсегда. Миллионы людей испугались по-настоящему, снова пошли на картину и посоветовали сходить всем своим знакомым. "Челюсти" стали первым фильмом, собравшим в прокате Америки магическую сумму в сто миллионов долларов.
-Фильм (   Читать дальше...   )Жанр: УжасыРежиссер: Стивен Спилберг / Steven SpielbergАктеры: Рой Шайдер / Roy Scheider, Ричард Дрейфусс / Richard Dreyfuss, Роберт Шоу / Robert Shaw, Лоррэйн Гэри / Lorraine Gary, Мюррей Хэмилтон / Murray Hamilton, Тед Гроссмэн / Ted Grossman, Сьюзан Бэклайни / Susan Backlinie, Карл Готтлиб / Carl Gottlieb, Джонатан Филли / Jonathan Filley, Джеффри Крэймер / Jeffrey KramerПеревод: Одноголосый закадровыйПродолжительность: 02:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3815FD69C1542E8F5146FBA6367BC29FF3D33D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576741   (359789) от 18.11.2012
-
-Три дня Кондора / Three Days of the Condor (1975) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359789.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману "Шесть дней Кондора" Джеймса Грэйди.
-Работающий в одном из замаскированных отделов ЦРУ в Нью-Йорке парень по имени Джо Тэрнер занимается анализом бульварно-детективной литературы, в которой выискивает интересующие Ведомство «оригинальные приёмы».
- В последний предрождественский рабочий день Тэрнер, вернувшись после обеденного перерыва с ужасом (   Читать дальше...   )Производство: США, Dino De Laurentiis Productions, Paramount Pictures, Wildwood EnterprisesЖанр: Триллер, Драма, Мелодрама, ДетективРежиссер: Сидни ПоллакАктеры: Роберт Редфорд, Фэй Данауэй, Клифф Робертсон, Макс фон Сюдов, Джон Хаусмен,  Эддисон Пауэлл, Уолтер МакДжинн, Тина Чен, Майкл Кэйн, Дон МакГенриПеревод: Дублированный (киностудия «Союзмультфильм»)Субтитры: ОтсутствуютПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FEB7433DC5D123424FE9ABDB93922E9EFF7773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570008   (359674) от 18.11.2012
-
-Эммануэль 2 / Emmanuelle: L'antivierge (1975) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм был выпущен на экраны лишь спустя два года после окончания съемок. Французскую цензуру шокировали некоторые особенно откровенные эпизоды картины. Во втором фильме знаменитого сериала Эммануэль из прилежной ученицы, усваивающей уроки любви, превращается в неистовую и ненасытную охотницу за наслаждениями. Эротизм картины значительно превышает первый фильм сериала. Незатейливый сюжет украшен пейзажами и нарядами, автомобилями и океанскими волнами, и наполнен страстью, страстью, страстью...Жанр: Драма, Мелодрама, ЭротикаРежиссер: Франсис ДжакобеттиАктеры: Сильвия Кристель, Умберто Орсини, Фредерик Лагаш, Катрин Риве, Анри Черняк, Том Кларк, Marion Womble, Флоранс Л. Афума, Клер Ришар, Лаура Гемсер ...Перевод: Многоголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03237CF30E4DE11DECC53D42E0B87AB0F5459A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,137 @@
+###  Публикация: 1832891   (230527) от 31.10.2025
+
+Шрифты - Behance - Graviton Font Foundry - Eslava Font Family - 13654125 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Семейство шрифтов Eslava было разработано Пабло Балселлсом для Graviton Font Foundry в 2012 году. Это акцидентный шрифт с геометрическими угловатыми линиями.
+Eslava состоит из 6 стилей.Формат: OTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832893   (230521) от 31.10.2025
+
+Шрифты - Behance - Dmytro Kifuliak - LEZO Display Typeface - Latin & Cyrillic - 142258847 [EOT, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Lezo – футуристический акцидентный шрифт с украинским колоритом, вдохновлённый формами мечей XV–XVIII веков. Lezo (лезвие) по определению означает острую часть меча, которой режут, колют или рубят. Целью было создание букв, которые превращаются в слова, прокладывающие путь в неизвестность. Со временем буквы стали заостряться, и это то, что вы видите.
+Шрифт отличается (   Читать дальше...   )Формат: EOT, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226AE0ACAEF403D975B2D4F44427830FBB481A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832905   (230518) от 31.10.2025
+
+Шрифты - Google - Vernon Adams - Nunito [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Nunito - это хорошо сбалансированное суперсемейство шрифтов без засечек, представленное двумя версиями. Проект начался с Nunito, созданного Верноном Адамсом как закруглённый терминальный гротеск для акцидентной типографики. Жак Ле Байи расширил его до полного набора начертаний и добавил к нему обычную, незакруглённую терминальную версию Nunito Sans.
+Материал раздаётся (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B202938CDE16F8C74E0A3B38D4A38F13185A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832910   (230512) от 31.10.2025
+
+Шрифты - Gooova Fonts - Vernon Adams - Nunito Sans [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Nunito - это хорошо сбалансированное суперсемейство шрифтов без засечек, представленное двумя версиями. Проект начался с Nunito, созданного Верноном Адамсом как закруглённый терминальный гротеск для акцидентной типографики. Жак Ле Байи расширил его до полного набора начертаний и добавил к нему обычную, незакруглённую терминальную версию Nunito Sans.
+В феврале 2023 (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A81B597CDB55B77100E0CAF5D101D52808BE461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832949   (230485) от 31.10.2025
+
+Шрифты - Creative Market - Diraga || Modern Serif Font - 291785207 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Diraga Serif — современный и стильный шрифт для любого дизайна брендинга и логотипов. Этот современный и стильный шрифт с засечками обладает красивым характером. Он подходит для дизайна пригласительных открыток, стильных логотипов, названий фильмов, визитных карточек, названий книг, названий брендов и различных других дизайнов. Diraga Serif — это плавный шрифт с (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A68E6EAFC69A2949471F7ACC0F083598DEC246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832965   (230363) от 31.10.2025
 
 Шрифты - Envato - Harume - Nothim - 9LWNR6G [OTF, TTF, WOFF]
@@ -6,7 +140,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_221271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -113,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -142,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -168,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213535.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -194,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -220,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -246,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -272,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -299,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -351,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -377,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -404,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -432,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -460,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -486,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -512,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -538,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -549,142 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F20E736E76F6BC9D24A0962479BAEF1EB72B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831249   (212465) от 28.10.2025
-
-Шрифты - Envato - Keirana - Elegant Serif Font - YAF9FU2 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Keirana — универсальный и уникальный шрифт, представленный в различных стилях, каждый из которых обладает уникальным ощущением и характером, отличаясь высокой контрастностью, чёткими деталями и классическим шармом. Благодаря изысканным деталям и универсальному стилю он легко адаптируется для самых разных творческих проектов. Он придаст любому проекту элегантный и (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8200442A2A4A4734C429C5D72A4D95D7316092D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831366   (212439) от 28.10.2025
-
-Шрифты - Creative Market - GC Chroma - Condensed Sans Family - 291893599 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212439.jpg" />
-</div>
-
-
-###  Подробнее
-
-GC Chroma — семейство гротесков Condensed Sans — это современный узкий шрифт, сочетающий в себе точность, мощь и универсальность. Благодаря изящным пропорциям и геометрической чёткости он производит сильное визуальное впечатление, сохраняя при этом отличную читаемость на любом носителе.
-
-Шрифт GC Chroma, созданный для дизайнеров, ценящих эффективность и стиль, идеально (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1EB00477BDAC6A5B7A0EDAA4B9370796946893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831785   (212206) от 29.10.2025
-
-Шрифты - Creative Market - GC Neue Machine - Variable Sans - 291897995 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212206.jpg" />
-</div>
-
-
-###  Подробнее
-
-GC Neue Machine — Modern Streamlined Precision — это компактный шрифт без засечек, созданный для универсальности, сбалансированности и выразительности. Благодаря высоким пропорциям и чёткой геометрии он воплощает изысканный, но мощный визуальный ритм, который выделяется как в цифровых, так и в печатных медиа. Разработанный для обеспечения ясности и современной элегантности, (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2540DE9292B0B989884E82FF084526560C2FD483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1831570   (212138) от 28.10.2025
-
-Шрифты - Creative Market - TT Montero Serif Condensed - 291730796 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212138.jpg" />
-</div>
-
-
-###  Подробнее
-
-TT Montero — это шрифт с узкими засечками, сочетающий в себе вневременную элегантность и изящную современную структуру. Узкие пропорции и изящные детали засечек делают его идеальным выбором для дизайнеров, стремящихся к экономии пространства и изысканной утончённости.
-
-Шрифт TT Montero, разработанный с упором на баланс и ясность, поддерживает малые заглавные буквы (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E58D89C6A2E2ED06D0C1E53A33E630942502659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830940   (205713) от 27.10.2025
-
-Шрифты - Envato - Bubblegum - Modern Classy Script Font - TMJB6FB [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bubblegum — это современный стильный рукописный шрифт, созданный с учётом элегантности, изысканности и вневременной красоты. Благодаря плавным изгибам, стильным росчеркам и изысканным каллиграфическим штрихам, Bubblegum идеально подходит для придания любому проекту нотки роскоши и роскоши.
-
-Этот универсальный шрифт сочетает в себе мастерство классической каллиграфии (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F50BA9F1A4B0BDA6856BF69FD052E0FA8BE93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

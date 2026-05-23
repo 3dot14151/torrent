@@ -1,3 +1,107 @@
+###  Публикация: 1570162   (205469) от 16.08.2022
+
+TV189 (2018) [En] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+TV189 – это название биологического оружия, вокруг которого завязан сюжет в данной игре. Её события происходят в антиутопическом будущем на территории вымышленного российского города Тималюн. Там обитает некая террористическая организация RFF (Силы Русского Фронта), что угрожает миру новым таинственным вирусом. У главного героя есть к нему иммунитет. Поэтому его (   Читать дальше...   )Тип издания: LicenseРазработчик: Toby ClarkЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7113424E0ECD5F8073E6222F25A65B93AA678BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584913   (205010) от 20.10.2022
+
+We Happy Few (2018) [Ru/Multi] (1.9.88966/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+We Happy Few - история шайки не слишком приятных, но храбрых ребят, пытающихся сбежать из города Веллингтон Веллс от радостного идиотизма местной жизни. Вы должны слиться с жителями подсаженного на наркотики ретрофутуристического города в альтернативной Англии 1960-х – здесь не слишком любят людей, которые отказываются жить по его безумным правилам. Раскрывайте темную (   Читать дальше...   )Тип издания: LicenseРазработчик: Compulsion GamesЖанр: Приключение, Экшны, МистикаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C507FF8655B10F27194346D9C36C6CCB94F6B1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585623   (204741) от 26.10.2022
+
+Wolfenstein: Enemy Territory (2003) [En] (1.0RC1) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Wolfenstein: Enemy Territory - это бесплатный многопользовательский шутер от первого лица о Второй мировой войне. В игре могут участвовать до 32 игроков. Выберите Ось или союзников и сражайтесь на шести картах, основанных на реальных местах сражений. Играйте за один из пяти уникальных классов (инженер, медик, солдат, полевой оперативник и тайный оперативник), работая (   Читать дальше...   )Тип издания: LicenseРазработчик: Splash DamageЖанр: Шутеры, От первого лица, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C718F7CF8DC5B0109289861B047C4E12651BC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602558   (204412) от 06.01.2023
+
+Skater XL - The Ultimate Skateboarding Game (2020) [En] (1.2.2.5) License CODEX
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Skater XL - The Ultimate Skateboarding Game – симулятор скейтбординга, где игрок испытает беспрецедентный контроль над доской, катаясь по легендарным местам, созданным из реального мира. Делайте такие приемы, какие только захотите. Почувствуйте связь со скейтом так, как никогда раньше в предыдущих играх.Тип издания: LicenseРазработчик: Easy Day Studios Pty LtdЖанр: Action, Indie, Simulation, SportsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8D0E2FF29588FEC07AB1BE4EA40D7C934D77C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829999   (202453) от 26.10.2025
 
 Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
@@ -6,7 +110,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Hordelord (2025) [Ru/Multi] (16) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Survival & Horror: Hangman's Rope (2023) [Ru/En] (Build 11602258) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Paint the Town Red (2021) [Ru/Multi] (1.3.4 r5682) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Gunfire Reborn (2021) [Ru/Multi] (Build 20537927/dlc) Repack Let'sРlay [Bundles
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Crysis 2 (2011) [Ru] (1.9.0.0/dlc) Repack Necros [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Battle: Los Angeles – The Videogame (2011) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_199940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +318,7 @@ System Shock (2023) [Ru/Multi] (1.0.16944) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +344,7 @@ System of Souls (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Impaler (2022) [Ru/Multi] (1.0.475) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Trepang2 (2023) [Ru/Multi] (2168) Repack DjDI [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Cryostasis: Sleep of Reason (2008) [Ru/En] (1.0.1.0) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Cryostasis: Sleep of Reason (2008) [Ru] (1.0.2.608) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Demonic Supremacy (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +526,7 @@ World War Z (2019) [Ru/Multi] (27.06.2023/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Turbo Overkill (2022) [Ru/Multi] (1.0) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.10) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Let'sРlay [Ultimate 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DDA3369800275F9440988ED928081B992AEDA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828333   (193466) от 24.10.2025
-
-Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack FitGirl [20th Anniversary Update]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый Крутой Сэм вернулся вместе со своей фирменной неутомимостью в это грандиозное, смелое и красочное продолжение классических игр Serious Sam: First Encounter и Second Encounter! Получивший задание спасти вселенную с помощью пушек от несметных полчищ врагов, путешествующих во времени, Крутой Сэм должен пробиться с боем сквозь непроходимые джунгли, мрачные (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Экшены, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828322   (193461) от 24.10.2025
-
-Metal Eden (2025) [Ru/Multi] (85667) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal Eden – научно-фантастический адреналиновый шутер от первого лица. Высокотехнологичный гипермодуль Аска отправляется на смертельно опасную миссию по спасению сердечников простых людей в огромном монолитном городе Мёбиус, который должен был стать новым домом для человечества, но вместо этого превратился в ловушку. Побеждайте корпус внутренней безопастности в (   Читать дальше...   )Тип издания: LicenseРазработчик: Reikon GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A2AC120EA0678D3484C0393960E2151D897CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827683   (193385) от 22.10.2025
-
-Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Wanterlude [Premium Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Древний вампир приходит в себя в современном Сиэтле - но город стоит на грани войны. Кому достанется власть? Каким станет город? Решать вам - знакомьтесь с претендентами и выбирайте сторону... Осажденный с трех сторон Сиэтл, ослабевший авторитет вампирской власти, старейшина с чужим голосом в голове и все это в исполнении обладателей премии BAFTA, студии The Chinese (   Читать дальше...   )Тип издания: RepackРазработчик: The Chinese RoomЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796F79C15542CC6884E650EF586AC34ABE8C441A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587537   (192430) от 31.10.2022
-
-Dead Man´s Diary (2022) [Ru/Multi] (1.5.54360) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это вымышленный постапокалиптический мир, через 15 лет после катастрофы вам предстоит покинуть свое убежище и исследовать мир лишенный человеческой жизни. В одиночку вы должны найти способ выжить. Ты один в мире, полном опасностей! Вы можете пить, только если найдете воду, пережить ночь, только если у вас есть безопасное место для сна - ешьте только то, что вы нашли (   Читать дальше...   )Тип издания: RepackРазработчик: TML-StudiosЖанр: Adventure (Survival), 1st Person, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46DE10B92C48F1FFEC7B18AA3C3297CAA091F12
 ```
 
 https://mybot314.ru/tekegram_catalog/

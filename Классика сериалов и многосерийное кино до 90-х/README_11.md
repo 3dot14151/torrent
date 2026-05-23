@@ -1,3 +1,55 @@
+###  Публикация: 1567994   (243518) от 05.08.2022
+
+Полиция Майами: Отдел нравов / Miami Vice (1988-1989) BDRip [H.265/1080p-LQ] [10-bit] (сезон 5, серии 1-22 из 22) СТС
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает о нелёгкой работе полицейских Майами. Санни Крокетт и его напарник и одновременно близкий друг Таббс расследуют жестокие убийства, изнасилования и ограбления. Полицейские всегда находят преступников и защищают слабых.Производство: США / Michael Mann Productions, Universal TVЖанр: боевик, триллер, драма, криминал, детективРежиссер: Джон Николелла, Ричард Комптон, Леон ИчасоАктеры: Дон Джонсон, Филип Майкл Томас, Сандра Сантьяго, Оливия Браун, Майкл Тэлботт, Эдвард Джеймс Олмос, Джон Дил, Роберт Пэйсли, Мартин Ферреро, Рафаэль Рей ГомезПеревод: Многоголосый профессиональный (СТС)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234CD777DF607D69244D0F4F3B1D6D8E800A1C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505815   (243398) от 07.04.2022
+
+Время выбрало нас (1976-1979) WEBRip (серии 1-5 из 5)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Действие начинается в первые дни Великой Отечественной в западной части Белоруссии. Скрываясь в лесу,  случайно сходятся трое ранее не знакомых людей: комсомольский активист Воронецкий, раненный в ногу лейтенант РККА Небылович, командированный из Москвы Молчанов, уже успевший побывать в немецком плену и бежавший из него, захвативший при побеге немецкую форму и оружие. (   Читать дальше...   )Производство: СССР | "Беларусьфильм", ТО "Телефильм"Жанр: Драма, ВОВРежиссер: Михаил ПташукАктеры: Евгений Герасимов, Пётр Вельяминов, Виктор Проскурин, Владимир Гостюхин, Виктор Павлов, Евгений Лебедев, Вероника Изотова, Марина Дюжева, Станислав Жданько, Леонид Марков, Ирина МуравьёваПродолжительность: ~01:07:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EC7146D2CA4254834C46DD761C2C6CD31B42D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569083   (241959) от 12.08.2022
 
 Колчак: Ночной охотник / Kolchak: The Night Stalker (1974-1975) DVDRip (сезон 1, серии 1-20 из 20) Дольский
@@ -6,7 +58,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_212443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_212291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:802C2388C4B5E338F7AAFCA4868740CECA16F16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601188   (204505) от 04.01.2023
-
-Чирс / Cheers (1982-1993) WEBRip [H.264] (сезон 1-11, серии 1-271 из 271) CBS Drama, Melty Blood [EN / EN Sub]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204505.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чирс» — это название небольшого бара в Бостоне, которым владеет Сэм «Мэйдэй» Мэлоун, бывшая звезда бейсбола. Сэм, персонал и завсегдатаи бара каждый день болтают о проблемах, смеются друг над другом, обсуждают забавные случаи из жизни. Все это, разумеется, сдобрено солидной порцией алкоголя. На шутках, юморе и дружелюбных подколках и строится весь сериал.Производство: США / Charles/Burrows/Charles Productions, Paramount TelevisionЖанр: драма, комедияРежиссер: Джеймс Берроуз, Энди Экерман, Томас ЛофароАктеры: Тед Дэнсон, Ри Перлман, Джон Ратценбергер, Джордж Уэндт, Келси Грэммер, Вуди Харрельсон, Филип Перлман, Кёрсти Элли, Джо Пас, Шелли ЛонгПеревод: Двуголосый профессиональный (CBS Drama, сезоны 1-4), Одноголосый любительский (Melty Blood, сезон 7), Отсутствует (сезоны 5, 6, 8-11)Язык озвучки: Русский (сезоны 1-4, 7), Английский (сезон 1-11)Субтитры: Русские (сезон 5, 6), Английские (сезон 1-11)Продолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F54DFA2001FC31082CF34799A459ACC246E4D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608700   (203320) от 31.01.2023
-
-Щит и меч (1968) WEBRip [VP9/2160p] (серии 1-4 из 4) [Реставрация МФ]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великая Отечественная война. Советский разведчик за несколько лет службы в абвере завоевывает расположение немецкого военного командования. Перевод в СС обеспечивает ему доступ к ценнейшей секретной информации…Производство: СССР, Польша, Германия (ГДР) / МосфильмЖанр: драма, военный, приключенияРежиссер: Владимир БасовАктеры: Станислав Любшин, Георгий Мартынюк, Валентина Титова, Наталья Величко, Юозас Будрайтис, Алексей Глазырин, Вацлав Дворжецкий, Олег Янковский, Кристина Лазар, Всеволод СафоновПродолжительность: 01:22:39 + 01:47:10 + 01:16:52 + 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16DC1346D8BCC4991101409A230C33345CB6BFB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

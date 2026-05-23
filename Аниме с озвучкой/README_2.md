@@ -1,3 +1,107 @@
+###  Публикация: 1847892   (1052435) от 15.01.2026
+
+Papa no Iukoto o Kikinasai! | Listen to Me, Girls. I Am Your Father! | Слушайтесь папу! [2012, TV, 12 эп. + спэшл] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Юта Сэгава рано остался сиротой, его вырастила и воспитала старшая сестра Юри. Когда брат пошел в старшую школу, Юри вышла замуж за мужчину с двумя дочерьми (обе от разных браков). Хотя Юта очень любил сестру, он не одобрил этот союз и стал жить отдельно, хотя и не терял контакт с самым близким человеком. Герой окончил школу и поступил в университет. Увы, познавать (   Читать дальше...   )Производство: Япония, FeelЖанр: комедия, драма, повседневностьРежиссер: Кавасаки ИцуроЯзык озвучки: Русский закадровый (AniLibria - Eladiel & Zendos)Продолжительность: ТВ, 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE56A5B0C18C245B72D38026C492D8FAC758AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847893   (1052434) от 15.01.2026
+
+Papa no Iukoto o Kikinasai! OVA-1 | Слушайтесь папу! OVA-1 [2013, OVA] DVDRip 720p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В результате определенных обстоятельств Сора и Райка оказываются запертыми в шкафу и, пытаясь выбраться, оказываются в еще более обнаженном состоянии. Тем временем Миу дает несколько советов по моде своей подруге и соседке, Сиори Китахара. Позже Хина уходит одна к колесу обозрения, вызывая панику среди Юты и остальных. После того, как Сиори удается найти Хину и воссоединить (   Читать дальше...   )Производство: Япония, FeelЖанр: комедия, драма, повседневностьРежиссер: Кавасаки ИцуроЯзык озвучки: Русский закадровый (AniLibria - Eladiel & Zendos)Продолжительность: OVA, 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8691B1B4EF13957C8CA8ACCF9DDD5008BF9A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847731   (1052320) от 14.01.2026
+
+Tonari no Kyuuketsuki-san | Ms. Vampire Who Lives in My Neighborhood. | Госпожа Вампир по соседству [2018, TV, 12 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Любовь нечаянно нагрянет, когда её совсем не ждёшь! Акари Амано с первого взгляда влюбляется в девушку-вампира Софи Твайлайт, которая спасает её из беды. Вскоре это слепое увлечение перетекает в совместное проживание: Софи приходится принять свою новую соседку. А Софи и сама не является типичным представителем расы вампиров — людей она не трогает, ведь ей привычнее (   Читать дальше...   )Производство: Япония, Studio GokumiЖанр: комедия, повседневность, вампиры, паранормальноеРежиссер: Акитая НориакиЯзык озвучки: Русский закадровый (KANSAI Studio)Субтитры: ASS (Русский, Crunchyroll)Продолжительность: ТВ, 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D44493D4FDB47DB24A4C0C2CDB3D94A9C3D48EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847577   (1052288) от 14.01.2026
+
+Given: Uragawa no Sonzai | Given: On the Other Hand | Дарованный OVA [2021, OVA] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+С момента первого живого выступления "Given" отношения между Мафую Сато и Рицукой Уэноямой складывались гладко. Их общая любовь к музыке укрепляет их связь, и каждая минута, проведенная вместе, делает их еще более неразлучными. Тем не менее, наступят времена, когда они столкнутся с трудностями, будучи поглощенными внутренними переживаниями.Производство: LercheЖанр: сёнэн-aй, романтикa, драмaРежиссер: Оохаси АкиёЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 22 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDFA483B566D2446DA34F1387F76F08C458E5FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847543   (1052178) от 20.01.2026
 
 Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [2026, TV, 01 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +110,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Slayers Evolution-R | Рубаки: Эволюция-Эр [2009, TV, 13 эп.] H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +244,7 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +297,7 @@ Outbreak Company | Операция - Вторжение | Мятежная ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Kodomo no Jikan | Детское время [2007, TV, 12 эп. + спэшл] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051527.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -271,7 +375,7 @@ Kodomo no Jikan: Ni Gakki | Детское время: Второй семест
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +401,7 @@ Kodomo no Natsu Jikan | Летнее время для детей [2011, OAD] DV
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +427,7 @@ Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убийстве�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +453,7 @@ Bokusatsu Tenshi Dokuro-chan Second | Bludgeoning Angel Dokuro-chan 2 | Убий
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +479,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -401,7 +505,7 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Lodoss-tou Senki | Record of Lodoss War | Летопись войн остров
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -533,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -559,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -570,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C81700EC6A3169BBD873A5286EE5F09A1F81F8C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844833   (1050132) от 28.12.2025
-
-Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монстр хочет съесть меня [2025, TV, 13 из 13] WebRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хинако ー обычная старшеклассница, которая живет тихой жизнью в небольшом приморском городке. Однако всё меняется, когда она встречает загадочную девушку по имени Шиори. Как выясняется в дальнейшем, девушка, глаза которой прекраснее самого моря, на самом деле, русалка, которая уже долгое время наблюдает за Хинако.
-© ShikimoriПроизводство: Япония, Studio LingsЖанр: драма, сёдзе-ай, cверхъестественноеКачество: WebRip (Crunchyroll)Продолжительность: 13 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82236632E2BA2870E8FD519A789FE5A54ACB3B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843892   (1049697) от 22.12.2025
-
-Леди со странным вкусом и безумный герцог | Akujiki Reijou to Kyouketsu Koushaku | Pass the Monster Meat, Milady! [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как известно, благородным леди присущи утончённые вкусы. Но у Мельфьеры Маршалрейд они... слегка необычные. Дело в том, что девушка обожает монстров, много про них знает и даже научилась безопасно их готовить. Но в королевстве такое мясо считается грязным, и к подобным кулинарным изыскам относятся предвзято.
-Отыскать в высшем свете таких же гурманов нелегко, а потому (   Читать дальше...   )Производство: Япония / Студия Asahi ProductionЖанр: Романтика, фэнтезиРежиссер: Такэда МуцумиЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (хардсаб на надписи), (софтсаб полные)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F886CE3DB61803C78361BC063080C91EFBAC8F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843549   (1049324) от 20.12.2025
-
-Хоримия [ТВ-2] | Хоримия: Кусочек | Horimiya: Piece | Horimiya: The Missing Pieces [2023, TV, 13 из 13] BDRip 1080p HEVC 10-bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049324.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого есть сторона, которую не хочется показывать другим. И не всегда то, каким человек кажется со стороны, отражает его истинную сущность. Популярная, но холодная красавица может вдруг оказаться заботливой и внимательной сестрой, а нелюдимый хулиган с татуировками и пирсингом — добрым и отзывчивым парнем. Познакомившись поближе, наши герои Хори и Миямура узнали (   Читать дальше...   )Производство: Япония / Студия CloverWorksЖанр: комедия, романтика, повседневность, школа, сёненРежиссер: Исихама МасасиЯзык озвучки: Русский (Crunchyroll, AniLibria, AniBaza, AniPlague, Dream Cast, youmiteru, Amazing Dubbing, AniDub Online, AniJoy, SHIZA Project, Youkai Studio, КОМНАТА ДИДИ), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 13 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258778B260A4926904FD27ABDAC45B2D56997EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842810   (1048817) от 17.12.2025
-
-Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на большом экране [1995, Movie] WEBRip 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попытки отомстить Лине Инверс кончаются неудачно. Всегда. К сожалению для бандитов, не все об этом знают. Работники ножа и топора, получив пинков от Лины, наняли Нагу Серпент для попытки отомстить. Две девушки встретились, вежливо поговорили (в процессе было сожжено примерно половина местного леса) и решили - мир, дружба, долой бандитов! В результате лихих людей (   Читать дальше...   )Производство: Япония, J.C.StaffЖанр: приключения, комедия, фэнтезиРежиссер: Ватанабэ ХиросиЯзык озвучки: Русский закадровый (Panda_Ksyao, ~Maria Van Gerad~, Morello, Kaize, Mondi, Ellen, Cruel, SnagVoice, Eliza)Продолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B382CB66374FEBDF8E5CB9079A225600DDA1501C
 ```
 
 https://mybot314.ru/tekegram_catalog/

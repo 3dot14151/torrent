@@ -1,3 +1,55 @@
+###  Публикация: 1174478   (384949) от 15.10.2017
+
+Зачетный препод / Fack ju Gohte (2013,2015) BDRip [H.265/1080p-LQ] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Комедийная история о бывшем незадачливом грабителе банков Зеки Мюллере, а ныне крутом преподе в школе Гёте. Благодаря нетрадиционным методам преподавания ему удается обрести популярность среди учеников самого буйного и ненормального класса во всей школе.Производство: Германия / Constantin Film Produktion GmbH, Rat Pack Filmproduktion GmbHЖанр: КомедияРежиссер: Бора ДагтекинАктеры: Элиас ЭмБарек, Каролине Херфурт, Катя Риман, Яна Палласке, Алвара Хёфельс, Йелла Хаазе, Макс фон Гробен, Анна-Лена КленкеПеревод: Дублированный (R5, iTunes)Субтитры: отсутствуютПродолжительность: 01:57:47 | 01:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B68754AA6A3B0EAC722F98C74534ABB69418E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063963   (384261) от 30.10.2016
+
+Каникулы. Коллекция / The Vacation. Collection (1983-1997) BDRip [H.264/720p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция состоит из четырех фильмов. «Каникулы» - семья Грисвольдов планирует хорошо провести свои каникулы, поэтому они решили отправиться в парк развлечений, который находиться за тридевять земель. И, кажется, ничто не сможет помешать вкусить прелести заслуженного отпуска. Но не тут-то было… «Европейские каникулы» - выиграв главный приз в телевикторине, семейка (   Читать дальше...   )Производство: СШАЖанр: Комедия, приключения, семейныйРежиссер: Харольд Рэмис, Эми Хекерлинг, Джеримайя С. Чечик, Стивен КесслерАктеры: Чеви Чейз, Беверли Д`Анджело, Имоджен Кока, Рэнди Куэйд, Энтони Майкл Холл, Дэна Баррон, Эдди Брекен, Брайан Дойл-Мюррей, Мириам Флинн, Джеймс Кич, Дэна Хилл, Джон Эстин, Пол Бартел, Синтия Сигети, Мальколм Дэнар, Кеви Кендалл, Джульетт Льюис, Джонни Галэки, Джон Рэндольф, Дайан Лэдд, Итан Эмбри, Марисол Николс, Уэйн Ньютон, Уоллес Шон, Сид Сизар, Хулио Оскар МечосоПеревод: Профессиональный (многоголосый, закадровый), Дублированный (только в 3 части), Профессиональный (двухголосый, закадровый), Профессиональный (одноголосый, закадровый), АвторскийСубтитры: Английские, украинские (Вшитые отключаемые)Язык субтитров: АнглийскийПродолжительность: 01:38:18 | 01:34:03 | 01:37:05 | 01:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FCD265B4BA906A9BE509842F31CA2BAE88CE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 403552   (383941) от 28.10.2011
 
 Существо в корзине 1,2,3 / Basket case 1,2,3 (1982,1990,1992) DVDRip [Трилогия]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383941.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +220,7 @@ Superнянь / Babysitting (2014-2015) BDRip [H.264/720p] [Дилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_364869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -489,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -623,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352665.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -634,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D53AF5D70418FCB7CB7F879936437F95B79D856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952615   (349085) от 14.11.2016
-
-Час Пик / Rush Hour (1998-2007) BDRip [H.264/1080p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти фильмы о двух копах, которые попадают все время в разные передряги.Производство: США, Германия, ГонконгЖанр: Боевик, КомедияРежиссер: Бретт Ратнер / Brett RatnerАктеры: Джеки Чан, Крис Такер, Элизабет Пенья, Том Уилкинсон, Марк Ролстон, Филип Бэйкер Холл, Кен Люн, Ци Ма, Роберт Литман, Майкл Чоу, Джулия Хсю, Крис Пенн, Кай Леннокс, Ларри Салливан, Янг Лин, Роджер Фэн, Джордж Чунг, Люси Лин и тд...Перевод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русские, АнглийскиеПродолжительность: 1:37:49| 01:30:08| 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B29D11FDA8AE139DF003FFEA5B080DC6EF144CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179049   (348503) от 31.10.2017
-
-Двойная рокировка: Трилогия / Infernal Affairs: Trilogy / Mou gaan dou I-III (2002, 2003) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348503.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух людей, ежесекундно рискующих жизнью. Один из них — агент мафии в полиции, другой — полицейский, внедренный в мафию. Каждый стремится к одному: разоблачить врага...Производство: Гонконг, Китай, Сингапур / Media Asia Films, Basic Pictures, Eastern Dragon Film Co. Ltd., Mediacorp Raintree PicturesЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Эндрю Лау, Алан МакАктеры: Энди Лау, Тони Леунг, Энтони Вонг, Чау Санг, Эрик Цанг, Келли Чен, Самми Ченг, Эдисон Чен, Шоун ЮПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:40:42 | 01:59:28 | 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC21AB0D8DF72BED7AD2FC35DA5CF65A8EE3546
 ```
 
 https://mybot314.ru/tekegram_catalog/

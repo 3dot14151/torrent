@@ -1,3 +1,55 @@
+###  Публикация: 1270357   (213748) от 18.12.2018
+
+Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Что может быть лучше чем иметь миллион? Иметь сто миллионов? Миллиард? Но ведь это не даст вам полную власть над миром. Ваша цель не заработать много денег - ваша цель получить контроль над деньгами. Начать их печатать. Только став Федеральной Резервной Системой вы станете великим!Тип издания: LicenseРазработчик: Hamsters GamingЖанр: Strategy, Simulator, IndieЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1588BC5D6C4EA848F0A28794BE73D0A8BF3963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586638   (211267) от 27.10.2022
+
+Automachef (2019) [Multi] (33) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Automachef: головоломку и менеджер ресурсов. В этой игре вам предстоит меблировать кухни, программировать устройства и наблюдать, как оживает ваш гениальный повар! Стройте кухни будущего уже сейчас. Стройте автоматизированные рестораны, затем программируйте их, чтобы они работали, как отлаженные механизмы! Вы считаете, что справитесь с любой задачей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Rhombico GamesЖанр: Симулятор, Строительство, МенеджментЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE4E48C2DD2F066F85D931C5187FF818977A8C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601558   (211137) от 01.01.2023
 
 Cat Cafe Manager (2022) [Multi] (1.2.468) License GOG
@@ -6,7 +58,7 @@ Cat Cafe Manager (2022) [Multi] (1.2.468) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +162,7 @@ STORY OF SEASONS: A Wonderful Life (2023) [Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (3.0.219.5) License GOG [Legendary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Hotel Giant (2002) [Multi] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Star General (1996) [Multi] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Industry Giant (1997) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [Ru] (1.0
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Diggles The Myth of Fenris (2001) [Ru/Multi] (2.1.1.10/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Sunrider Legends Tactics (2025) [Multi] (1210/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Punch Club (2016) [Ru/Multi] (1.31) License GOG [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Endzone - A World Apart (2020) [Ru/En] (1.2.8630.30586/dlc) License GOG [Save th
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Cities in Motion (2011) [Multi] (1.0.22/dlc) License GOG [Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_202021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Terra Nil (2023) [Ru/Multi] (1.0.1) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Moviehouse (2023) [Ru/Multi] (1.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Tropico 3 (2009) [Multi] (1.0/dlc) License GOG [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -500,7 +552,7 @@ My Train Arrives (2019) [Ru/Multi] (1.0/dlc) Scene TinyIso [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198166.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Civitatem (2022) [En] (1.09) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_196282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +630,7 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -604,7 +656,7 @@ Radio Commander (2019) [Ru/Multi] (1.155g/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,58 +667,6 @@ Radio Commander – стратегия в режиме реального вре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33E3AC532DB3E7E6E8F11C407624EBFC899CD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641678   (195567) от 16.07.2023
-
-Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пиксельный симулятор по строительству базы, сочетающем в себе исследования, крафтинг и сражения с инопланетными созданиями. Героиня только что высадилась на неизведанной планете и теперь ей предстоит подготовить ее для дальнейшего заселения. Для этого придется собрать ресурсы, построить фабрики и наладить производственные линии, создав идеальные условия для проживания.Тип издания: LicenseРазработчик: BEHEMUTTЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Китайский и другиеЯзык интерфейса: Русский, Английский, Французский, Китайский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650231   (194991) от 31.07.2023
-
-SimCity (1993) [En] (1.0) Repack R.G. Games [Enhanced]
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194991.jpg" />
-</div>
-
-
-###  Подробнее
-
-SimCity Enhanced выполнена в двумерной графике, обзор города происходит «сверху». Суть игрового процесса сводится к созданию города, развитию жилых и промышленных зон, строительству инфраструктуры и сбору налогов для дальнейшего развития города. В игре, как и в реальном мире, важно повышать уровень жизни населения и поддерживать баланс между разными секторами, в (   Читать дальше...   )Тип издания: RepackРазработчик: Maxis SoftwareЖанр: Strategy, Tycoon, Manager, City simЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F8D9C8E9CEC0E5D6D3B160E8E2CDE8B14D59C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

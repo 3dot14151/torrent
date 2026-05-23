@@ -1,3 +1,81 @@
+###  Публикация: 928858   (386810) от 07.10.2020
+
+Diabetes:M v8.0.8 Premium [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработанное для телефонов и планшетов это приложение создано для того чтобы помочь диабетикам лучше управлять своим диабетом и держать его под контролем. Пользователи могут регулярно записывать свои показатели в дневник. Приложение отслеживает практически все аспекты лечения диабета, предоставляет подробные отчеты, графики и статистику которые можно отправить лечащему (   Читать дальше...   )Тип издания: Пиратка (открыт Премиум) + ModРелиз состоялся: 06.10.2020Разработчик: Rossen VarbanovПоддерживаемая ОС: Android 4.3+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07C17CADFAF6A1CAE94B418E336D791BDEF010D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574629   (385478) от 05.09.2022
+
+Абсолютный Слух v3.9.34 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отлично развитые музыкальный слух и чувство ритма - фундамент каждого хорошего музыканта. Независимо от того, хотите ли Вы уметь импровизировать, подбирать мелодии на слух, определять последовательности аккордов в песнях, или просто уметь настраивать гитару без тюнера, знание и понимание основ - интервалов, гамм, аккордов просто необходимо.Тип издания: PremiumРелиз состоялся: 28.08.2022Разработчик: Crazy Ootka Software ABПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE812804F6FE4D69B4D1EE264829D5382265CDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574657   (383537) от 06.09.2022
+
+Ebook Reader 5.1.3 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+eBooks.com Ebook Reader позволяет читать любимые книги на ходу. Выбирайте из огромной коллекции популярных книг, которые вы можете скачать в одно мгновение.Тип издания: Mod ExtraРелиз состоялся: 30 авг. 2022 г.Разработчик: eBooks.comПоддерживаемая ОС: Android 4.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8215A0BF9C166D96FC6725704BC92C381137EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574998   (381310) от 07.09.2022
 
 Volume Styles 4.4.0 [Ru]
@@ -6,7 +84,7 @@ Volume Styles 4.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +113,7 @@ No Smoking 2.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381300.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +193,7 @@ GPS HUD Speedometer Plus v3.27 [En/Rus] - спидометр с навигаци
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -171,7 +249,7 @@ Beyond Ynth HD  1.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_379532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -199,7 +277,7 @@ Tides app & widget - eTide HDF 1.4.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379339.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +305,7 @@ Quick Video Recorder - Background Video Recorder v1.3.3.9 Mod by Balatan, >root<
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -253,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -279,7 +357,7 @@ Music Writer - Music Composer 1.2.275 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -305,7 +383,7 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,7 +410,7 @@ Guitar Effects, Amps, Deplike 5.9.3.1 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -360,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +490,7 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +519,7 @@ Helium 1.1.4.1 [Ru] - Альтернатива Titanium Backup
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +545,7 @@ Syberia (Full) 1.0.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371962.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +571,7 @@ Syberia 2 v1.0.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -519,7 +597,7 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,7 +675,7 @@ Dracula 2: The Last Sanctuary v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,85 +686,6 @@ Dracula 2: The Last Sanctuary - Приключенческая головоло�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14D79BA9ABC7A2F27E6090EA466DE864E59F9714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950275   (369895) от 26.10.2015
-
-Dracula 4 V1.0.3 [Ru/Multi]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dracula 4: The Shadow of the Dragon - квестовая приключенческая игра от третьего лица, цель которой - добраться до графа Влада Цепеша, Дракулы. Завязка сюжета начинается с исчезновения корабля с ценным грузом в Атлантическом океане. Корабль с ценным грузом вместе с профессором Вэмберри попадает в шторм в Атлантическом океане и исчезает. Через некоторое время пропавшие (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 25 июня 2014 г.Разработчик: AnumanПоддерживаемая ОС: Android 2.3+Жанр: Головоломки/ПриключенияЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B73A3255887D41421A6C5A5DEFF3F06BBE72737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949887   (369726) от 26.10.2015
-
-Garmin: City Navigator Australia & New Zealand NT HERE 2016.20 [En]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перемещайтесь по улицам с уверенностью. Этот продукт содержит подробные карты и точки интереса (POI) для навигаторов Гармин, так что вы можете перемещаться с точными подсказками от поворота к повороту на любой адрес или перекресток.
-- Включает около 1,3 млн. км (796 000 миль) дорог, в том числе автодорог, национальных и региональных магистралей и дорог местного значения (   Читать дальше...   )Тип издания: карты заблокированы (таблетки есть в комплекте)Релиз состоялся: октябрь 2015Разработчик: Here / GarminПоддерживаемая ОС: GarminЯзык интерфейса: АнглийскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCE8F688B0EAF1ADA7252915268CD6463E1FCD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950341   (369569) от 26.10.2015
-
-Козел HD 1.5 [Ru]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Козёл - легендарная советская карточная игра, не нуждающаяся в представлении. Цель проста: играя командой победить соперников и собрать наибольшее количество взяток, после чего проигравших смело обозвать "козлами".Тип издания: ПираткаРелиз состоялся: 26.08.2015Разработчик: Elvista Media SolutionsПоддерживаемая ОС: Android 2.3.3+Жанр: карточная игрЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B341F5A58F37C51B787A00E29451AB8A6B16DE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

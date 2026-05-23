@@ -1,3 +1,109 @@
+###  Публикация: 1120979   (800469) от 02.04.2017
+
+Александр Дворкин | Десять вопросов навязчивому незнакомцу, или Пособие для тех, кто не хочет быть завербованным. (1998) [DJVU, PDF, DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Уважаемый читатель! Книга, которую Вы держите в руках, уникальна. В результате беспрецедентного судебного процесса по иску, поданному против нее сектантами и их защитниками, опубликованные в ней сведения признаны достоверными.
+
+Автор - А.Л. Дворкин, кандидат богословия, доктор философии; возглавляет Информационно-консультативный Центр священномученика Иренея, епископа (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF, DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07EC5A0EC8C5DF7E65E2F7787DB95992FE9A3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199774   (800443) от 17.01.2018
+
+П.Н. Соколов | Агапы или Вечери любви в древнехристианском мире (1906) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ага́па, в I–V веках н.э. — вечернее собрание христиан для молитвы и вкушения пищи, соединённое с воспоминаниями об Иисусе Христе. Одним из главных духовных оснований этому изначально было исполнение заповеди Христа о любви (др.-греч. ἀγάπη, произносится агапэ), и не позднее 60–70 года словом αγάπη стали называть (   Читать дальше...   )Жанр: История ЦерквиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3EA31C9E0634D58F9BCA5765F6D62EE23B9A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 824473   (800248) от 02.04.2017
+
+Г.Г. Ястребов и др. | 50 религиозных идей, которые никогда не понравятся Богу (2009) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге увлекательно и доступно рассказано о самых распространенных мифах, связанных с православием, католичеством, протестантизмом, иудаизмом и язычеством. Впервые под одной обложкой собрано описание ключевых религиозных мифов. Есть мифы забавные, есть мифы, за которыми стоит трагическая история. Все эти ложные религиозные идеи ежедневно мешают нам жить в мире (   Читать дальше...   )Формат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D01E4C108B8B24566A5DFCEEF1935350E7CA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385114   (800193) от 23.05.2020
+
+Протоиерей Андрей Ткачев | Таинство чтения. Как книги делают нас значимыми людьми (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга всегда занимала важное место в жизни человека. Возьми любую великую личность, начни изучать жизнь гения, и ты найдешь среди фактов биографии особое отношение к чтению. Книги влияют на наши ум, душу и даже на здоровье гораздо сильнее, чем мы можем предположить, а чтение как процесс, как деятельность представляет собой настоящее таинство преображения человека. (   Читать дальше...   )Жанр: Духовная литература, ХристианствоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF8C9CF108980CF2AF8A3BDBC334B8ADCC7FDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506568   (800105) от 31.10.2021
 
 Издательский отдел Екатеринбургской епархии (изд.) | В помощь кающемуся (2002) [PDF, DJVU]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -570,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,112 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12365B98A8E94EB9EEE17AB2A16FF16117833060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012111   (795637) от 29.04.2016
-
-Гордей Щеглов | Отнятый крест (2013) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено памяти псаломщика Федора Юзефовина, убитого в 1863 году польскими повстанцами. В нем подробно описаны обстоятельства его гибели, а также история о том, как памятный крест, поставленный Юзефовину в 1911 году, во время польской оккупации Западной Белоруссии был демонтирован и установлен на могиле повстанцев.
-
-Издание рассчитано на широкий круг читателей, (   Читать дальше...   )Жанр: История, РелигиоведениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8730B57340BC99B4DB25C3149D49569149F737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200668   (795590) от 21.01.2018
-
-В.М. Лурье | Русское православие между Киевом и Москвой [2-е издание, дополненное] (2010) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795590.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге В.М.Лурье "Русское православие между Киевом и Москвой" представлены основные тенденции развития двух русских православных традиций, западной и восточной, от начала XV до середины XX века. Особое внимание уделяется развитию церковно-политической идеологии и канонического сознания, а также самим историческим обстоятельствам, в которых то и другое (   Читать дальше...   )Жанр: Монография, историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA164F1974EC5471F4AC1027B80F8AD1B31FEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509030   (795558) от 11.11.2021
-
-Протоиерей Иоанн Гончаров | Православие сегодня: Записки приходского священника (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию читателя предлагается новая книга известного священника Самарской епархии протоиерея Иоанна Гончарова, которого за дар проповедничества называют Самарским златоустом. На страницах книги отец Иоанн размышляет над тем, что происходит с человеком в наши дни, какова сегодня церковная жизнь, как противостоять искушениям современного мира, как жить в простоте (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C680AEE0547881A88AD2C15D5DEFE54B50050FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011692   (795510) от 29.04.2016
-
-иеромонах Сергий (Ситиков) | Тайна Царствия Божия или забытый путь истинного богопознания (о внутреннем христианстве) [Из библиотеки старца Иоанна Журавского] (2009) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Тайна Царствия Божия» - вдохновенное песнопение благодарного сердца о великом даре Божием - Иисусовой молитве. Собранная из святоотеческих высказываний об «умном делании» и подкрепленная большим опытом служения, рукопись этой книги была поистине выстрадана иеромонахом Сергием Ситиковым (1889-1951). Промыслом Божиим она оказалась у старца, отца Иоанна Журавского (   Читать дальше...   )Жанр: Духовная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFE8AE16BFC1AE1319C6DF3D436203A48BEE64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

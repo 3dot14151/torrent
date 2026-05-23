@@ -1,3 +1,81 @@
+###  Публикация: 1106736   (870693) от 20.02.2017
+
+Warhammer 40,000: Space Wolf (2017) [Ru/Multi] (0.0.2) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит принять командование отрядом Космических Десантников из ордена Космических Волков под предводительством Вальгарда Убитого Дважды. Ударный Крейсер вашей Великой Роты попал в ловушку Десантников Хаоса из легиона Несущих Слово и был вынужден совершить экстренную посадку на планете Канак, диком вулканическом мире, населённым племенами суровых варваров. (   Читать дальше...   )Тип издания: RepackРазработчик: HerocraftЖанр: Strategy (Turn-based, Tactical), IsometricЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3B4BDF5CB28B1BF7B7B0CAD2C9F627B4FF707F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351506   (855692) от 27.09.2021
+
+Surviving the Aftermath (2019) [Ru/Multi] (1.17.0.3533/dlc) Repack Other s [Founder's Edition]
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выживите и добейтесь успеха в постапокалиптическом будущем, в котором ресурсы и возможности ограничены. Постройте колонию, защищенную от катастроф, оберегайте своих колонистов и восстановите цивилизацию в опустошенном мире. Помните: конец света — лишь начало.Тип издания: RepackРазработчик: Iceflake Studios OyЖанр: Strategy, City BuilderЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FA4144B63AEC8EF156E63778ED8B5A8E45D25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088870   (853218) от 02.03.2017
+
+Life is Feudal: Forest Village (2016) [Ru/Multi] (0.9.6042) Repack Other s
+
+>>След.
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В игре Life is Feudal: Forest Village вы руководите группой людей, которые отправились осваивать новые земли. Ваш отряд прибыл на лодке, загруженной необходимыми для выживания ресурсами – едой, инструментами, одеждой и строительными материалами. Они помогут жителям основать новое поселение и обеспечить его процветание.Тип издания: RepackРазработчик: MindillusionЖанр: Strategy, Urban simulationЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198FE1F8F1D82A40FF4137729F36F6F95F85D91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001641   (851615) от 29.03.2016
 
 Warshift (2015) [Ru/En] (1.3.7) SteamRip
@@ -6,7 +84,7 @@ Warshift (2015) [Ru/En] (1.3.7) SteamRip
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Endzone - A World Apart (2020) [Ru/En] (0.7.7412.34215) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Portal Knights (2016) [Ru/Multi] (Alpha 0.2.2) SteamRip MarkusEVO (R.G. Games)
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Forest (2014) [Ru] (0.35d) Repack SpaceX
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ World War Party: Balls of Duty (2017) [En] (0.1.9) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Gremlins vs Automatons (2016) [Ru/Multi] (1.0.0.200) Repack VseTop [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ MadOut BIG City (2017) [Ru/En] (24.02.2017) Repack Andrxaxa
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Slime Rancher (2016) [Ru/Multi] (0.5.0b) Repack Kuji Kita
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ ARK: Survival Evolved (2015) [Ru/Multi] (build 238.3) Repack SpaceX
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Hand of Merlin (2021) [En] (675212/dlc) License GOG [Deluxe Edition] [Early 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Gang Beasts (2014) [En] (0.5.5) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Frozen State (2014) [Ru/Multi] (0.88 build 217) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -345,7 +423,7 @@ Demesne (2016) [En] (0.7.1.1) Repack Trackerock
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Mad Games Tycoon (2015) [Ru/Multi] (0.160414B) Repack Dante159
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ Sphere - Flying Cities (2021) [Ru/Multi] (0.1.3/dlc) License GOG [Save the World
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ Starmancer (2021) [En] (0.1.49) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ GIBZ (2016) [Ru/Multi] (24.03.2017) Repack VseTop [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Gravi (2013) [En] (0.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ The Fifth Expedition (2016) [En/Pl] (0.7.1) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Halcyon 6: Starbase Commander (2016) [En] (0.1.0.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ Judgment: Apocalypse Survival Simulation (2016) [En] (0.5.1776) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797291.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,84 +670,6 @@ Judgment: Apocalypse Survival Simulation - стильная survival-песоч�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A77E605719FED5D1F03B97F2DEEF43892834861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011330   (796602) от 27.04.2016
-
-Planetoid Pioneers (2016) [En] (Build 0) Repack Other s [Contributor Edition]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Planetoid Pioneers - это двухмерная приключенческая игра, созданная в духе классических приключенческих проектов 1988 года - Blaster Master и Exile. Игроки, оказавшись на некоем планетоиде, оказываются вынуждены собирать ресурсы, исследовать местность и создавать различные машины.Тип издания: RepackРазработчик: Data RealmsЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395EC78AA794564217EA3897481DF1C6C1A65E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344879   (796483) от 26.05.2020
-
-Factorio (2016) [Ru/Multi] (0.18.26) Repack Other s
-
->>След.
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Factorio — это игра про добычу ресурсов, постройку заводов, автоматизацию производства и борьбу с агрессивной фауной на чужеродной планете. Вы - одинокий выживший в космической экспедиции, оказавшийся на поверхности чужого и враждебного мира. Единственно с камнями и залежами руд под ногами, ваша последняя надежда на выживание - отстроить с нуля автоматические механизмы (   Читать дальше...   )Тип издания: RepackРазработчик: Wube Software LTDЖанр: StrategyЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815CA34FE70318579748D0306321228B4A1C977A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274525   (792961) от 07.01.2019
-
-Elven Legend 7: The New Generation (2018) [En] (Beta) Unofficial
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмая часть захватывающей тайм-менеджмент стратегии от Groqing Grass Studio и Big Fish Games.Тип издания: UnofficialРазработчик: Groqing Grass StudioЖанр: СимуляторЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E25A91ECC24026DE75EF68F47D5DC85B21F183F
 ```
 
 https://mybot314.ru/tekegram_catalog/

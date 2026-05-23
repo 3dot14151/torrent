@@ -1,3 +1,209 @@
+###  Публикация: 1073347   (347267) от 15.11.2016
+
+Ennio Morricone - Morricone 60 (2016) [MP3|320 Kbps] <Instrumental, Classical, Soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel's Oboe (The Mission)
+02. Falls (The Mission)
+03. On Earth As It Is In Heaven (The Mission)
+04. The Man With The Harmonica (Once Upon A Time In The West)(   Читать дальше...   )Жанр: Instrumental, Classical, SoundtrackПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C69C932FC8BEF3198C547DE38B3FAE7570C439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179212   (346575) от 01.11.2017
+
+Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Turn On the Lights (01:44)
+02. Sick of Cow (04:03)
+03. Power Maintenance (01:31)
+04. Roars From the Lab (02:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073424   (345841) от 16.11.2016
+
+Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01  Morning Humdrum [00:00:47]
+02  Courage and Confusion [00:07:46]
+03  Premonition [00:01:27]
+04  The Journey [00:08:47](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8ECA2ED4DE64764944A361D724459654949BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579902   (345755) от 24.11.2012
+
+VA - My Love My Guitar. The Best of Acoustic Guitar (2006) [MP3|320 кб/с]<Instrumental, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+(3:45) 01. Tommy Emmanuel c.g.p. - Angelina
+(4:23) 02. Ian Melrose - Candia
+(3:26) 03. Lucas Michailidis - All Grown Up
+(3:35) 04. Peter Huttlinger - Over The Rainbow
+(4:12) 05. Dominic Miller - La Boca
+(3:34) 06. Doug Smith - August 23rd
+(4:51) 07. Peppino D'Agostino & Stef Bruns - Manha de Carnaval
+(2:30) 08. Pierre Bensusan - Chant de Nuit
+(4:16) 09. David Cullen - Glide Ride
+(3:32) 10. Eric Lugosch - SovereigntyЖанр: Instrumental, Acoustic guitarПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F803EAF139FB9F41E37F98881A50292B4E3044A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330007   (345612) от 08.10.2019
+
+Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Отношения между Людовиком XIV, Люлли и Мольером, лежащие в основе фильма "Король танцует", несомненно, уникальны в истории искусств. Если летописцы, историки и романисты много вышивали вокруг этой встречи, то факты еще интереснее, чем легенда. Ибо речь идет не только о встрече мецената, музыканта и драматурга. Благожелательная случайность сделала все лучше, (   Читать дальше...   )01. Te Deum Motet a deux choeurs (02:16)
+02. La Bocanne primitive (01:43)
+03. La Bocanne compliquee (01:06)
+      .....Опера Фаэтон(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 1:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578062   (345384) от 23.09.2022
+
+VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Picture, OST [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Hard Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. The Retaliators - Sometimes If You’re Lucky… It’s Better to Keep Evil Alive (0:22)
+02. Papa Roach - The Ending (3:29)
+03. The Retaliators - We Have to Get out of Here… Those Aren’t Zombies… (0:09)
+04. The Hu - This Is Mongol (3:44)(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Hard RockПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A5EBD5F50F3692DB41EE1893FBB9F72A32B6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257119   (345355) от 26.10.2018
+
+Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: IDM, Experimental, RockПродолжительность: 01:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2189E0D403FD5C0A841EDE37ACF615302930309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257239   (345182) от 26.10.2018
 
 Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrumental, Ambient>
@@ -6,7 +212,7 @@ Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrume
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +241,7 @@ Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +270,7 @@ Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +299,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -150,7 +356,7 @@ Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reiss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -179,7 +385,7 @@ Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -208,7 +414,7 @@ Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwa
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -237,7 +443,7 @@ Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +472,7 @@ Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +501,7 @@ Alexandre Desplat - L'Odyssee / Одиссея (La Bande Originale Du Film) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +530,7 @@ Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +565,7 @@ Clint Bajakian - Outlaws (Game Soundtrack) (1997) [FLAC|Lossless|tracks] <Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -388,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -414,7 +620,7 @@ ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -443,7 +649,7 @@ VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -472,7 +678,7 @@ Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -501,7 +707,7 @@ Robert Thies & Damjan Krajacic - Blue Landscapes II: Discoveries (2016) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +736,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -544,209 +750,6 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B8EC1596BA61BB6FCCC88D526A7BAE19F2A082C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 726280   (340295) от 24.11.2013
-
-Andre Rieu - Celebrates ABBA (2013) Scene [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiquitita
-02. Mamma Mia
-03. Fernando
-04. Money, Money, Money(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BFD056767FF297D24C67BFDCF2B98757DF71B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074024   (340235) от 18.11.2016
-
-James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<So ...
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Man and His Beasts (08:32)
-02. Soup and Leaflets (02:20)
-03. Billywig (01:32)
-04. The Demiguise and the Lollipop (00:59)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A777D9DEA5E06D43073FB50133338102A10DD40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073951   (340224) от 18.11.2016
-
-Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shanghaied (03:54)
-02. Burning Desire (Hacker) (01:22)
-03. W4tched (Cinema) (01:07)
-04. Haum Sweet Haum (04:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9740AC1DAA03E8E5DD19FF131F961309C65F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954331   (340095) от 08.11.2015
-
-David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Awakening
-02 - The Pale Moonlight
-03 - Into the Darkness
-04 - Dreams Unfolding(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227549CB6DC2135B598EF90FAA033DCC1B68310F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953890   (340094) от 08.11.2015
-
-VA - Кармелита. Цыганская страсть (2009) Sountrack [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Кармелита'-Н.Басков-03:15
-02. Заставка -02:24
-03. Колыбельная из сериала 'Кармелита' -Ляля Жемчужная-02:27
-04. Полынь-трава в исполнении Юлии Зиминой-03:27(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41DF59B52031D697D802F79399D2C08ACAD3925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074031   (340083) от 18.11.2016
-
-Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
-02. Marcy Harriell - More (Outtake) (03:17)
-03. Marcy Harriell - More (Reprise - Outtake) (02:39)
-04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C359D66CB3BFB4AE16D9E7FF1D9C8C1DE203E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074032   (340075) от 18.11.2016
-
-Mark Mancina, Lin-Manuel Miranda, Opetaia Foa'i - Moana / Моана (Original Motion Picture Soundtrack) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lin-Manuel Miranda - Unstoppable (Outtake) (04:00)
-02. Marcy Harriell - More (Outtake) (03:17)
-03. Marcy Harriell - More (Reprise - Outtake) (02:39)
-04. Lin-Manuel Miranda - Warrior Face (Outtake) (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA3A33C3492B6EF3546F8E5251BFE01CFEE4EB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

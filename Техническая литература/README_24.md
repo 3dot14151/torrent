@@ -1,3 +1,110 @@
+###  Публикация: 1325525   (411766) от 15.09.2019
+
+Кэтлин Шамие | Основы электроники для чайников [3-е издание] (2018) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге вы найдете сотни схем и фотографий, в также подробнейшие рекомендации по проведению опытов, которые покажут вам, как работают те или иные электронные компоненты.
+В ней приведены советы по выбору и использованию важнейших инструментов, а также описание увлекательных электронных устройств, каждое из которых можно реализовать буквально за 30 минут (или (   Читать дальше...   )Жанр: РадиоэлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE743C4AEE45FDE1B84F775B787E4EB9E094BA28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325673   (409779) от 16.09.2019
+
+А.В. Лопаткин | Проектирование печатных плат в Altium Designer (2016) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На примере несложного устройства рассмотрены практические приемы проектирования печатных плат в системе Altium Designer. Очень подробно с применением пошаговых инструкций описывается весь цикл проектирования печатной платы – от ввода схемы до верификации проекта и выпуска рабочей документации.
+Рассматриваются инструменты автоматической и интерактивной трассировки, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515AE495E3D06CD6E746C6E043B5525D0E3DFC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168509   (408649) от 24.09.2017
+
+С.И. Макаренко | Информационное противоборство и радиоэлектронная борьба в сетецентрических войнах начала XXI века (2017) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Монография является результатом работы автора по обобщению исследований в областях радиоэлектронной борьбы и информационного противоборства в условиях произошедшей в начале XXI века информационно-технической революции и внедрения в практику войск концепции сетецентрических войн.
+В монографии проведен анализ основ концепции сетецентрической войны, выявлены фундаментальные (   Читать дальше...   )Жанр: Радиоэлектронная борьбаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E47CD9A289EEFD4430ED97B90B16582A213852E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169557   (402235) от 28.09.2017
+
+Мухаммад Х. Рашид (ред.) | Справочник по силовой электронике (2017) [PDF][En]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Power Electronics Handbook, четвертое издание, объединяет более чем 100-летний опыт работы в специализированных областях энергетики, предлагая полностью переработанное и обновленное руководство для специалистов по силовой электронике. Разработанный для обеспечения наилучших технических и наиболее коммерчески доступных решений, этот справочник берет на себя любые (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5F79347D70DBC69E1EDB88CEBE07ADD2773845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169777   (402155) от 28.09.2017
 
 Оуэн Бишоп | Электронные схемы и системы (2016) [DJVU]
@@ -6,7 +113,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -535,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC1F06BB1AC8D67A9F26B9B5DFDD0D60F17DB4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253541   (378924) от 11.10.2018
-
-Брайан Хуанг, Дерек Ранберг | Arduino для изобретателей. Обучение электронике на 10 занимательных проектах (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378924.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге подробно рассмотрено 10 занимательных проектов с платой Arduino Uno (светофор, светодиодный экран, светочувствительный ночник, мини-теплица, мобильный робот, миниатюрное пианино и др.). Описаны принципы работы и взаимодействие различных электронных компонентов, чтение принципиальных и монтажных схем, создание и тестирование прототипов с помощью беспаечной (   Читать дальше...   )Жанр: Радиоэлектроника и схемотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:689DC10F503296EC6CA28A218E5D1BAE46A1A6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175397   (378476) от 18.10.2017
-
-Б.И. Фираго, Л.Б. Павлячик | Регулируемые электроприводы переменного тока (2006) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены вопросы теории регулируемого электрического привода переменного тока, которые не получили достаточно полного освещения в современной научно-технической литературе. Книга включает анализ энергетических проблем мягкого пуска и торможения асинхронных электроприводов, описание методов расчета механических и электромеханических характеристик асинхронных короткозамкнутых (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CA6C7E6047DDDC4408CCAA034D6CE6CA5B7A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175271   (378461) от 18.10.2017
-
-А.П. Кашкаров | Микромеханические системы и элементы (2018) [PDF, RTF, FB2, EPUB]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эволюционное развитие техники подошло к рубежу крупных изменений; открылись новые интересные задачи – разведка полезных ископаемых, предсказание землетрясений, сверхточное измерение положений железнодорожных путей и нефтепроводов, инновации в медицинской технике и др. В четырех тематических главах книги рассматриваются измерительные и силовые электронные датчики (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF, RTF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A03D242919DD775AA36190588E052CD77692B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175273   (378327) от 18.10.2017
-
-А.П. Кашкаров | Система спутниковой навигации ГЛОНАСС (2018) [PDF, RTF, FB2, EPUB]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глобальная навигационная спутниковая система (ГЛОНАСС), разработанная в советское время для военных целей, сегодня активно применяется в транспортной инфраструктуре как государственных, так и коммерческих объектов на суше, воде и в воздухе, в том числе на объектах транспорта экстренных служб.
-
- Главная задача ГЛОНАСС – определять местоположение и скорость движения (   Читать дальше...   )Жанр: Системы связиФормат: PDF, RTF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB848E2E8A338042992FCB9DB3F293EFA7AFBA13
 ```
 
 https://mybot314.ru/tekegram_catalog/

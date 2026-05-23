@@ -1,3 +1,107 @@
+###  Публикация: 1477130   (1011337) от 13.06.2021
+
+Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailsen Files - The Movie | Бронированные воины Вотомы: Материалы по делу Пейлсена [2009, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Война есть война, уродливая, ужасная старуха с крюкой, и никакой романтики здесь не пахнет! Вселенная в которой разворачиваются действия сериала- это галактика, в которой уже 100 лет идет война между Гильгамеш и Балалант. Это безжалостный миниатюризированный мир , где верховодят люди в форме, и человеческая жизнь не стоит и ломанного гроша. Мир, где существует одно (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такэути КадзуёсиПеревод: Николай ГалактионовЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 118 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD691AECF6CAD9F49024A909E1E6BF29305C70AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477120   (1011335) от 13.06.2021
+
+Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Votoms: Roots of Ambition | Бронированные воины Вотомы: Предательство [1988, OVA, 1 из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Высшее военное руководство только начинает подозревать о личных планах полковника Пейлсена на взвод Красноплечих. Для этого они решают заслать в Красноплечих группу своих людей, в которую попадает и Кирико. Однако, прибыв на военную базу, всех новоприбывших сразу же с борта шаттла отправляют на учебный бой, который обернулся настоящей кровавой бойней.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 56 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E257A309D7F3082F7D80D288C175124F94D00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477116   (1011333) от 13.06.2021
+
+Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Red Shoulder | Бронированные воины Вотомы: Последний красноплечий [1985, OVA, 1 из 1] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сюжет разворачивается уже после завершения войны и расформирования группы элитных воинов-пилотов Вотомс, которые пытаются отомстить своему бывшему командиру за искалеченные судьбы.Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. на 53 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915BC6F9FC372DD7CCCD819E2E91E1FAA58AF88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477126   (1011331) от 13.06.2021
+
+Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Бронированные воины Вотомы: Материалы по делу Пейлсена [2007, OVA, 12 из 12] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Война есть война, уродливая, ужасная старуха с крюкой, и никакой романтики здесь не пахнет! Вселенная в которой разворачиваются действия сериала- это галактика, в которой уже 100 лет идет война между Гильгамеш и Балалант. Это безжалостный миниатюризированный мир , где верховодят люди в форме, и человеческая жизнь не стоит и ломанного гроша. Мир, где существует одно (   Читать дальше...   )Производство: Sunrise / サンライズ, The Answer Studio / アンサー・スタジオЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: FaddeichЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77976AF6182DBE2EF2A50B6B4CF97A281B89787C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477133   (1011328) от 13.06.2021
 
 Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Бронированные воины Вотомы: Призрачная арка [2010, OVA, 6 из 6] BDRip 1080p 10-bit raw
@@ -6,7 +110,7 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +137,7 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +163,7 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Eyeshield 21 / Забрало 21 [2005, TV, 145 из 145] TVRip 480p Raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Ame-iro Cocoa: Rainy Color e Youkoso / Какао цвета дождя [ТВ-2]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Kuroko no Basuke 3rd Season | Баскетбол Куроко [ТВ-3] [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +293,7 @@ Kamisama Hajimemashita | Kamisama Kiss | Очень приятно, Бог [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [2012, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Jouran: The Princess of Snow and Blood | Joran: The Princess of Snow and Blood |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Shakunetsu Kabaddi | Burning Kabaddi | Пламенное кабадди [2021, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Mashiro no Oto | Those Snow White Notes | Чистый звук [2021, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Kore ga UFO da! Soratobu Enban | That is an UFO! The Flying Saucer | Это НЛ
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Back Arrow | Бэк Арроу [2021, TV, 24 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -477,7 +581,7 @@ Seven Knights Revolution: Eiyuu no Keishousha | Революция Семи ры
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -503,7 +607,7 @@ Yakunara Mug Cup mo / Let's Make a Mug Too / Давайте тоже сдела�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -529,7 +633,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken | The Slime Diaries: That Time I G
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +661,7 @@ SSSS.Dynazenon | Диназенон [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,110 +674,6 @@ SSSS.Dynazenon | Диназенон [2021, TV, 12 эп.] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D8E5A87423DE645650AC37BABD66F6D552325C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479619   (1009574) от 24.06.2021
-
-Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-4] [2018, TV, 25 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакамичи Онода – главный герой сей истории, который уже «повзрослел» и теперь уже опытный велогонщик, намерен выиграть очередные соревнования и доказать, чего он добился за время своих изнурительных тренировок. Теперь Онода вместе с Сёкитой Наруко, который и вовлёк его в велоклуб, плечом к плечу должны пройти множество испытаний, ведь, достигая больших высот, взобраться (   Читать дальше...   )Производство: Студия TMS Entertainment / トムス・エンタテインメントЖанр: спорт, комедияРежиссер: Набэсима ОсамуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B4559A00E076AF71BA7A963CA4D32F8CA5966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479533   (1009543) от 24.06.2021
-
-UFO Robo Grendizer tai Great Mazinger | UFO Robo Grandizer vs. Great Mazinger | Инопланетный робот Грендайзер против Великого Мазингера [1976, Movie] BDRip 522p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайске и Хикару отправляются на прогулку в лес, а тем временем к Земле незаметно приближается новый, хорошо оснащённый враг. Коджи принимает решение сражаться в одиночку. Что из этого вышло - смотрите сами...Производство: Dynamic Planning / ダイナミック企画Жанр: приключения, фантастика, мехаРежиссер: Касай ОсамуПеревод: Дорога ЗероЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A6856470DAD9B86B84358D9E4C5EF5722D869B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461545   (1009510) от 24.06.2021
-
-Fairy Ranmaru: Anata no Kokoro Otasuke Shimasu | Феи Ранмару: Мы спасём твоё сердце [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятеро юношей работают в загадочном баре «Ф», который предлагает клиентам исцелить сердце. За это они не берут платы... разве что украдут их сердце.Производство: Студия Studio Comet / スタジオコメットЖанр: приключенияРежиссер: Хисида МасакадзуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AFCE411452727D39CFAA958E8926DCFFAB9C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461542   (1009507) от 24.06.2021
-
-Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о Сётаро Футабу, старшекласснике, который на последнем году обучения в средней школе загорелся таким видом спорта, как мужская художественная гимнастика. Когда Сётаро зачислили в частную академию Сосюкан, он вступил в кружок мужской художественной гимнастики. В нём он, вместе с остальными участниками клуба, стремится добиться общей цели.Производство: Студия Zexcs / ゼクシズЖанр: спортРежиссер: Куроянаги ТосимасаПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F52CF9B71B5C22FA434D81466B63C6A32590A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

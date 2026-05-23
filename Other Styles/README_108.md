@@ -1,3 +1,203 @@
+###  Публикация: 1245579   (471909) от 06.09.2018
+
+Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01 Lullabye for Alice Grey (Amazing Bedtime Music)	5:09
+02 Native American Massage Music	6:45
+03 Ocean Waterfall  4:08
+04 Relax Your Soul B 4:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84549EEBABA46B14EFB0CADF86D2391F8D2A3FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701825   (471884) от 20.09.2013
+
+Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Contemporary Jazz, Instrumental |Продолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132E20CA9A4A15392BC788FE7EE2FB5BE8B59A0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160840   (471751) от 26.08.2017
+
+The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Always on My Mind (3:51)
+02. The Greatest Love of All (5:00)
+03. Theme From Hill Street Blues (3:25)
+04. All I Ask of You (From Phantom of the Opera) (3:47)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DEB85778A0EE33DD408119DF08F10E496F9331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940082   (471309) от 23.09.2015
+
+Deuter - Mystic Voyage (2015) [MP3|320 кб/с]<New Age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Wave
+02. Olive Grove
+03. Traveling The Stars
+04. Surfing The Clouds(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F56C421CEBE552854310A644BE4F73AC747EE041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320310   (471248) от 18.08.2019
+
+Ilyin - Pegs and Fortresses (2019) [MP3|320 Kbps] <Metal/Intumental/Neo-classic/Electronica>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+1. Fractures and Lifts (Переломы и подъемы)
+2. Wastelands and Heights (Пустоши и вышины)
+3. Pegs and Fortresses (Колышки и крепости)
+4. Chains and Gaps (Цепи и провалы)(   Читать дальше...   )Жанр: Metal/Intumental/Neo-classic/ElectronicaПродолжительность: 00:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0EC7A085312904C82DD1F5458CEF71EC87FD528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406845   (470521) от 05.09.2020
+
+Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
+[05:16] 02. Ludwig Goransson - WINDMILLS
+[02:16] 03. Ludwig Goransson - MEETING NEIL
+[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401FFC49F2AD778E0654C0045F9D693A7C73894C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406846   (470506) от 05.09.2020
+
+Ludwig Goransson - TENET / Довод (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+[08:01] 01. Ludwig Goransson - RAINY NIGHT IN TALLINN
+[05:16] 02. Ludwig Goransson - WINDMILLS
+[02:16] 03. Ludwig Goransson - MEETING NEIL
+[03:24] 04. Ludwig Goransson - PRIYA(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D562F6C42A86FEF3603C273D5DD3469A800E9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245792   (469966) от 07.09.2018
 
 Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
@@ -6,7 +206,7 @@ Jeff Wahl - Playing with Silence (2017) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +235,7 @@ Neil Tatar - After the Rain (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +264,7 @@ VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469888.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +293,7 @@ Gregorian - Epic Chants (2012) [MP3|~245 кб/с (V0)]<NewAge & Meditative,Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -128,7 +328,7 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +398,7 @@ Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -227,7 +427,7 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +458,7 @@ Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|t
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -287,7 +487,7 @@ VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -316,7 +516,7 @@ VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +545,7 @@ VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +574,7 @@ VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +603,7 @@ VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +632,7 @@ ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная ауди
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +658,7 @@ The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +687,7 @@ The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -516,7 +716,7 @@ The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +745,7 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,207 +759,6 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161473   (465644) от 29.08.2017
-
-Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Rain	4:47
-02.	Lalo Cura	5:59
-03.	Haiku4	0:23
-04.	Butterfly Dream	4:29(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98A69919B84286094F909B5A0D4BBD57E054FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161394   (465639) от 29.08.2017
-
-Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] <Meditative, Ambient, Chants>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakti Prayer (25:23)
-02. Ripples Of Beauty (29:00)Жанр: Meditative, Ambient, ChantsПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161767   (465634) от 29.08.2017
-
-Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oglumga
-02. Odarladyp Semirtiili
-03. Dongup Xonar Boldum-Na Be
-04. Flute Box(   Читать дальше...   )Жанр: World, Ethnic, FolkПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161497   (465535) от 29.08.2017
-
-The Sound Of Love - 2 Albums (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovely Days (5:05)
-02. For you (4:34)
-03. Through the centuries (3:50)
-04. I am alive (INSTRUMENTAL VERSION) (3:36)Жанр: New Age, Ambient, Chillout |Продолжительность: 00:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B6F3E52B1302A0DBDEBCFAC6702F2AB739B22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246188   (465481) от 09.09.2018
-
-Richard Clayderman - 16 Love Songs: Gold Collection (1991) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_465481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Called To Say I Love You
-02. I'm Not In Love
-03. Sailing
-04. Medley: For All We Know \ We've Only Just Begun(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832B418C186229136572BFC724E4BD14AC1E0987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824372   (464992) от 25.09.2014
-
-VA - Новая рождественская сказка / Scrooged (2001 (1988)) [FLAC|Lossless] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie Lennox & Al Green - Put A Little Love In Your Heart
- 02. Mark Lennon - A Wonderful Life
- 03. New Voices Of Freedom Feat. Adriane McDonald & George Pendergrass - Sweetest Thing
- 04. Dan Hartman & Denise Lopez - The Love You Take(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423D3F4B3094D1D112F9C8CF60903114AC15B75B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161410   (464913) от 29.08.2017
-
-Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Bowie - Cat People (Putting out Fire) (06:43)
-02. Peter Schilling - Major Tom (vollig losgelost) (04:59)
-03. HEALTH - Blue Monday (04:46)
-04. Tyler Bates - C*cks*cker (01:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
 ```
 
 https://mybot314.ru/tekegram_catalog/

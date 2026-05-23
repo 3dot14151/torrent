@@ -1,3 +1,109 @@
+###  Публикация: 1862960   (1063260) от 05.04.2026
+
+Maid-san wa Taberu Dake / The Food Diary of Miss Maid / Горничная, которая просто любит покушать [2026, TV, 2 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Горничная Судзумэ Тачибана работала в Англии. Но с особняком, в который устроилась девушка, случилась беда. В это время Судзумэ находилась в Японии. Ей позвонил работодатель и сообщил о разрушении дома (в котором никто не пострадал). На восстановление здания уйдёт год. И на этот год Судзумэ просят остаться в Японии. Живя в маленькой квартире до возвращения в Англию, (   Читать дальше...   )Жанр: повседневность, комедия.Режиссер: Сэмбо РёсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A8F22ACCBA6C0734B511A894A0E98C83924393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863760   (1063259) от 05.04.2026
+
+Ghost Concert: Missing Songs / Концерт-призрак: пропавшие песни [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В 2045 году пение было запрещено. Люди больше не сочиняют и не исполняют музыку; вместо этого все песни создает за них музыкальное приложение под названием MiucS.
+Однажды девушка по имени Серия Айба, гуляя с друзьями, слышит человеческий голос — то, чего уже не должно было существовать. Следуя за звуком, она сталкивается с таинственным существом: призраком. Перед (   Читать дальше...   )Жанр: приключения, фантастика, сверхъестественное, экшн, музыкальный.Режиссер: Дзимбо МасатоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E9D544AD4089B1F7746EAF8BAE532528C6DE16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863818   (1063181) от 06.04.2026
+
+Ingoku Danchi | Жилой комплекс извращенок [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Ёшида - крошечный, хрупкий выпускник средней школы, который против своей воли стал управляющим жилым комплексом, когда его отец, бывший управляющий, получил травму. Сам того не ведая, в этом жилом комплексе проживает довольно много женщин с очень... необычными сексуальными предпочтениями. Это становится проблемой, когда таинственная сущность начинает раздавать этим (   Читать дальше...   )Производство: EliasЖанр: комедия, эротикаРежиссер: Токоро ТосикацуПеревод: Animation Digital Network; SanaeЯзык озвучки: ЯпонскийСубтитры: Французские; РусскиеПродолжительность: 12 эп. по 5 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BC2E2D2229F9939B001EA0BF6329C3F30909A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1863880   (1063167) от 06.04.2026
+
+Ponkotsu Fuuki Iin to Skirt-take ga Futekisetsu na JK no Hanashi | Бесполезный дежурный и школьница со слишком короткой юбкой [2026, TV, 1 из 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сакурадаймон очень серьезно относится к своим обязанностям в школьном комитете по общественной морали. Каждый день он добросовестно проверяет внешний вид учеников у школьных ворот — чаще всего ругая Кохинату, нарушающую правила девочку с яркими волосами и в короткой юбке.
+Хотя его постоянные нравоучения ей надоедают, всё меняется, когда она обнаруживает, что Сакурадаймон (   Читать дальше...   )Производство: Zero-G / ゼロジーЖанр: романтика, комедияРежиссер: Иванага ДайдзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340898C047AFB77B115066E482897F04D6DA75C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863902   (1063151) от 06.04.2026
 
 Liar Game | Игра лжецов [2026, TV, 1 из 12] WEBRip 720p raw
@@ -6,7 +112,7 @@ Liar Game | Игра лжецов [2026, TV, 1 из 12] WEBRip 720p raw
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Reincarnation no Kaben / Petals of Reincarnation / Лепестки реинка
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +165,7 @@ Shunkashuutou Daikousha: Haru no Mai | Agents of the Four Seasons: Dance of Spri
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +191,7 @@ Tongari Boushi no Atelier | Witch Hat Atelier | Ателье колдовски�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +217,7 @@ Marriagetoxin / Marriage Toxin / Брачный токсин [2026, TV, 1 из ?
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +244,7 @@ Class de 2 Banme ni Kawaii Onnanoko to Tomodachi ni Natta / I Made Friends with 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +270,7 @@ Replica Datte, Koi o Suru. / Even a Replica Can Fall in Love / Даже копи
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +296,7 @@ Tadaima, Ojama Saremasu! | Pardon the Intrusion, I'm Home! | Я вернулас
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +325,7 @@ Megami: Isekai Tensei Nani ni Naritai Desuka; Ore: Yuusha no Rokkotsu de / Бо�
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +352,7 @@ Isekai Nonbiri Nouka 2 | Farming Life in Another World 2 | Фермерская 
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062998.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +404,7 @@ Nippon Sangoku | Троецарствие Японии [2026, TV, 1 из 12] WEB
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +431,7 @@ Hidarikiki no Eren | Eren the Southpaw | Левша Эрен [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +457,7 @@ Kanojo, Okarishimasu 5 | Девушка на час [ТВ-5] [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +483,7 @@ Bungou Stray Dogs 5 | Великий из бродячих псов 5 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -403,7 +509,7 @@ Niwatori Fighter | Rooster Fighter | Боевой петух [2026, TV, 1 из 1
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -429,7 +535,7 @@ Watashi ga Koibito ni Nareru Wake Nai jan, Muri Muri! (*Muri ja Nakatta!?): Next
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -455,7 +561,7 @@ Ao no Hako | Blue Box | Голубая шкатулка [ТВ-1] [2024, TV, 25 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1062417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -482,7 +588,7 @@ Bungou Stray Dogs 4 | Великий из бродячих псов 4 [2023, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +616,7 @@ Sekirei | Wagtail | Сэкирэй [2008, TV, 12 эп. + 1 OVA] BDRip 1080p 10-b
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +643,7 @@ Steel Ball Run JoJo's Bizarre Adventure | Steel Ball Run: JoJo no Kimyou na Bouk
 >>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +669,7 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,116 +680,6 @@ Hibi wa Sugiredo Meshi Umashi | Food for the Soul | Дни проходят, а 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94AFDC3E62B4886FF6ED3B5E3D882CB34C5558F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860192   (1061755) от 27.03.2026
-
-Virgin Punk | Невинный панк [2025, Movie] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая охотница за головами, зарабатывающая на жизнь в опасном и непредсказуемом мире. Выбирая эту стезю, сталкивается не только с внешними угрозами, но и с глубокими внутренними переживаниямии, заставляющими её подвергнуть сомнению собственный выбор и моральные принципы.
-Профессиональная деятельность неизбежно сталкивает героиню с могущественными и эксцентричными (   Читать дальше...   )Производство: SHAFTЖанр: приключения, боевик, киберпанкРежиссер: Умэцу ЯсуомиПеревод: AniSlovo (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 35 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C6F0D7157C61E334EA5A2F85E4937685F08174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858525   (1060519) от 11.03.2026
-
-Kimi no Iru Machi OVA | Город, в котором ты живёшь ОVA [2014, OVA, 2 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ограниченное издание 26 тома будет включать в себя дополнительную серию. Это глава воспоминаний и является прологом к сериалу. В ней будет показано как герои впервые встретились в детстве.
-Ограниченное издание 27 тома также будет включать в себя дополнительную серию, созданную в тесном сотрудничестве с автором оригинальной манги.
-
-© ShikimoriПроизводство: Студия Gonzo, ЯпонияЖанр: романтика, драмаРежиссер: Сигэясу ЯмаутиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 28 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3217A35ED9C2907E563268662B8B806F93ADAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858520   (1060518) от 11.03.2026
-
-Kimi no Iru Machi: Tasogare Kousaten | Город, в котором ты живёшь: Сумеречный перекрёсток [2012, OVA, 2 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060518.jpg" />
-</div>
-
-
-###  Подробнее
-
-По непонятным причинам Эба Юдзуки решает поступить в старшую школу в сельской местности. Несмотря на возражения Кирисимы Харуты, она вселяется в его дом. Теперь ему приходится мириться с нахлебницей и беспокоиться, чтобы Кандзаки Нанами, которую он любит, не узнала о том, что у него уже есть «сожительница».
-
-© ShikimoriПроизводство: Студия Tatsunoko Production, ЯпонияЖанр: романтика, драмаРежиссер: Хироси КобаясиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766305253B0679D4C37BF9C7A21E37A5581FE829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858215   (1060093) от 09.03.2026
-
-Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi no da ga | My Status as an Assassin Obviously Exceeds the Hero's | Мой статус убийцы очевидно превосходит геройский [2025, TV, 12 ...
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ода Акира – тот тип человека, о котором люди даже забывают. Однако его скромный характер приносит свои плоды, когда весь его класс попадает в фантастический мир, и он легко вживается в свою новую роль молчаливого убийцы. Между его подозрительно высокими стартовыми характеристиками и слишком многими несоответствующими деталями, Акира уверен, что что-то не так. Но (   Читать дальше...   )Производство: SUNRISEЖанр: приключения, фэнтези, исекайРежиссер: Хабара НобуёсиПеревод: AniSlovo (Donate, Тэнши)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскийПродолжительность: ТВ 12 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEA3C8E37410A1B8E6CF7542FD6F5CE92A07B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

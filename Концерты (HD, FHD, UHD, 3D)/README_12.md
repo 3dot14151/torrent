@@ -1,3 +1,61 @@
+###  Публикация: 1165741   (784276) от 07.02.2018
+
+Квартирник на НТВ у Маргулиса. Машина времени (09.09.2017) HDTVRip [H.265/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В атмосферной студии "Квартирника НТВ у Маргулиса" возможно все, даже камерные концерты культовых артистов, на которые сложно попасть в реальной жизни. Первыми гостями обновленного "Квартирника" стали участники группы "Машина времени". Специально для записи программы НТВ рок-коллектив собрался в полном составе впервые за продолжительное (   Читать дальше...   )1. Наш дом
+2. За тех, кто в море
+3. Синяя птица
+4. Поворот(   Читать дальше...   )Производство: НТВЖанр: КонцертАктеры: Андрей Макаревич, Александр Кутиков, Валерий Ефремов, Андрей Державин, Игорь Хомич, Игорь ДитковскийПродолжительность: 01:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EAEA3C5D02408657FBB942C15FA780C525C017
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389592   (784175) от 11.06.2020
+
+David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Сольный концерт Дэвида Гилмора в Royal Albert Hall, прошедший в мае 2006 года в Лондоне в качестве поддержки его нового на тот момент альбома — On An Island.01. Speak To Me
+02. Breathe (In The Air)
+03. Time
+04. Breathe (In The Air) (reprise)(   Читать дальше...   )Жанр: RockРежиссер: David MalletАктеры: David Gilmour, Richard Wright, Phil Manzanera, Jon Carin, Guy Pratt, Steve DiStanislao, Dick ParryПродолжительность: 02:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5457D64F4BE075DF7D95E6515C05C4FBBE41896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390204   (783335) от 14.06.2020
 
 Квартирник НТВ у Маргулиса. Павел Кашин (13.06.2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +64,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +169,7 @@ Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +198,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -169,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -196,7 +254,7 @@ Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -225,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -251,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -278,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -307,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -333,7 +391,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -359,7 +417,7 @@ Accept - Restless And Live (2017) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -385,7 +443,7 @@ Accept - Restless And Live (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -411,7 +469,7 @@ Led Zeppelin - Celebration Day 2007 (2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -440,7 +498,7 @@ Paul Rodgers - Free Spirit  (2018) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -466,7 +524,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016) Blu-r
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -492,7 +550,7 @@ Paul Rodgers - Free Spirit (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -518,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -545,7 +603,7 @@ Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771550.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,7 +632,7 @@ Mylene Farmer - Stade de France (2009) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -632,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,60 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3037AD233C70538438EEBF18A70D1106AAE8830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310434   (769049) от 27.06.2020
-
-Алые Паруса-2019. Выпускной бал в Санкт-Петербурге (2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769049.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Алые паруса» — праздник выпускников ленинградских школ, появление которого в конце 60-х навеяла невероятная популярность одноименного фильма по повести Александра Грина. Первый праздник состоялся 27 июня 1968 года. В этот день ленинградские школьники впервые увидели на Неве бригантину под алыми парусами, ставшую впоследствии эмблемой праздника.
-Традиция всем городом (   Читать дальше...   )Производство: Россия / Пятый каналЖанр: Музыкальный, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFBCBDE2FAEBCE71C8B07343AF4488CC7A55AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310437   (769048) от 27.06.2020
-
-Алые Паруса-2019. Выпускной бал в Санкт-Петербурге (2019) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769048.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Алые паруса» — праздник выпускников ленинградских школ, появление которого в конце 60-х навеяла невероятная популярность одноименного фильма по повести Александра Грина. Первый праздник состоялся 27 июня 1968 года. В этот день ленинградские школьники впервые увидели на Неве бригантину под алыми парусами, ставшую впоследствии эмблемой праздника.
-Традиция всем городом (   Читать дальше...   )Производство: Россия / Пятый каналЖанр: Музыкальный, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFD20F1B63DF02F1FFBB96172203120DAEDF275
 ```
 
 https://mybot314.ru/tekegram_catalog/

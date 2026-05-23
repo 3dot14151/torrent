@@ -1,3 +1,90 @@
+###  Публикация: 1238334   (1028507) от 01.03.2021
+
+Guy Andrews (iambic, iambic², The Moving Dawn Orchestra) - Discography 20 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Experimental, IDM, Post Rock, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Spring: Hymn/Hymn (08:10)
+ 02. Summer: Keep Still (08:05)
+ 03. Autumn: Between Hands (08:00)
+ 04. Winter: Silhouette (07:39)Тип издания: CD, WebЖанр: Techno, Experimental, IDM, Post Rock, Minimal, Ambient •Продолжительность: 09:39:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CF38A657B15DFB372ACFEBBB6899AF0DFDE0C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210196   (1028451) от 01.03.2021
+
+VA - Heavy Dub Vol. 1-6 (2016-2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Giriu Dvasios feat. Aistė Motiejūnaitė - Nepasakyta (05:28)
+ 02. Herman Crantz - Steppelands Dub (06:44)
+ 03. joergmueller - St. Pancras (05:01)
+ 04. Occult - Axum (04:52)(   Читать дальше...   )Тип издания: WEBЖанр: Dub Techno, Dub, Ambient •Продолжительность: 04:33:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746397213E02431DABB749847305ABDF688B204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451619   (1028235) от 03.03.2021
+
+Topdown Dialectic - Discography 6 Releases (2014-2019) /\\Aught, Peak Oil [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Experimental, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. A1 (05:00)
+ 02. A2 (05:00)
+ 03. A3 (05:00)
+ 04. A4 (05:00)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Experimental, Dub, Ambient •Продолжительность: 08:19:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E5F6DEB5BFD88CA9B9CA19ADF84D6F4D99F21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188374   (1027820) от 05.03.2021
 
 Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems Silently Moving, A601-2) - Discography (1996-2019) [FLAC|Lossless] <Dub Techno, Ambient, Techno, Experimental>
@@ -6,7 +93,7 @@ Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Oslated 5th Anniversary Compilation (2021) Oslated [FLAC|Lossless|WEB-DL|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Nathan Fake - Discography 29 Releases (2003-2021) Border Community, Ninja Tune [
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Klubb House 2006. Tribal House 2 (2006) [FLAC|Lossless|image + .cue] <Triba
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +267,7 @@ Mono Peninsula - Archangelsk (2021) ROHS! Records [FLAC|Lossless|WEB-DL|tracks] 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Dub Techno (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025992.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -238,7 +325,7 @@ Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +354,7 @@ Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +383,7 @@ Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|trac
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +412,7 @@ Marsh - Lailonie (The Remixes: Part 1-2) (2021) [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -354,7 +441,7 @@ VA - Espectrum II: The Avantroots Dub Techno Compilation (2021) AvantRoots [FLAC
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -383,7 +470,7 @@ Jon Gaiser | Void | Fraktion  - Discography 20 Releases (2006-2017) M_nus [FLAC|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -411,7 +498,7 @@ Andy Stott - Discography 23 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -437,7 +524,7 @@ VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, E
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +553,7 @@ VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -495,7 +582,7 @@ Rone - Discography 40 Releases (2008-2021) Infiné [FLAC|Lossless|tracks+.cue, t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -524,7 +611,7 @@ Martin Nonstatic | EskoStatic - Discography 34 Releases (2011-2021) [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +640,7 @@ Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -582,7 +669,7 @@ Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +698,7 @@ Ellen Allien - Discography 72 Releases (2000-2021) BPitch Control [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -640,7 +727,7 @@ Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Tec
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -654,92 +741,6 @@ Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F039BFCCC45FE217FFB4564A88E89D15E5D9DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366701   (1023101) от 02.04.2021
-
-nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, Mörk [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It (04:22)
- 02. Above The Clouds (04:40)
- 03. Mad About You (05:53)Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 07:33:37 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E85CBA5DF2CD55E5AFC5CC0619C543118D9B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304444   (1022411) от 06.04.2021
-
-Gradient - Discography Discography 17 Releases (2009-2021) U-Cover, Greyscale, Entropy Records, ZeECc [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cloud One (08:30)
- 02. Cloud One (Submoon Remix) (06:44)
- 03. Cloud Two (06:30)
- 04. Cloud Three (07:20)Тип издания: CD, WebЖанр: Dub Techno, Ambient •Продолжительность: 16:08:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4DF040D7F074E3A369893ED0265018946DA798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461057   (1021951) от 09.04.2021
-
-Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poetry (3:39)
-02. Gains (3:27)
-03. I Need Someone (4:54)
-04. Remember (7:05)(   Читать дальше...   )Жанр: Dance, House, TranceПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.26200.5074], Version 25H2 Preview - Оригинал�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 11 [10.0.26200.5074], Version 25H2 Preview - Оригинал�
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

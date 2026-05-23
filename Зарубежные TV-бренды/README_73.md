@@ -1,3 +1,56 @@
+###  Публикация: 1311373   (541709) от 29.06.2019
+
+NG. Осушить океан: Тайны начала операции / Drain the Oceans: Secrets of D-Day (2019) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Используя новейшие сонарные технологии, уникальная экспедиция, отправившаяся составлять карту кораблей союзников, затонувших во время Второй мировой войны недалеко от Нормандского побережья. В проливе Ла-Манш находится более 100 останков десантных и прочих кораблей, входивших в состав крупнейшего флота, осуществлявшего операцию десантирования. После «осушения» пролива (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures for National GeographicЖанр: Документальный, история, исследованияРежиссер: Доминик ОзаннПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D8133F8898B91DE141159877CB248BD97DAE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531761   (540330) от 06.08.2012
+
+Амазонка. Солнечная река / The Amazon. River of the Sun (2009) [720p] BDRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Экватор: наиболее солнечная река нашей планеты - Амазонка, это неотъемлимая часть жизни джунглей. Полгода пресноводные рыбы пируют за счет паводков, вызванных большим количеством осадков, но со временем вода отступает и тогда подводные обитатели сталкиваются с шестимесячной засухой...
+ Амазонка - это хранилище древних животных и колыбель для развития новых видов...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: нетПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F313FD48E4F6BF91938FA87CD0832B677300B8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152718   (538685) от 31.07.2017
 
 BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (2015) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-2 из 2)
@@ -6,7 +59,7 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ BBC: Древние затерянные города. Тёмные правит
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Discovery. Новые захоронения Египта / Egypt's New Tomb Rev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538460.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +163,7 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +243,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +269,7 @@ Discovery: Неделя акул / Shark Week (2017) HDTVRip [H.264/720p-LQ] (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +295,7 @@ Discovery: Люди: Кто мы? Нашествие людей / People: Who ar
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +321,7 @@ NG. По его собственным словам / In His Own Words (2019) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +347,7 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +373,7 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +399,7 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +425,7 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +477,7 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +529,7 @@ NG: Строительство тоннеля / Building the Channel Tunnel (201
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +555,7 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +582,7 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +608,7 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +635,7 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +661,7 @@ Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +672,6 @@ Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FBE9E3AC16592CD025FA6C11BC82EA077932B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052720   (527211) от 15.09.2016
-
-BBC. Чудеса животного мира / The Wonder of Animals (2014) SATRip (серий 6x2 из 12)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удивительно красочная серия фильмов перенесет зрителя в обычно скрытый мир фауны, и раскроет много тайн и секретов о жизни разнообразных животных.Производство: Великобритания, British Broadcasting CorporationЖанр: Документальный, природа, животныеРежиссер: Джонни Келлинг / Jonny KeelingПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 файлов x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABFD6EBAB8BD117C5B5948A93B64153F08694E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156763   (526975) от 08.08.2017
-
-Генрих VII: Король зимы / Henry VII The King of Winter (2013) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно коронованный Генрих VII женится на Елизавете Йоркской, чтобы создать новую династию. Эта история, история Тюдоровской Англии, полна великолепия и предательстваПроизводство: Великобритания, Lion Television, All 3 Media for BBCЖанр: Документальный, история, исследованияРежиссер: Джулия Кларк, Стюарт ЭллиотПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97F023D76EF19E3636626E24B7D31DD6A966482
 ```
 
 https://mybot314.ru/tekegram_catalog/

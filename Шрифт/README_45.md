@@ -1,3 +1,140 @@
+###  Публикация: 1819378   (1607) от 21.09.2025
+
+Шрифты - GGBotNet - Kaph [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Kaph содержит 2 стиля (обычный и курсивный) и 610 глифа. Поддержка 67 языков.
+Этот шрифт распространяется по лицензии SIL Open Font License версии 1.1.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C7370455132803F3DE2ACC22040BF10D3BC24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819328   (1606) от 21.09.2025
+
+Шрифты - Creative Market - Keratus - Modern Sans Logo Font - 291839609 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Keratus — современный шрифт без засечек, сочетающий в себе минималистичную элегантность и чёткие геометрические формы. Благодаря сбалансированным пропорциям и изысканным деталям он создаёт профессиональный, инновационный и динамичный образ, идеально подходящий для брендинга, редакционной работы и цифрового дизайна.
+
+Шрифт Keratus, доступный в нескольких вариантах (   Читать дальше...   )Формат: OTF, TTF, WOFFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A72E527FA956349B3A84E323C697D6D1A2D0B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819377   (1587) от 21.09.2025
+
+Шрифты - GGBotNet - Delta Block Font [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Delta Block Font содержит 2 стиля (курсивный и обычный) и 534 глифа.
+Шрифт выполнен в стиле курсива с наклоном влево.
+Этот шрифт лицензирован по лицензии Creative Commons Zero v1.0 Universal.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A896B7803AAA4E5DC74686928791A23A371374BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819246   (1577) от 21.09.2025
+
+Шрифты - Creative Market - Kinsley - Modern Elegant Sans Serif - 92040958 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Kinsley отличается чёткими линиями и элегантным дизайном, излучающим уверенность. Он идеально подходит для брендинга высококачественных продуктов и услуг, стремящихся к вневременной и изысканной эстетике.Формат: OTF, TTFПоддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C22EC19A18BD3436170AFB650C27CD46ECA46B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819260   (1555) от 21.09.2025
+
+Шрифты - Creative Market - Kesradat - Sans Serif Family - 291847604 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Представляем Kesradat — универсальный и элегантный шрифт без засечек, разработанный для удовлетворения любых дизайнерских потребностей. Kesradat предлагает 16 универсальных начертаний, от лёгкого и современного Thin до выразительного и смелого Extra Bold, предлагая безграничную гибкость. Конечно же, каждый начертание имеет курсивную версию для динамичного эффекта. (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2Поддержка кириллицы: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82853C055BECB7AB7402677D4F03D2695B5D000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819537   (1470) от 22.09.2025
 
 Шрифты - Creative Market - Avita | Geometric Sans Typeface [OTF, TTF, WOFF, WOFF2]
@@ -6,7 +143,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -115,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -143,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -171,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -225,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -254,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -282,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -310,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -338,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -366,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -394,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -420,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1127.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,138 +706,6 @@ Qirvalen — современный, гармоничный и стильный 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819949   (993) от 25.09.2025
-
-Шрифты - Behance  - Giulia Boggio - DGM Fette Typeface - 213945591 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_993.jpg" />
-</div>
-
-
-###  Подробнее
-
-DGM Fette - это шрифт полу-возрождения от Breite Fette Information . Первоначально разработанный Фридрихом К. Саллви и отлитый компанией Klingspor в 1956 году в качестве дополнения к семейству Information, он, вероятно, наиболее известен сегодня благодаря использованию Пабло Ферро в титрах фильма "Буллит" и оформлении альбома The Kinks – Kinkdom.
-
-Спецификация: (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CCC293EE4CDAD3EB873CDA9D46104C22979D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819944   (988) от 25.09.2025
-
-Шрифты - Behance - Fio Gonçalves - Guaruja Neue - 150147725 [EOT, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guaruja Neue - это неогротескный шрифт с дополнительными индустриальными чертами, такими как открытые углы диагональных глифов и короткие изгибы. Начертание полукурсивным курсивом - это нечто большее, чем просто орфографический элемент, придающий морским волнам вид заголовков и копий, которые будет создавать Guaruja Neue, поскольку он назван в честь города на побережье (   Читать дальше...   )Формат: EOT, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE24B9C69F08DF991C3F208D2A68D89F17754F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819908   (973) от 25.09.2025
-
-Шрифты - MyFonts - Ordinary [OTF, TTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это — «Ordinary». Мир медленно выходит из нескольких лет, охваченных пандемией, и то, что раньше было нормой, теперь устарело, поскольку мы все адаптировались к новой норме. То же самое должно произойти и с нашим шрифтом, и с гротесками. «Ordinary» — это, по сути, необычная попытка запечатлеть то, что происходит «сейчас» и что отличает новое тысячелетие от дизайна (   Читать дальше...   )Формат: OTF, TTF, WOFF2Поддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F4D6F7DC699FB6ADA161EEAC1616FBB4A7AFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819885   (972) от 25.09.2025
-
-Шрифты - Creative Market - Prolinea Family - 291849221 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prolinea — это современное семейство шрифтов без засечек, отличающееся элегантными пропорциями, чёткой геометрией и изысканными деталями. Вдохновлённый профессиональными названиями продуктов, такими как «Pro» в мобильных устройствах, Prolinea сочетает в себе точность и современную эстетику, что делает его идеальным для корпоративного брендинга, технологической отрасли (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97E74B8BDBC84229F011E32DBD5AF5B3DD97C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820154   (796) от 26.09.2025
-
-Шрифты - Google - NaN - Rubik [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большое семейство декоративных шрифтов Rubik от NaN для вашего творчества.Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7578F6AB5CFAAE540CDD331EA03BA65836DC06
 ```
 
 https://mybot314.ru/tekegram_catalog/

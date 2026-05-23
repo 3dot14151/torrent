@@ -1,3 +1,265 @@
+###  Публикация: 908530   (631881) от 15.06.2015
+
+Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих столов) [i686] 3xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE от команды разработчиков - 0.8.13 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C866234EC9CDA06C9615890D6B8A8A2714ED26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908528   (631413) от 15.06.2015
+
+Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих столов) [x86-64] 3xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики дистрибутива и разработчики сообщества представили очередной выпуск Manjaro Linux – основанного на Arch Linux легковесного дистрибутива, пользователь которого имеет выбор из настольных окружений Xfce, Openbox, KDE, E17, LXDE, Gnome, MATE, Cinnamon, netbook, fluxbox, а также net. В релизе представлены дистрибутивы с DE от команды разработчиков - 0.8.13 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2611B7CB6316176C1EABE6E55D8DB37E92006384
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294003   (631237) от 06.04.2019
+
+Программное обеспечение «Эльбрус» 3.0.36 [x86_64/x86]
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Компания МЦСТ открыла доступ к установочным образам дистрибутива Эльбрус, построенного с использованием наработок Debian GNU/Linux. Для загрузки доступны сборки прошлой ветки Эльбрус 3.0 для архитектур x86 (3.6 + 2 Гб) и x86_64 (3.9 + 2.3 Гб), а также сборки актуальной ветки Эльбрус 4.0 для процессоров Эльбрус-1С+, Эльбрус-2С и Эльбрус-8С (в ближайшее время также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA75D6D2936E82364514988DD100C3B48746EFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144919   (625357) от 23.06.2017
+
+OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Опубликован выпуск дистрибутива OpenMandriva Lx 3.02. Проект развивается силами сообщества после того как компания Mandriva S.A. передала управление проектом в руки некоммерческой организации "OpenMandriva Association". Дистрибутив примечателен использованием по умолчанию компилятора Clang, инсталлятором на базе проекта Calamares и наличием пользовательского (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33DD7A28DE71CB0866772883FDBC7C6B2242E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145006   (623393) от 24.06.2017
+
+Antergos 17.6 [i586, x86_64]
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Antergos - современная, привлекательная и мощная открытая операционная система, основанная на базе Arch Linux. Первоначально проект назывался Cinnarch, потому что совмещал среду рабочего стола Cinnamon и дистрибутив Arch Linux, но затем концепция была изменена, и теперь Antergos поддерживает несколько окружений рабочего стола, включая GNOME 3 (по умолчанию), Cinnamon, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC99E6CCDE3FC52E78D109ED8476B334B549687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143647   (623181) от 24.06.2017
+
+Debian Live GNU/Linux 9.0.1 + nonfree Stretch [i386] 12xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Релиз обновлен из-за ошибок в версии 9.0. Перекачайте торрент.
+
+После более двух лет разработки состоялся релиз Debian GNU/Linux 9.0 (Stretch), доступный для десяти официально поддерживаемых архитектур, среди которых: Intel IA-32/x86 (i686), Intel EM64T / x86-64 (amd64), ARM EABI (armel), 64-bit ARM (arm64), ARMv7 (armhf), MIPS (mips, mipsel, mips64el), PowerPC 64 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928881B0F9CBDD04BB89613E20A97A66CFEC2A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145519   (621537) от 25.06.2017
+
+Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64] 8xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представлен новый  релиз дистрибутива Sabayon Linux 17.06, сочетающего в себе удобство для конечного пользователя с гибкостью Gentoo. Sabayon Linux оформлен в виде Live-дистрибутива, снабжённого возможностью лёгкой установки на жёсткий диск. Sabayon использует модифицированную rolling-модель подготовки обновлений, которая делает выпуск обновлений более предсказуемым (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8EC769781DD786E31D823E08986A10B59394BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910869   (619959) от 21.06.2015
+
+Mageia 5 Cauldron [i586] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DEE83BCFB324BE4B11BB90D803747A876B57EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910867   (619621) от 21.06.2015
+
+Mageia 5 Cauldron [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872DC0B47F1DD854EB2BDA2F9E3BE8F102553F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910872   (619615) от 21.06.2015
+
+Mageia 5 Cauldron Live [i586, x86-64] 4xDVD, 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1367AA770F31AE215398FC1BA563437C0CACFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146247   (614324) от 29.06.2017
 
 Solus Linux (Budgie DE) 2017.04.18.0 [x86-64] 1xDVD
@@ -6,7 +268,7 @@ Solus Linux (Budgie DE) 2017.04.18.0 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +296,7 @@ Sabayon 17.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +322,7 @@ Debian 9.0.0 [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609183.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +349,7 @@ PCLinuxOS 2017.06.20 (LXDE, MATE, XFCE, KDE) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +375,7 @@ Linux Mint 18.2 Sonya (KDE, XFCE, Mate, Cinnamon) [32bit] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +401,7 @@ Ubuntu 22.04 Jammy Jellyfish LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +428,7 @@ Lubuntu 22.04 Jammy Jellyfish LTS 22.04 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +456,7 @@ Debian GNU/Linux 9.8.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -222,7 +484,7 @@ OpenMandriva Lx 2014.2 [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +510,7 @@ Parrot Security OS Full Edition 1.9 [amd64] ISO
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +536,7 @@ Linux Mint 17.2 Rafaela (Mate, Cinnamon) [32bit] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600861.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +562,7 @@ Debian GNU/Linux 9.9.0 + nonfree 9.9 [amd64] 2xDLBD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600704.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +590,7 @@ Sabayon 15.07 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +616,7 @@ AntiX 15 (Легкий дистрибутив для устаревшего же
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +644,7 @@ JonDo 0.9.83 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +672,7 @@ Runtu XFCE 16.04 [x86] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -421,272 +683,6 @@ Runtu XFCE 16.04 [x86] 1xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427EA644EF73B1567E9E318F99425F7092FEE879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041084   (583115) от 08.08.2016
-
-ROSA Desktop Fresh (Plasma 5) R8 [i586, x86_64] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583115.jpg" />
-</div>
-
-
-###  Подробнее
-
-ROSA - российская компания, занимающаяся разработкой различных дистрибутивов на базе Linux.
-ROSA Desktop Fresh R8 - дистрибутив для энтузиастов постоянно меняющегося мира Linux. Он имеет относительно короткий жизненный цикл, но включает новейшие версии программ и поддержку современных аппаратных компонентов. Plasma 5 - пятая версия рабочего стола KDE, основанная (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB916A9C427458ACD786960F50DE4A2F710864B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920407   (580007) от 22.07.2015
-
-Calculate Linux 14.16.2 (MATE) [i686,amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен Calculate Linux Desktop MATE (CLDM), третий десктоп в семействе Calculate Linux, предоставляющий полноценное рабочее место для применения, как в офисе, так и дома. Дистрибутив обратно совместим с Gentoo и кроме портежей использует общие репозитории Calculate Linux, которые на сегодняшний день насчитывают 2000 бинарных пакетов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94698E3F8F20796B41C99067822479E2CB2AEA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919537   (579851) от 22.07.2015
-
-Chromixium 1.5 [i386] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел стабильный выпуск проекта Chromixium, в рамках которого развивается Linux-дистрибутив, похожий по оформлению и принципам работы на ChromeOS, но основанный на пакетной базе Ubuntu Linux и позволяющий использовать все приложения из репозиториев Ubuntu 14.04 LTS наряду со свойственными ChromeOS web-приложениями.
-Из доступных в Chromixium 1.5 возможностей отмечается (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6650829A1F83F0CAAAA0F401FB2A7B6350827A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150988   (575926) от 17.07.2017
-
-Fedora 26 Live spins [x86-64] 6xDVD, 1xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально представлен релиз Linux-дистрибутива Fedora 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server и Fedora Atomic Host, а также набор "спинов" c Live-сборками десктоп-окружений KDE Plasma 5, Xfce, MATE, Cinnamon, LXDE и LXQt. Сборки сформированы для архитектур x86, x86_64, Power64 и ARM64 (AArch64). Дополнительно поставляется (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D496D940156107E5012CB9813FB4686C2F274FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150986   (575801) от 17.07.2017
-
-Fedora 26 [x86-64] 3xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально представлен релиз Linux-дистрибутива Fedora 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server и Fedora Atomic Host, а также набор "спинов" c Live-сборками десктоп-окружений KDE Plasma 5, Xfce, MATE, Cinnamon, LXDE и LXQt. Сборки сформированы для архитектур x86, x86_64, Power64 и ARM64 (AArch64). Дополнительно поставляется (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A857F5E562E5E3D10D8EF5756287008BB2B843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150993   (575689) от 17.07.2017
-
-RFRemix [Russian Fedora Remix] 26 [i386, x86-64] 3xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одновременно с официальным релизом Fedora 26 выпущен Russian Fedora Remix 26. Для загрузки подготовлены продукты Fedora Workstation, Fedora Server Сборки сформированы для архитектур x86, x86_64
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF9B10959EA48CE67451E1F8488C5F687C18704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688972   (573539) от 13.08.2013
-
-Sabayon 13.08 (Multi DE) Поддержка анонимного доступа в сети [x86-64] (5xDVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B2A91B6628F5FEAEE09ECC4C7E86831E79C3A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688985   (571619) от 14.08.2013
-
-Sabayon 13.08 (Multi DE) Поддержка анонимного доступа в сети [x86] (5xDVD, CD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
-
-Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux Kernel 3.10.4 с поддержкой BFQ iosched, обновлена поддержка ZFS file system, GNOME 3.8.4, KDE 4.10.5, MATE 1.6.2, Xfce 4.10, LibreOffice 4.1, UEFI SecureBoot для 64-bit образов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21053F9F40987AF72F87F2E9D3DD790A96897974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304017   (566854) от 24.05.2019
-
-OpenSuse Leap 15.1 [x86_x64] 3xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566854.jpg" />
-</div>
-
-
-###  Подробнее
-
-После года разработки состоялся релиз дистрибутива openSUSE Leap 15.1. Выпуск сформирован с использованием базового набора пакетов из находящегося в разработке дистрибутива SUSE Linux Enterprise 15 SP1, поверх которого поставляются более новые выпуски пользовательских приложений из репозитория openSUSE Tumbleweed. Для загрузки доступна универсальная DVD-сборка, размером (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4FB08D0F4062C52DF73C9582536F521CF48157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152595   (565166) от 23.07.2017
-
-Debian GNU/Linux 9.1.0 + nonfree Stretch [i386] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доступно первое корректирующее обновление дистрибутива Debian 9, в которое включены все выпущенные за месяц с момента релиза обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 54 обновления с устранением проблем со стабильностью и 26 обновлений с устранением уязвимостей. Одновременно опубликовано обновление Debian 8.9 в котором представлено (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9698C6B61AA027ABA42E4158B91486CE28F4B7F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

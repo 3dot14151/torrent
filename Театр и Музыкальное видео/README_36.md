@@ -1,3 +1,172 @@
+###  Публикация: 650350   (843512) от 30.04.2013
+
+Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Производство: США / Cirque du Soleil Burlesco, Cirque du Soleil Burlesco, Strange Weather FilmsЖанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: ДублированныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, английские, украинскиеПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C958B754B8D5D7CEBD4CDDA279C018F2D8777B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003362   (843315) от 03.04.2016
+
+Борис Гребенщиков и группа Аквариум - Весенний концерт 30 марта, Самара, КРЦ "Звезда" (2015) HDCam [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В раздаче находится запись концерта прошедшего в Самаре, в КРЦ "Звезда", 30 марта 2015 года. Запись была произведена на 2 камеры (с рук и со штатива) и обе вы найдёте в раздаче. Так как запись с первой камеры довольно большая по объёму, то сделан так же и её уменьшенный вариант (для тех, кто сильно ограничен по объёму или имеет слабый компьютер), который (   Читать дальше...   )01-Не было такой и не будет
+02-Огонь на себя
+03-Королевское утро
+04-Стучаться в двери травы(   Читать дальше...   )Жанр: РокПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22B25837CAEEFE27126A58CDB012E37F6DA2309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003375   (843132) от 03.04.2016
+
+Квартирник у Маргулиса. 23 выпуск. Тайм-Аут (2016) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тайм-аут — российская рок-группа, основанная Александром Минаевым (АНЗ) и Павлом Молчановым (ТПП). АНЗ и ТПП придумали свою науку о кайфе — мотологию. Термин «Мотология» появился после того, как ТПП отпилил от таблички «Стоматолог» буквосочетание «сто», а «матолог» преобразовался в «мотолога». Сегодня в теплой и душевной атмосфере квартирника у Евгения Маргулиса (   Читать дальше...   )Производство: ЧеЖанр: МузыкаПродолжительность: 0:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7905F0C378FF9DD7F3866D8B50A0D0FFCD049AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001823   (842940) от 03.04.2016
+
+Борис Гребенщиков и группа Аквариум - концерт на телеканале "Дождь" к новому 2016 году (2016) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта выдернута с сайта телеканала "Дождь", без перекодирования, оригинал как она есть. Из-за того, что видео у них выдёргивается не вот прям на счёт раз, в качестве 1080p этого видео в сети до сих пор нет.
+Битрейт низкий, но это пока лучшее качество этого материала что есть на данный момент.00:00 Песни нелюбимых
+03:38 Tempora mutantur
+09:08 Собачий вальс
+12:53 Дуй(   Читать дальше...   )Жанр: РокПродолжительность: 00:33:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E75CC23859C40A7F44F0A1AE29A3114A9E5C31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003103   (842926) от 03.04.2016
+
+Сборник - Bollywood Video Yarmix (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мини-сборник клипов из индийских фильмов01. Intro, Dhoom-2
+02. Saiyaan Superstar - Ek Paheli Leela
+03. Mainu Ishq Da Lagya Rog - Mainu Ishq Da Lagya Rog
+04. Desi Look (Ek Paheli Leela)(   Читать дальше...   )Жанр: Pop, Dance, Video-MegamixАктеры: Аамир Кхан,  Катрина Кэйф и др.Продолжительность: 00:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D282B40545DA82651BB2C8816AB5CCEF048307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379123   (842904) от 27.04.2020
+
+Владимир Пресняков - "50" Юбилейный концерт (2018) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия грандиозного юбилейного концерта Владимира Преснякова "50", который состоялся 29 марта 2018 года в Crocus City Hall.1. Интро
+2. Владимир Пресняков (мл.) - Слушая тишину
+3. Владимир Пресняков (мл.) - Если нет рядом тебя
+4. Владимир Пресняков (мл.) - Девочка(   Читать дальше...   )Производство: Velvet MusicЖанр: КонцертРежиссер: Кирилл Золотарев, Роман БутовскийПродолжительность: 01:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153A0F41E31396AD46944F453D817C7446A002B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112364   (842829) от 08.03.2017
 
 Annihilator - Triple Threat (2017)  BDRip [H.264/1080p]
@@ -6,7 +175,7 @@ Annihilator - Triple Threat (2017)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -63,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_842684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -94,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -121,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -147,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +346,7 @@ Supermax - Rhythm Of Live (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -204,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841604.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +402,7 @@ Silvesterkonzert / New Year's Eve Concert (2015) [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -263,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +519,7 @@ Europa Plus TOP 40 март (2017) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +682,7 @@ The Pretty Reckless - Only Love Can Save Me Now (2021) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +708,7 @@ George Michael - Twenty Five (2006) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -550,176 +719,6 @@ George Michael - Twenty Five (2006) 2xDVD9
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500058   (839585) от 07.10.2021
-
-AC DC - Through the Mists of Time (2021) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839585.jpg" />
-</div>
-
-
-###  Подробнее
-
-AC/DC устроили экскурсию по своей истории в клипе «Through The Mists Of Time». Видео снято по той же технологии, что и клип «Realize», еще один сингл с прошлогоднего альбома «Power Up». Каждый из участников группы был отснят по отдельности в разных частях мира, а затем с помощью монтажа и специальных эффектов режиссер Наджиб Тарази поместил музыкантов вместе на одну (   Читать дальше...   )Жанр: RockПродолжительность: 0:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B2D897364F0CBE1CE71F690882F5EBFC947F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651412   (839499) от 02.05.2013
-
-Disco Дача. Весенний концерт (2013.05.01) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна – время, когда заядлые дачники начинают делать первые приготовления для открытия нового сезона. Чтобы хорошо отдохнуть летом, нужно зарядиться правильным настроением уже весной. Открываем дачный сезон на телеканале "Россия"!1. Верка Сердючка - Розовый свитер
-2. Николай Басков - Кто тебе сказал
-3. Ани Лорак - Зажигай сердце
-4. Стас Пьеха - Зелёный омут(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:22:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500973   (839236) от 07.10.2021
-
-Nightwish - Nemo (2008) DVDRip [H.264/1080p-LQ] [Upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.NIGHTWISH - Nemo (2008)Жанр: Symphonic MetalПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830A0A7B7A5A80C8D2B969180232650FCD5B8CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152758   (839067) от 29.04.2020
-
-Александр Островский - Волки и овцы (2004) SATRip (Мастерская П. Фоменко)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Островский. Комедия в 5-ти действиях. Телеверсия спектакля "Волки и овцы" театра "Мастерская Петра Фоменко" по пьесе А.Н. Островского. Запись 2004 года. В спектакле остро, подчас гротескно, подан сюжет известной пьесы. Сюжет разворачивается вокруг аферы с векселями и попыткой заполучить мужа побогаче. Бережный по отношению к классику (   Читать дальше...   )Производство: Россия, Московский театр "Мастерская П. Фоменко", Студия фондовых и архивных программ ГТРК "Культура"Жанр: Спектакль, сатирическая комедия, экранизацияРежиссер: Пётр Фоменко, Ма Чжен Хун, Олег КорвяковАктеры: Ксения Кутепова, Полина Кутепова, Юрий Степанов, Галина Тюнина, Рустэм Юскаев, Мадлен Джабраилова, Карэн Бадалов, Тагир Рахимов, Кирилл Пирогов, Андрей КазаковСубтитры: отсутствуютПродолжительность: 2 x ~ 01:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A3F46321586718BC86A31B74FA6DE82408E124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379560   (838986) от 29.04.2020
-
-Вика Старикова - Сборник кавер-версий (2017-2019) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория Старикова — юная певица, которая обрела первую популярность на шоу «Минута славы». Несмотря на жёсткую критику со стороны жюри, Вика сумела завоевать своих первых поклонников не только в среди детской, но и среди более взрослой аудитории.
-В родном Нижнем Тагиле, Вика была удостоена престижной премией на церемонии «Человек года» в номинации «Дети, прославившие (   Читать дальше...   )01. А зори здесь тихие
-02. Ангел и я 2
-03. Ангел и я
-04. Богемская рапсодия(   Читать дальше...   )Жанр: CoversАктеры: Виктория СтариковаПродолжительность: 00:02:17-00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA8558A4E8D1460284F8DB31673FBC68624E38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309256   (838899) от 17.03.2011
-
-Богема / La Boheme: The Film (2009) BDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покорив лучшие сцены мира, Нетребко и Вильясон теперь покоряют киноэкраны. Съемки фильма-оперы «Богема» проходили в Вене под руководством Роберта Дорнхельма («Война и мир», номинированная на «Оскар» лента «Дети с театральной улицы»). Продюсером фильма с бюджетом в пять миллионов евро выступили Курт Мърквичка (венская компания Эм-Эр-Фильм) и Юнител, компания Яна Мойто, одна из крупнейших продюсеров аудиовизуальной классической продукции в мире.
-В фильме также приняли участие Николь Кебел, Георг фон Берген, Эдриан Эрод и Виталий Ковалев. Симфоническим оркестром и хором Баварского радио, а также детским хором Государственного театра на Гартенплатц в Мюнхене руководит Бертран де Билли. Оператор-постановщик - Уолтер Киндлер.
-Сочетание одной из наиболее любимых публикой опер и одного из наиболее популярных оперных дуэтов в мире – это рецепт гарантированного успеха. «Богему» Пуччини редко исполнял столь фотогеничный и обаятельный дуэт. Фильм Роберта Дорнхельма - номинанта на премию Оскар - это «сочетание ярких эмоций, (   Читать дальше...)Жанр: Opera filmРежиссер: Robert DornhelmАктеры: Mimi: Anna Netrebko
-Rodolfo: Rolando Villazon
-Musetta: Nicole Cabell
-Marchello: George von Bergen / voice Boaz Daniel
-Shaunard: Adrian Erod / voice Stephane Degout
-Colline: Vitaly KovalevПеревод: ОтсутствуетПродолжительность: 01:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5723A12E287C6D9FFC32D512C6AF318233DCFA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

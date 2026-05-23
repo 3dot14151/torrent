@@ -1,3 +1,165 @@
+###  Публикация: 1744398   (45963) от 22.08.2024
+
+Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+«Personal Jesus» (с англ. — «Личный Иисус») — 23-й сингл британской группы Depeche Mode, выпущенный в Великобритании 29 августа 1989 года, и первый сингл с альбома Violator. Текст был написан Мартином Гором.Жанр: synthpopУчастники: Дэйв Гаан, Мартин Гор, Энди Флетчер, Винс Кларк, Алан УайлдерПродолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458438   (45959) от 23.08.2024
+
+Единственный большой концерт группы ДДТ в 2020 году (11.10.2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юрий Шевчук: Я понял, что нужно немного рассказать об этом  концерте. Каждый год в столице Башкирии, городе Уфа проходят фестивали, посвященные дню республики. Когда нам предложили принять участие на этом  празднике, мы сначала засомневались - коронавирус и т.д. и т.п. (год не играли полным составом). Но все знают, как я тепло отношусь к Уфе и Башкирии и мы не смогли (   Читать дальше...   )Производство: Россия / БСТ, Парк "Ватан", г. Уфа.Жанр: КонцертРежиссер: Ярослава ФеоктистоваПродолжительность: 02:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8022315AC5D88E30B10BADDACA0DEC7183CA9325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 383165   (45955) от 23.08.2024
+
+Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Use Your Illusion Ultimate - двойной DVD группы Guns N' Roses. Первый диск включает в себя концерт состоящий из 2-х частей Use Your Illusion I и Use Your Illusion II. Фильм снят в Tokyo Dome, Япония в 1992 году, во время 28-месячного тура Use Your Illusion. Второй - видеоклипы Welcome To The Videos.Жанр: Hard RockПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 03:01:04 + 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680D371936FF0916B876A88CF294CB844A6354AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470721   (45944) от 23.08.2024
+
+Квартет И - Разговоры мужчин среднего возраста о женщинах, кино и алюминиевых вилках (2008) [H.264] CamRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+О чем говорят мужчины, когда они одни? Это тайна, которую пытаются разгадать женщины на протяжении веков. Может быть, действительно о футболе? Или об аккумуляторах? О чем-о чем, ну, уж конечно, не о нас, женщинах. Или все-таки? А если и говорят, то что именно? От этих вопросов и загадок голова кругом идет.
+
+Театр "Квартет И" приоткроет завесу тайны и введет (   Читать дальше...   )Жанр: Комедия, спектакльРежиссер: Сергей ПетрейковАктеры: Леонид Барац, Александр Демидов, Камиль Ларин, Ростислав ХаитЯзык: русскийПродолжительность: 01:00:22+00:58:41+00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5375E76041119B69A8F85458D5E5D7583C869202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514077   (45929) от 23.08.2024
+
+Топаз (1976) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль поставлен по одноименной пьесе французского драматурга, прозаика и киносценариста Марселя Паньоля.
+Топаз и его друг - учителя в дорогой школе-пансионе. Основная забота директора школы - не обидеть богатых родителей своих учеников. Учитель Топаз допустил ошибку, и вскоре был уволен. Он вынужден искать частные уроки, в процессе поисков он знакомится с (   Читать дальше...   )Жанр: Телеспектакль, комедияРежиссер: Георгий ЗелинскийАктеры: Евгений Стеблов, Наталья Варлей, Владимир Кенигсон, Всеволод Якут, Игорь Старыгин, Альберт Филозов, Татьяна КречетоваПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BBF987A01122638B258AC1D3440483A37A1561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182846   (45927) от 23.08.2024
+
+Rainbow - Live In Japan 1984 (2015) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Концерт Rainbow в Nippon Budokan (Tokyo, Japan) 1984 года01. Intro
+02. Spotlight Kid
+03. Miss Mistreated
+04. I Surrender(   Читать дальше...   )Производство: Ward RecordsЖанр: Hard RockСубтитры: Японские иероглифы на английскую речьПродолжительность: 01:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496604699D986EAF94CD8665174EA2C7576A62E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457047   (45853) от 24.08.2024
 
 Солярис (1968) DVDRemux
@@ -6,7 +168,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +194,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +223,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +249,7 @@ Party at The Palace (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +280,7 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -147,7 +309,7 @@ Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -179,7 +341,7 @@ Kiss: "Rock the nation. Live!" (2005)  DVD9x2
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -205,7 +367,7 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -235,7 +397,7 @@ Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -264,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +455,7 @@ AC/DC - Stiff Upper Lip Live 2001 DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -325,7 +487,7 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -460,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +649,7 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -513,7 +675,7 @@ Helloween - Live on 3 Continents (2007) 2xDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -545,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,169 +720,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678C0B612BFB8FE91F1D10631E453C8308577293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 226570   (45083) от 31.08.2024
-
-Halford - Live In Anaheim (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45083.jpg" />
-</div>
-
-
-###  Подробнее
-
-PART I:
- DOCUMENTARY AND CONCERT (approx. 35 mins)
-including 4 songs performed at Shibuya Kokaido Tokyo, Japan
-01. Heretic (Live In Japan)(   Читать дальше...   )Жанр: Heavy MetalРежиссер: John BaxterФормат: DVD videoКачество: DVD9Продолжительность: 02:06:38+бонус
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A704E587ED985B73F3804B00E982499C3C000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630159   (44884) от 02.09.2024
-
-Алмазная колесница (2020) WEB-DL [H.264/1080p] (Театр ЛДМ "НОВАЯ СЦЕНА")
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44884.jpg" />
-</div>
-
-
-###  Подробнее
-
-1878 г. Япония. Порт Йокогама. Едва сойдя на берег, российский вице-консул Эраст Фандорин очарован наложницей английского консула Булкокса красавицей-гейшей О-Юми.
-Его служба в Японии начинается с посещения опиумного притона, где он помогает дочери покойного русского капитана Софье Диогеновне Благолеповой вернуть деньги её отца и становится свидетелем столкновения (   Читать дальше...   )Производство: Россия / Театр ЛДМ "НОВАЯ СЦЕНА"Жанр: театр, искусство, мюзиклРежиссер: Ирина Афанасьева, Иван Стависский, Борис МалевскийАктеры: Станислав Беляев, Анастасия Макеева, Василий Туркин, Иван Стависский, Александр Кулинкович, Алексей Родионов, Маргарита Колганова, Мария Лагацкая-Зимина, Олег Калабаев, Александр Голден, Натали Козырева, Роман Никитин, Вячеслав Штыпс, Дарья Чеснокова, Евгений Чесноков, Сергей ХудяковЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CA53D4EE69E06FBFD27BB4D490FE765E0C8E76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089904   (44873) от 02.09.2024
-
-Гюстав Флобер - Воспитание чувств (1973) SATRip (2 части)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44873.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману Гюстава Флобера "Воспитание чувств".
-Флобер считал, что в жизни постоянно нужно чему-то учиться, при этом жизнь должна непрерывно воспитывать человека. Собственно Флобер и посвятил свой роман жизни, которая формирует определенный опыт и, благодаря этому опыту, воспитывает человека. Молодой провинциал Фредерик Моро приехал покорять Париж. По характеру (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программ ЦТЖанр: Фильм-спектакль, драма, экранизацияРежиссер: Вениамин СмеховАктеры: Леонид Филатов, Виктор Семёнов, Галина Власова, Валерий Иванов, Зинаида Славина, Александр Сабинин, Инна Ульянова, Якоб Ромбро, Елена Корнилова, Людмила Комаровская, Алексей Граббе, Владимир Матюхин, Марина Полицеймако, Эдисон Денисов, Людмила Давыдова (II)Продолжительность: 2 х ~ 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC190E08B793DEFB927D0EAAC67FF207E37E51A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746935   (44776) от 03.09.2024
-
-Mylene Farmer - Avant que l'ombre A Bercy (2006) BDRip [H.265/1440p] [10-bit] [AI Remaster]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avant que l’ombre… à Bercy — четвёртый концертный тур (концертная резиденция) Милен Фармер в поддержку её шестого студийного альбома «Avant que l'ombre...», в рамках тура состоялось 13 концертов в парижском концертном зале Берси. За год до концерта было продано более 169 000 билетов.Производство: ФранцияЖанр: PopРежиссер: Франсуа АнссАктеры: Милен Фармер, Абрахам Лабориэль мл. и др.Продолжительность: 02:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E8919C02C0A5002466CB2DF06E2A8D8665E754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746959   (44747) от 03.09.2024
-
-Евгений Гришковец: Шепот сердца (2017) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уставшее человеческое сердце пытается понять своего хозяина. Ласковый спектакль, в котором легко узнать себя Евгений Гришковец, который «переменил представления о жанре моноспектакля и даже сам стал определенным «жанром»», называет «Шёпот сердца» своей самой необычной и самой сокровенной работой.
-«Это мой шестой монолог за семнадцать лет работы, над замыслом которого (   Читать дальше...   )Производство: Россия / "Луноход 42"Жанр: драма, моноспектакльРежиссер: Павел СудаковАктеры: Евгений ГришковецСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 02:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C9BA4B09F4CE037173014F09250033B674C67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747032   (44700) от 03.09.2024
-
-МузЛофт-подкаст / МузLoft. Алексей Глызин (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Глызин. Чего нужно женщинам? И секрет молодости.
-В гостях легенда, человек который застал шоу-биз 70-х, 80-х, пережил шоу-биз 90-х и до сих выступает и поет вживую Алексей Глызин. Включайте погромче чтобы голосом пробежаться от 70-х до настоящего времени.Производство: Россия | Y-GenerationУчастники: Алексей ГлызинПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B694712BAC2A100A86FD7E0992D1CD4F38052B5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

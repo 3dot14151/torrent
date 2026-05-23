@@ -1,3 +1,108 @@
+###  Публикация: 1637761   (230603) от 05.06.2023
+
+Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюристы, кoтoрыe нe вeрят в чeлoвeчeствo, спaсут мир [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Порядочного Ника обманули и выгнали из команды товарищи-авантюристы, талантливую Тиану оболгали завистники, доброго Зема оклеветали и отлучили от церкви, а могучую Карран предал самый близкий человек. Они не доверяют никому, но именно им суждено спасти мир.
+© crunchyrollПроизводство: Япония, студия Geek Toys и SevenЖанр: приключения, фэнтезиРежиссер: Имадзаки ИцукиЯзык озвучки: Японский, русский (AniLibria, Dream Cast, AniDub Online)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170B2C5F82CF6B9E288F43A68E2E909EE2945CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556048   (230520) от 08.06.2022
+
+Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце света [2021, Web, 12] WEBRip 1080p raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Раз в 1000 лет все боги мира под предводительством Зевса собираются, чтобы решить судьбу человечества. Встретившись в очередной раз, они приходят к выводу, что люди уже перешли черту и творят непотребство по отношению друг к другу и планете, и единогласно голосуют за истребление человеческой расы. Однако валькирия Брюнхильда предлагает дать людям шанс — отстоять (   Читать дальше...   )Производство: GraphinicaЖанр: приключения, фэнтези, драма, сэйнэнРежиссер: Окубо МасаоПеревод: официальный (Netflix)Язык озвучки: Русский, профессиональныйСубтитры: Русские, английские, японскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A473FF8573654749CA7AAF0BA06F6192B1FAF17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556264   (230519) от 08.06.2022
+
+Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | Призрак в доспехах: Синдром одиночки 2045 (ТВ-2) [2022, Web, 12 эп.] WEB-DL 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+2045 год. После масштабного экономического краха, известного как Синхронизированный глобальный дефолт, началось быстрое развитие искусственного интеллекта, и теперь человечество находится в состоянии так называемой Устойчивой войны. Бывшие члены 9-го отдела стали наёмниками и колесят по выжженному войной и солнцем западному побережью США, когда сталкиваются с невиданной (   Читать дальше...   )Производство: Япония / Production I.G, Sola Digital ArtsЖанр: приключения, фантастикаРежиссер: Камияма КэндзиЯзык озвучки: японский и русскийСубтитры: русские (полные) -Продолжительность: 12 эп. по ~26 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A447234E8FFCF7638ED49577F49B8E368B3018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555639   (230325) от 10.06.2022
+
+Shin Ikkitousen | Новые школьные войны: Истинная сила тысячи [2022, TV, 3 эп.] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Запечатанный в древних драгоценностях дух героев, которые безуспешно попробовали объединить Китай в эру Троецарствия. Эти драгоценности были рассеяны всюду по Японии, они могут развить полный потенциал тех, кто их унаследует. Однако, владельцы, известные как Тоуши, охвачены жаждой страсти к сражениям. Хакуфу Сонсаку является одной из таких бойцов. Желание Хакуфу (   Читать дальше...   )Производство: ArmsЖанр: приключения, боевые искусства, комедия, эттиРежиссер: Кудзё РионПеревод: официальный (crunchyroll)Язык озвучки: Русский дублированный (Crunchyroll), многоголосый, закадровый (AniDub), японскийСубтитры: РусскиеПродолжительность: 3 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C0FA8E95E04EAE63F99491C790FE38C26F4D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556702   (230322) от 10.06.2022
 
 Добро пожаловать в ад, Ирума [ТВ-2] | Mairimashita! Iruma-kun 2nd Season | Welcome to Demon School! Iruma-kun [TV-2] [2021, TV, 21 из 21] BDRip HEVC 10-bit 1080p raw+rus
@@ -6,7 +111,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230322.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +138,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -59,7 +164,7 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -85,7 +190,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226313.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +216,7 @@ Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +242,7 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +268,7 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -189,7 +294,7 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +322,7 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +348,7 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +374,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +400,7 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +426,7 @@ Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +505,7 @@ Hadashi no Gen / Barefoot Gen / Босоногий Ген (1983) raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -452,7 +557,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -478,7 +583,7 @@ Drifters | Скитальцы [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -504,7 +609,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -530,7 +635,7 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -569,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07013F81EEECECEC4F3CAA06B33D8269D992B582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558804   (213164) от 22.06.2022
-
-One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Special, 1] WEBRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о таинственном сокровище, "Чистом Золоте", которым хочет завладеть Гран Тесоро (главный злодей One Piece Film GOLD). Мугивары случайно встречаются с девушкой Ольгой, которая знает местоположение этого сокровища, и берут курс в сторону легендарного острова Алхеми.Производство: Япония, TOEI AnimationЖанр: Приключения, Комедия, Боевик, Фэнтези, ДрамаРежиссер: Нагаминэ ТацуяПеревод: Ziggy TeamЯзык озвучки: Русский (AniDUB)Субтитры: РусскиеПродолжительность: 104 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DA86E1C9D1585229D437C1AD882E7F73F3A03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558802   (213163) от 22.06.2022
-
-Anne no Nikki | The Diary of Anne Frank | Дневник Анны Франк [1995, Movie] DVDRip 446p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амстердам, 12 июня, 1942 года. Девочка по имени Анна празднует свой 13-й день рождения. В этот же день она начинает вести свой дневник, который называет "Китти".
-Скрываясь на протяжении двух лет от нацистов вместе с родителями и еще одной еврейской семьей, девочка пишет о своих идеалистических взглядах на мир, о своих амбициях и мечтах, о своих страхах (   Читать дальше...   )Производство: Madhouse / マッドハウスЖанр: история, война, драмаРежиссер: Нагаока АкинориПеревод: General TAB, Nachtwandler, HurricaneЯзык озвучки: японский, русскийСубтитры: русскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706ED9A2B4CBAC8EB30263D2F5BFCEB41457B7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559013   (213125) от 23.06.2022
-
-One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, Movie] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213125.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются на крупнейшем в мире развлекательном лайнере «Гран Тезоро», возглавляемом правительственным чиновником Гильдом Тезоро по прозвищу «Золотой император». «Гран Тезоро» не просто место, где можно отдохнуть — это независимая страна, признанная самим Мировым правительством. Оно собирает всех желающих быстро разбогатеть в одном месте, в особенности (   Читать дальше...   )Производство: Япония, TOEI AnimationЖанр: Приключения, Комедия, Боевик, Фэнтези, ДрамаРежиссер: Миямото ХироакиПеревод: AlvakarpЯзык озвучки: Русский (FREYA&NAZEL)Субтитры: РусскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C20D42CA71C7936B1E5C5CC43548ED3E3A6B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543374   (213070) от 25.06.2022
-
-Настоящая героиня | Heroine Taru Mono! Kiraware Heroine to Naisho no Oshigoto | Heroines Run the Show: The Unpopular Girl and the Secret Task [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хиори Сузуми покинула свой маленький городок и перебралась в столицу, чтобы профессионально заниматься атлетикой, ведь это её страсть и любовь всей жизни! И хотя планы были грандиозными, на деле все оказалось намного сложнее чем задумывалось. Хиори было не на что жить и не чем заплатить за свою квартиру. Но к счастью, она нашла подработку, да ещё и какую! Девушка (   Читать дальше...   )Производство: Япония / Студия Lay-duceЖанр: Повседневность, комедия, сёдзёРежиссер: Хасимото НорикоЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (Софтсаб на надписи), Русские (Софтсаб полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D80933AF187EF09CBCFB203BB8836252A876487
 ```
 
 https://mybot314.ru/tekegram_catalog/

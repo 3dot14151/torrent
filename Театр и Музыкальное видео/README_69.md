@@ -1,3 +1,172 @@
+###  Публикация: 1234848   (565558) от 08.07.2018
+
+Norah Jones - Live At Ronnie Scott's 2017 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Норы Джонс,состоявшегося 26.09.2017г в зале Ronnie Scott's Jazz Club (Лондон).Intro
+01.Sleeping Wild
+02.Don't Be Denied
+03.After the Fall(   Читать дальше...   )Производство: Eagle VisionЖанр: Jazz, Vocal JazzРежиссер: Nick WickhamАктеры: Norah Jones, Chris Thomas, Brian BladeПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE604C92A5D89B86F67464378D7EB2E94DE6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044624   (565182) от 20.08.2016
+
+Алексей Арбузов - Сказки старого Арбата (1973) DVDRip (3 части) (Ленинградский театр драмы им. А.С. Пушкина)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Спектакль в трех действиях, поставленный по одноименной пьесе А. Арбузова Ленинградским государственным академическим театром драмы имени А.С. Пушкина. Постановка Александра Александровича Музиля.
+Далекие шестидесятые - время романтических порывов, глубоких чувств и чистых помыслов. В одном из тихих уютных переулков старой Москвы живет талантливый кукольный мастер (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программ Гостелерадио СССР, Ленинградский государственный академический театр драмы имени А.С. ПушкинаЖанр: Спектакль, комедияРежиссер: Александр МузильАктеры: Бруно Фрейндлих, Юрий Толубеев, Нелли Максимова, Виктор Семеновский, Семён Сытник, Александр Борисов (I)Продолжительность: 00:57:09 + 00:44:04 + 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C688B02E0FA491C5E737D2EABF64469852334F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 813519   (565064) от 17.08.2014
+
+Три тенора в Париже. The 3 Tenors, Paris (1998) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Выступление знаменитых теноров  Хосе Каррерас, Пласидо Доминго, Лучано Паваротти в Париже в 1998 году.01. Hector Berlioz - Le Carnaval Romain (Levine, orch.)
+02. Giuseppe Pietri - Maristella - "Io conosco un giardino" (Carreras)
+03. Umberto Giordano - Fedora - "Amor ti vieta" (Domingo)
+04. Giuseppe Verdi - Luisa Miller - "Quando Lle sere al placido" (Pavarotti)(   Читать дальше...   )Жанр: Концерт, Opera, ClassicalПродолжительность: 02:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDF33797CB072B78C79CA08E71D2C0CAE64EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364122   (564934) от 16.07.2011
+
+The Eagles - Hotel California (2005) HDTV [MPEG-2/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бессмертный хит "Hotel California" из австралийского концерта "The Farewell 1 Tour" на RodLaver Arena в Мельбурне в 2005г.Жанр: Classic Rock, Country RockРежиссер: NBCАктеры: The EaglesПродолжительность: 00:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01037F6007CED346D623BB2F58C8D26C83768A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922414   (564326) от 31.07.2015
+
+Диско 80-х / Disco Of The 80's (2002) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных клипов в стиле Disco начала 80х.01 Black Box - Ride On Time
+02 Milli Vanilli - Girl You Know It's True
+03 Sydney Youngblood - If Only I Could
+04 Londonbeat - I'Ve Been Thinking About You(   Читать дальше...   )Производство: ГерманияЖанр: МузыкальныйСубтитры: нетПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3284CB5E6505DD8A0C7B48B8ADCCCF0C20E9EC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235042   (563941) от 09.07.2018
+
+Paul Rodgers - Free Spirit '2017 (2018) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления Пола Роджерса с группой товарищей,состоявшегося 28.05.2017г в зале Royal Albert Hall (Лондон).Шоу завершало британский тур Free Spirit Пола Роджерса,посвященный 50-летию создания группы Free.1. Little bit Of Love
+2. Ride On A Pony
+3. Woman
+4. Be My Friend(   Читать дальше...   )Производство: Quarto Valley RecordsЖанр: Blues Rock, Classic RockРежиссер: Paul M.GreenАктеры: Paul Rodgers & bandПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93676EF484D2764CFB9EE0A86F57A70500019097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044753   (563563) от 21.08.2016
 
 Бернард Шоу - Смуглая леди сонетов (1966) SATRip
@@ -6,7 +175,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +257,7 @@ Bon Jovi: Live at Madison Square Garden (2008) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -118,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -147,7 +316,7 @@ Lynyrd Skynyrd - One More For The Fans (2015) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -176,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +371,7 @@ Rammstein - In Amerika (2015) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -231,7 +400,7 @@ Aerosmith - Rock For The Rising Sun (2011/2013) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -260,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -289,7 +458,7 @@ Dragonforce - In The Line Of Fire ... Larger Than Live (2015) BDRip [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +487,7 @@ Cliff Richard - Still Reelin' and A-Rockin' (Live at Sydney Opera House) (2013) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560600.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +516,7 @@ Avril Lavigne - Rock N Roll (2013) HDTV [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_560052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +624,7 @@ The Michael Schenker Group - The 30th Anniversary Concert - Live in Tokyo (2010)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_558896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -539,7 +708,7 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -553,173 +722,6 @@ Chris Isaak - Видеоклипы (Best Of) (2006) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:270D7EEE9EC28C96A637428B10CC4FCC08CE2750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924477   (558871) от 03.08.2015
-
-VA - Летний марафон № 178 / Видеоклипы (Зажигательный Латинский Хит ) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (03.08.2015) поп. новинки латинской эстрады. Не пропустите, держите новые треки.1. Ale Blake ft. Hevito- Latin Heart (Official Video) (00:03:30)
-2. Alexis y Fido - Santa de mi devoción (Official Video) (00:04:27)
-3. All The Way ft. Bebe Rexha - Reykon (Official Video) (00:04:04)
-4. BB Bronx ft. Farruko - Bronx Whine (Official Video) (00:03:22)(   Читать дальше...   )Жанр: Latino, ReggaetonПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F18B824C7C3EDE7176762D09BFB5DB2F49AF980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924050   (558870) от 03.08.2015
-
-Remember the first people (Native American clips) (2015) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индейская музыка - музыка, которая используется, создается или выполняется коренными американцами в Соединенных Штатах и людьми индейцев Канады, определенно традиционной племенной музыки. В дополнение к традиционной музыке индейских групп, там теперь существуют межплеменные жанры, а также отличные индейские поджанры популярной музыки включая: скала, блюз, хип-хоп, (   Читать дальше...   )01. Blue Chip Orchestra - Ate Heye Lo [03:53]
-02. The Wings  [23:51]
-03. Big City Indians Earth Is Crying - Dry Her Tears - Earth Hour Song [05:00]
-04. Nature - Song for Mornings Stars [02:36](   Читать дальше...   )Жанр: Native American, Folk, New Age, EthnoПродолжительность: 03:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC37DB0C07469DA000B3E0464030BB70A54B608B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983626   (558449) от 12.07.2018
-
-Ария – Живой Огонь. Часть 2 (2004) 2006 Moroz Records, DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Палач (8:27)
-02. Бой Продолжается (6:30)
-03. Там Высоко (5:36)
-04. Штиль (6:45)(   Читать дальше...   )Жанр: Heavy MetalПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F49C926896027071C2DFE1460B20CF69D95697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045593   (557942) от 24.08.2016
-
-Александр Галин - Крыша (1990) SATRip (Театр-студия О. Табакова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557942.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Александра Галина.
-«Крыша» - спектакль о непростых взаимоотношениях молодых людей, роли человека в обществе, его ценности и, конечно же, о любви. И, несмотря на то, что действие происходит в 70-х годах прошлого века, обращение к вечной теме придает спектаклю вневременной характер. Студенты, живущие в общежитии, ходят на лекции, готовятся к экзаменам, (   Читать дальше...   )Производство: СССР, Театр-студия О. ТабаковаЖанр: Телеспектакль, драмаРежиссер: Олег ТабаковАктеры: Алексей Селиверстов, Сергей Шкаликов, Алексей Серебряков, Александр Мохов, Галина Чурилова, Надежда Тимохина, Марина Зудина, Сергей ГазаровПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C732F45B207866A17EC91DBE2318A4AE37ECBCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045614   (557938) от 24.08.2016
-
-Евгений Шварц - Два клёна (1974) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль, музыкальная сказка по одноименной пьесе Евгения Шварца.
-Жил-был волшебник. И решил он однажды рассказать детям сказку. Есть в этой сказке и Баба-Яга, и Василиса Прекрасная и другие сказочные персонажи. Баба-Яга, конечно, злая и коварная: забрала она детей у Василисы. И пришлось Василисе наняться к Бабе-Яге батрачить, чтобы детей своих спасти. Ни за (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Телеспектакль, сказка, экранизацияРежиссер: Юрий Дубровин (II)Актеры: Татьяна Иванова, Алексей Кожевников, Валентина Кособуцкая, Игорь Ефимов, Александр Демьяненко, Владимир Лосев, Костя ЦепкаевПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7921594AC602EDDF967334D40C646FA18CA835AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045737   (557933) от 24.08.2016
-
-Лев Толстой - Власть тьмы (2010) TVRip (БДТ им. Г. Товстоногова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пьеса "Власть тьмы или коготок увяз, всей птичке пропасть" основана на реальном случае, рассказанном графу Толстому. Это трагедия безысходности, тяжкой цепи грехов, опутывающих человека, и в то же время это путь к нравственному возрождению через покаяние. Спектакль записан в Пскове на XVII Всероссийском Пушкинском театральном фестивале в 2010 году.Производство: Россия, БДТ им. Г.А. ТовстоноговаЖанр: Спектакль, драмаРежиссер: Темур ЧхеидзеАктеры: Анатолий Петров, Татьяна Аптикеева, Нина Александрова, Полина Толстун, Дмитрий Быковский-Ромашов, Валерий Ивченко, Ируте Венгалите, Ирина Патракова, Георгий Штиль, Нина Петровская, Аэлита Шкомова, Екатерина Старателева, Евгений Чудаков, Сергей ГаличПродолжительность: 02:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF64D2A25BDAA110FDC1542C34743A6B77720F01
 ```
 
 https://mybot314.ru/tekegram_catalog/

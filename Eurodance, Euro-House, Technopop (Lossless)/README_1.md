@@ -1,3 +1,90 @@
+###  Публикация: 1491018   (913632) от 23.08.2021
+
+London Boys - Requiem – The London Boys Story (2021) 5xCD Expanded Box Set [FLAC|Lossless|image + .cue] <Eurodance, Eurobeat>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Оглядываясь назад в далекие восьмидесятые, и вспоминая то время, когда у нас не было ни компьютеров, ни видиков, ни сотовых телефонов и других современных радостей, мы с удовольствием вспоминаем одно слово - Дискотека! Для тех кто жил в 80-е годы это слово сразу навевает кучу воспоминаний и положительных эмоций. Музыкальный репертуар дискотек состоял обычно из смеси (   Читать дальше...   )CD - 1 - THE TWELVE COMMANDMENTS OF DANCE:
+01. Requiem (4:19)
+02. Kimbaley (My Ma-Mama Say) (4:18)
+03. Harlem Desire (3:49)(   Читать дальше...   )Жанр: Eurodance, EurobeatПродолжительность: 06:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8372CBDDA28D91117020D01818F33493DC2ED5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369192   (903138) от 23.03.2020
+
+Army of Lovers - Master Series (1997) [FLAC|Lossless|image + .cue] < Disco, Euro House, Synth-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Crucified (03:34)
+02. Ride the Bullet (1991 remix) (03:30)
+03. My Army of Lovers (03:29)
+04. Obsession (03:44)(   Читать дальше...   )Жанр: Disco, Euro House, Synth-popПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B92A14B03EADFEA8B8595E0EFC3724226BEB09B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099678   (902952) от 02.02.2017
+
+Sandra - Reflections (2006) Compilation [FLAC|Lossless|image + .cue] <Europop, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Around My Heart (3:23)
+ 02. Stop For A Minute (3:46)
+ 03. Hi! Hi! Hi! (4:17)
+ 04. Maria Magdalena (3:57)(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF2D42C4EFEF6D95ED525FA93FC4B9A7193FD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998486   (870070) от 19.03.2016
 
 Captain Jack - The Captain's Revenge (1999) [FLAC|Lossless|tracks] <Electronic, Euro House>
@@ -6,7 +93,7 @@ Captain Jack - The Captain's Revenge (1999) [FLAC|Lossless|tracks] <Electronic, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +122,7 @@ DJ BoBo - Pirates Of Dance (2004) [FLAC|Lossless|tracks + .cue] <Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Q-Pow! - We're Only Here For The Party! (2000) [FLAC|Lossless|tracks] <Electroni
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +238,7 @@ Boney M. - Ultimate 2.0 (2011) [FLAC|Lossless]<Disco, Euro-Pop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +268,7 @@ VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +297,7 @@ Pet Shop Boys - Pandemonium (2010) [FLAC|Lossless]<SynthPop>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -239,7 +326,7 @@ ATB - THE DJ EP (VOL. 01) (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, Elec
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +355,7 @@ Cerrone - X-XEX (1993) [FLAC|Lossless|image + .cue] <House, Ambient>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +384,7 @@ Captain Hollywood Project - Love Is Not Sex (1993) [FLAC|Lossless|tracks + .cue]
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +413,7 @@ A-Teens - The ABBA Generation (1999) [FLAC|Lossless|image + .cue] <Pop, Europop,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -355,7 +442,7 @@ VA - NRJ Hit Music Only [3CD] (2016) [FLAC|Lossless|tracks] <Pop, RnB, Indie>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -384,7 +471,7 @@ E-Type - Russian Lullaby (1998) [FLAC|Lossless|image + .cue] <Eurodance, Euro-Ho
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -413,7 +500,7 @@ Leila K. - Carousel (1993) [FLAC|Lossless|image + .cue] <Euro-House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -442,7 +529,7 @@ Madonna - The Complete Studio Albums (1983-2008) Box Set, 11CD, 2012, Warner Bro
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -468,7 +555,7 @@ VA - Суперхиты дискотеки 90-х... продолжение (2011
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -497,7 +584,7 @@ Aqua - Millenium Hits (2000) [FLAC|Lossless|image + .cue] <Europop, Euro House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +613,7 @@ VA - Dream Dance Vol. 92 (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +642,7 @@ Black - Wonderful Life (2013) Expanded Edition, 2CD [FLAC|image + .cue]<Pop, Syn
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_730137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +671,7 @@ Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synt
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +700,7 @@ VA - Different Shades Of Savage (2011) 2CD [APE|Lossless]<Italo-Disco, Synth-pop
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -648,7 +735,7 @@ VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -662,93 +749,6 @@ VA - Eurodance Master (Rare & Unreleased tracks from Axel Breitung) (2008) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26B39BC89DD2C7EDE3754663EE119DA0B4BB0238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149705   (656743) от 19.05.2018
-
-Robin Cook - Land Of Sunshine (1997) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01.31)
-02. Cuba (03.04)
-03. I Won't Let The Sun Go Down (03.05)
-04. Kalimba De Luna (04.18)(   Читать дальше...   )Жанр: Eurodance, Euro HouseПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BDEB213A78F3B9CC74F0678395B49292E687C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540344   (653904) от 29.03.2022
-
-O-Zone - DiscO-Zone (2004) [FLAC|Lossless|tracks + .cue] <Europop, Euro-House, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiesta De La Noche
-02. De Ce Plang Chitarele
-03. Dragostea Din Tei
-04. Printe Nori(   Читать дальше...   )Жанр: Europop, Euro-House, DanceПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE163C9CA429A051BA6B95D0BEA8305FA72EE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291780   (652414) от 26.03.2019
-
-Alex Christensen & The Berlin Orchestra - Classical 90s Dance 2 (2018) [FLAC|Lossless|tracks + .cue] <Eurodance, Neo-Classical, Ambient>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue (feat. Bars And Melody) (3:58)
-02. Around The World (feat. Melanie C) (3:30)
-03. Another Night (feat. Anastacia) (3:21)
-04. Because I Love You (feat. Pietro Lombardi) (4:07)(   Читать дальше...   )Жанр: Eurodance, Neo-Classical, AmbientПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DDE50DAB476E72C7F355DBFACDD32E325E407C
 ```
 
 https://mybot314.ru/tekegram_catalog/

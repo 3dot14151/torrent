@@ -1,3 +1,245 @@
+###  Публикация: 1563266   (212486) от 16.07.2022
+
+MiniOS Maximum 11.4.0
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+MiniOS - портативный модульный дистрибутив Linux на базе Debian, собранный с помощью скриптов minios-live, основной целью которого является предоставить пользователю полноценную, комфортную рабочую среду для работы, развлечений и творчества в любом месте и на любом x86-совместимом оборудовании, сохраняя ваши личные данные на съёмном носителе информации.
+Maximum - (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B0935225FD773B58AB81E754FD36145C2045FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564861   (212267) от 23.07.2022
+
+Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+21 апреля 2022 вышел релиз Kubuntu 22.04 Jammy Jellyfish (Медуза Джимми). Поддержка этого релиза с долгосрочным сроком поддержки (Long Time Release) релиз будет поддерживаться до апреля 2027 года.
+Проект является частью проекта Ubuntu и использует его основу. Есть возможность установить как графическое окружение KDE (пакет kubuntu-desktop), так и окружение GNOME (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECED065042115825725E081C81084DA29FA7802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567661   (211179) от 04.08.2022
+
+Slax 15.0 [amd64] 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Slax это миниатюрный дистрибутив, базирующийся на Slackware. Данный дистрибутив не требует инсталляции на жесткий диск, загружается со сменных носителей (таких как USB flash drive или CDROM). В качестве одной из функций дистрибутива предусмотрена работа из оперативной памяти компьютера (то есть он загружается в память и освобождает носитель с которого был загружен). (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC24980799ACF7FD0BFC1306134A6CACEAA3276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644968   (209558) от 07.07.2023
+
+Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4740446D3A15490C24EF93638999F8C13BF071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644814   (209553) от 07.07.2023
+
+Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644963   (209548) от 07.07.2023
+
+Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B12F04F91AB64BD712D1B67D022713BD3DA0B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644973   (209544) от 07.07.2023
+
+Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1562D6956EF3AE0A78D21AF1EC76A11A0154EC86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644821   (209511) от 07.07.2023
+
+Ubuntu*Pack 20.04 Unity (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C8A43F39B82031978C40166A716E3CF1EE400B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644990   (209497) от 07.07.2023
+
+Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF0D02C96E820BCDF8675ED824B9535B3EAA8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644983   (209480) от 07.07.2023
 
 Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
@@ -6,7 +248,7 @@ Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -33,7 +275,7 @@ Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -60,7 +302,7 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -86,7 +328,7 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -112,7 +354,7 @@ Zorin OS 18 Pro 18.0 [X86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -140,7 +382,7 @@ Kali Linux 2022.3 [amd64, i386, arm] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +408,7 @@ MxUntu 20.04 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -195,7 +437,7 @@ Openmediavault (Shaitan) 6.0.24 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -223,7 +465,7 @@ Ubuntu*Pack 22.04 (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -250,7 +492,7 @@ Ubuntu*Pack 22.04 Cinnamon (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -277,7 +519,7 @@ Ubuntu*Pack 22.04 Budgie (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -304,7 +546,7 @@ TrueNAS SCALE 22.12.2 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -331,7 +573,7 @@ Fedora 38 Workstation Server Spins [x86_64] 12xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -358,7 +600,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -386,7 +628,7 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -412,7 +654,7 @@ Debian Edu - Skolelinux 11.7.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199068.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +680,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -451,247 +693,6 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30F4B7C031AE4BA0898745F13236BA12E52B341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634115   (198317) от 18.05.2023
-
-Rider 2023.1.2 [x64] (tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rider — это кросс-платформенная IDE для .NET-разработчиков, основанная на платформе IntelliJ и ReSharper.
-Rider поддерживает .NET Framework, новую платформу .NET Core и проекты на основе Mono. IDE позволяет разрабатывать десктопные приложения, .NET-сервисы и библиотеки, игры на движке Unity, мобильные приложения Xamarin, веб-приложения ASP.NET и ASP.NET Core.
-Rider (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494E7EE5FF65F714C943EB8E449EB4938B52BD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633608   (198312) от 16.05.2023
-
-BricsCAD Ultimate 23.2.04-1 [x64] (rpm,deb,tar.gz)
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение BricsCAD Ultimate - наиболее универсальное и функциональное решение в ассортименте фирмы, которое обеспечивает комплексный подход к проектированию на все этапах - от создания чертежей до контроля выполнения работ, а также внушительные возможности для конструкторской деятельности в сфере машиностроения.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AB036053F5856CFE289E195D884DF6DE9E8573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635065   (197950) от 24.05.2023
-
-UncomOS 2023.03.13-desktop [x64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для жизни, работы и не только!!! Операционная система, сочетающая свободу открытых систем с безопасностью корпоративных решений!!!
-Uncom OS — операционная система для компьютеров разных типов, от маленьких ноутбуков до рабочих станций c высокой мощностью!!!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98480C85897EB96820784EADD31AE61917F5104B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637495   (197492) от 04.06.2023
-
-OpenVMS 9.2 [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197492.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenVMS (англ. Open Virtual Memory System, или просто VMS) — проприетарная серверная операционная система, разработанная во второй половине 1970-х годов компанией Digital Equipment Corporation для серии компьютеров VAX. Позже портирована на платформы DEC Alpha, Intel Itanium и Intel x86. В августе 2014 года выкуплена у компании Hewlett-Packard и полностью принадлежит (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180B6565999E79085109B281B64CC9972BDC0C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638405   (197285) от 08.06.2023
-
-openSUSE Leap 15.5 [x86_64] 4xDVD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197285.jpg" />
-</div>
-
-
-###  Подробнее
-
-openSUSE — это стабильный, легкий в использовании и законченный многоцелевой Linux дистрибутив.
-Его могут использовать обычные пользователи и разработчики на своих рабочих станциях и серверах. Этот дистрибутив отлично подходит начинающим пользователям, опытным пользователям и гуру. Последний релиз, openSUSE 15.5, имеет много новых возможностей, а так же обновления (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE6652A22A181B7AE7FDCF2F7C9E4631D332FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638477   (197230) от 09.06.2023
-
-Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat опубликовала релиз дистрибутива Red Hat Enterprise Linux 9.2. Готовые установочные образы доступны для зарегистрированных пользователей Red Hat Customer Portal (для оценки функциональности также можно использовать iso-образы CentOS Stream 9 и бесплатные сборки RHEL для разработчиков). Выпуск сформирован для архитектур x86_64. Исходные тексты rpm-пакетов (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645000   (196087) от 07.07.2023
-
-Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B5D53AE5EBD66D4BFEAA5FB42CE1FAB84B1F964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645166   (196048) от 08.07.2023
-
-Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537A6C6EBCA7022AC37F88B59023680E045BB064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645170   (196030) от 08.07.2023
-
-Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7284B450A1A2FA9CDC3A8F4158824950E91394D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1284554   (727418) от 22.02.2019
+
+Невероятные изобретения / Wicked Inventions (2017) HDTVRip [H.264/1080p-LQ] (сезон 2, выпуски 30 из 30)
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Гонка вооружений и освоение космоса привели к созданию множества замечательных вещей. Мы пользуемся ими каждый день, не подозревая об их удивительном происхождении. В сериале "Невероятные изобретения" мы постараемся приоткрыть тайны науки и разгадать загадки прошлого, чтобы познакомиться с удивительной историей всем нам известных предметов. В каждом выпуске (   Читать дальше...   )Производство: Великобритания, Like a Shot Entertainment, Defenition Media LtdЖанр: Документальный, технологии, инновации, дизайнРежиссер: Джэймс ФловерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947A7D9B807F7EDC968B75CAB37930A3EBD5A7C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128591   (727323) от 25.04.2017
+
+National Geographic. Больше чем фокусы с Ди Эм Си / Beyond Magic With DMC (2014) HDTVRip (7 серий из 7)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Откройте призрачное царство магии - от экстрасенсорного восприятия до левитации - в передаче «Больше чем фокусы с Ди Эм Си». Ведущий-маг Драммонд Мани-Каутс своими захватывающими фокусамипокоряет умы зрителей на улицах Лондона, Парижа, Барселоны, Мехико и Сингапура. Вдохновлённый блестящими умами таких великих мастеров как Гудини, прославленного своими сенсационными (   Читать дальше...   )Телекомпания: США, Windfall Films. LTD & National Geographic ChannelsЖанр: Документальный, познавательныйПеревод: ДублированныйПродолжительность: 7 x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128009   (727316) от 25.04.2017
 
 BBC: Тайны вселенной: Великие ученые своими словами / Secrets Of The Universe: Great Scientists In Their Own Words (2014) HDTVRip [H.264]
@@ -6,7 +58,7 @@ BBC: Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ National Geographic. Больше чем фокусы с Ди Эм Си / Beyond
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Гибель Викингов / Viking Apocalypse (2011) SATRip
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ NG. Реальность или фантастика? Корабли-призр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ Nat Geo Wild: Амазонская электрическая рыба / Amazon'
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG. Научные глупости / Science of stupid (2019) HDTVRip (сезо
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724509.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ BBC. Вся правда об акулах / Shark (2015) BDRip [H.264/1080p] (�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ NG: Пчелы-Убийцы / Killer Bees (200?) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +374,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +400,7 @@ BBC. Horizon. Откуда берутся гении? / Horizon. What Makes a Ge
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +426,7 @@ NG. Взгляд изнутри: Секреты зоны 51 / Area 51 Declassifi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +452,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +478,7 @@ NGW: Ягуары против крокодилов / Jaguar vs. Croc (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ NGW: Смертоносная Африка. Рифы / Africa's Deadly Kingdom (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ History Channel: Жизнь и смерть в Древнем Риме / Life an
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ Discovery. Недружелюбная вселенная / Bad Universe (2010) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +634,7 @@ Discovery. Экстремальные боевые искусства / XMA: Xtr
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +660,7 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +671,6 @@ NGW: Дикая зима / Wild winter (2016) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496F193E1726E9735C7EE62206B141A24C09EC17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218619   (721542) от 10.04.2018
-
-NGW: Неукротимая Южная Америка / South America Untamed (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история жизни на лезвии бритвы, которую ведут животные, обитающие в огромной горной системе, протянувшейся вдоль всего южноамериканского континента.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс БирнПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F87F10D6037D03CF0F5845E6E981E077B3A576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218651   (721524) от 10.04.2018
-
-NGW: Последние дьяволы / Last Devils (2016) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721524.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отдалённом уголке отдалённого острова живут невероятные и легендарные сумчатые животные - тасманийские дьяволы. Коренные народы из уст в уста передают истории о некогда красивом, подобно пантере, животном, которое было проклято и превратилось в злобное животное с огромной пастью и острыми клыками, которое получило название "Тераба", что переводится как (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, фаунаРежиссер: Йен МаршПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7001FF41D2F72F77DFAE53DD42E4208C6D9D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

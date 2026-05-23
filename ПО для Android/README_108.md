@@ -1,3 +1,81 @@
+###  Публикация: 1665442   (114553) от 03.03.2024
+
+Посылки v2.3.11 Mod by Timozhai [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Отслеживайте все ваши посылки с Алиэкспресс, eBay, Joom, Pandao, GearBest, Banggood, Wiggle, ASOS, Chain Reaction Cycles и других интернет магазинов. Отслеживает S.F. Express, YunExpress и другие службы доставки с Joom и Pandao. Импортируйте посылки напрямую из магазинов Aliexpress, Joom, eBay, Wish, Pandao! Больше не нужно вводить трек номера вручную, посылки импортируются (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 27.02.2024Разработчик: ParcelsAppПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8E51B45B13C1B1FAEA30E2D5D4DA06F89D241B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704173   (114508) от 03.03.2024
+
+Assistive Volume Button v0.9.4 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Небольшое приложение для создания наэкранных виртуальных кнопок громкости. Позволяет подробно настраивать внешний вид создаваемого наложения. Поддерживает виртуализацию кнопки питания (на Андроид 9.0+). Позволяет создавать определённые наложение под отдельные приложения.Тип издания: PremiumРелиз состоялся: 03.03.2024Разработчик: mCreationsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7048788ABBE2084DFE13F75EADB21D5973DB0894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689308   (114384) от 04.03.2024
+
+Grab Photos From Videos / Фото из видео v11.1.5 Mod by Mixroot [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Извлекайте фотографии из ваших видео. Просто импортируйте видео со своего устройства, и вы можете либо запечатлеть кадр из видео в определенной позиции, либо сделать ряд фотографий из ваших видео. Установите начальный и конечный диапазон видео, а также количество кадров, которые вы хотите извлечь. Все изображения из видео будут сохранены на вашем телефоне. Разрешение (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 03.03.2024Разработчик: GreenBizkitПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D259CE8685F714C2B61F6A86D3C967DE192412D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704740   (114207) от 05.03.2024
 
 Таблица Менделеева 2024 PRO v3.2.9 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +137,7 @@ ToonMe v0.7.1 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +163,7 @@ Moon+ Reader Pro v9.2 b902001 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +189,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.6.52 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +215,7 @@ Strava: бег, велоезда, хайкинг v350.7 Mod by ReVanced Team [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +241,7 @@ Simply Piano: Learn Piano Fast v7.24 Mod by youarefinished [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Strava: бег, велоезда, хайкинг v351.15 Mod by ReVanced Team [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113189.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +293,7 @@ KineMaster - Video Editor & Maker v7.4.4.32358.GP Mod by AppKaMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Auto blur: Авторазмытие v2.6.7 Mod by Dymonyxx [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +397,7 @@ Background Video Recorder Pro v10.0.31 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +423,7 @@ AirBrush: ИИ Фоторедактор v6.3.3 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +449,7 @@ DailyRoads Voyager v8.1.1 (54) Mod by Eco19 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +475,7 @@ VivaVideo Video Editor v9.15.0 Mod by maxi123444 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +501,7 @@ OfficeSuite Pro + PDF v14.4.51651 Extra Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +527,7 @@ CalyxVPN 1.3.0RC1 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +554,7 @@ Photo Studio PRO 2.7.3.2445 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111740.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +580,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by Balatan [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +606,7 @@ Adobe Lightroom - Фоторедактор 9.2.2 (ARM64) Mod by frost_ua [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +632,7 @@ Adobe Lightroom - Фоторедактор 8.2.3 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +658,7 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,84 +669,6 @@ DailyArt - Daily Dose of Art v3.2.3 Mod by youarefinished [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0DBE6DC39143AD78950CA4D357F753B5B413B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715751   (111480) от 13.04.2024
-
-СССР Радио - Советские песни v2.1 Mod by Dymonyxx [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радио СССР - это уникальное приложение, которое дает возможность насладиться лучшей музыкой прошлых десятилетий. Здесь вы найдете советские хиты и любимые песни, которые звучали на радио во времена Советского Союза. В приложении радио СССР вы найдете множество музыкальных ретро композиций, которые прославились благодаря своей необычной атмосфере и глубокому смыслу. (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 10.04.2024Разработчик: Nuix GlobalПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:784BE6C9702317CD62711242861EFE3E2CACAE27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715744   (111479) от 13.04.2024
-
-Stickman: рисовать мультики v5.2s Mod by HexonMods [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stickman: рисовать мультики, создать мультик. Как сделать мультик? Нарисуй его сам! Сделай несколько кадров и они оживут на твоём экране. Сделай мультфильм своими руками: рисовать мультфильмы поэтапно легко! Используй приложение для рисования, чтобы создать несколько кадров и анимировать их в собственный мультфильм. Рисуем мультик поэтапно: рисование и анимация комиксов (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.04.2024Разработчик: Appache Tools: easy to useПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E7636589CD8CCE9C28A3D088608D1733A951A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715839   (111473) от 13.04.2024
-
-PdfX 1.0.8 Mod by vadj [En/Es]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111473.jpg" />
-</div>
-
-
-###  Подробнее
-
-PdfX - это новое приложение, которое позволяет конвертировать PDF файлы в различные форматы, редактировать PDF, разделять PDF, комбинировать PDF и многое другое! Вы можете загрузить любой документ в формате PDF и никаких технических знаний не потребуется! Приложение автоматически преобразует его содержимое в желаемый формат.Тип издания: AdFreeРелиз состоялся: 15.08.2023Разработчик: Ipsilon Developments IncПоддерживаемая ОС: Android 5.1+Язык интерфейса: Английский и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F15BFEB7F22D8CBABA3C0C2D1B05A433EC15DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

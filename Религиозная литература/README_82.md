@@ -1,3 +1,115 @@
+###  Публикация: 1420310   (333996) от 31.10.2020
+
+Диакон Георгий Малков, Пётр Малков | У пещер «Богом зданных». Псково-Печерские подвижники благочестия ХХ века (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Псково-Печерский монастырь известен каждому православному человеку. Многие, посетив обитель однажды, вновь и вновь стремятся в ней побывать. Сюда людей привлекает живописный уголок Псковской земли, непрекращающаяся с самого открытия монастыря молитва, а главное, истинные подвижники, чьи имена и труды прославили древнюю обитель.
+
+Наставления Псково-Печерских старцев, (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26EEC8B4BA5DBEEB751AEA6B68025E25283E6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419376   (333984) от 31.10.2020
+
+Т. Рарова (сост.) | Война и вера (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Книга «Война и вера» состоит из реальных историй времён всех войн ХХ и начала XXI столетий. Каждый рассказ являет чудо, как свершившийся факт, даёт убедиться, что невозможное возможно.
+
+Для удобства чтения сборник разделён на восемь частей, соответствующих разным темам: о непобедимости Креста, о силе веры, о защите неправедно осуждённых, о помощи Господа, Пресвятой (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B88EDCA67D3EB2DD4A9BAA00863F6D1086548A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420138   (333903) от 31.10.2020
+
+Иван Ильин | Россия. Путь к возрождению (2017) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представляем вам издание трудов известного русского философа, писателя и публициста Ивана Александровича Ильина (1883–1954), посвящённых извечным темам поиска пути духовного, нравственного обновления и возрождения. «Задача моей книги – указать на этот путь и утвердить его верность» – так сам философ определил цель своей книги.
+
+Это издание – великолепный подарок (   Читать дальше...   )Жанр: Православие. ФилософияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1541163CCE83712690B8A249F169540BDF26585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331215   (333546) от 14.10.2019
+
+Преподобный Серафим Саровский | Духовные наставления и пророчества (2018) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Серафим — русский «учительный старец», через затвор и «умное» молитвенное делание обретший дар прозорливости и способности духовного врачевания душ человеческих. В книге собраны духовные наставления и пророчества особенно почитаемого на Руси святого.
+
+«Излишнее попечение о вещах житейских свойственно человеку неверующему и малодушному. И горе нам, если (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAE893F9B14FB8973E2CD163FCCF45022E84B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420446   (332603) от 01.11.2020
 
 Благовест (изд.) | Покаяние очищает душу. По творениям святителя Филарета Московского (2016) [FB2, EPUB]
@@ -6,7 +118,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322032.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -561,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -572,110 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C4ADB7325CA6ED8D9563568A4543719CA5C73F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181949   (322025) от 08.11.2017
-
-Архимандрит Августин (Никитин) (сост.) | Католицизм как фактор формирования российской государственности и культуры [Антология] (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322025.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге отражены воззрения на католицизм российских авторов, а именно взгляды и дискуссии по поводу возникновения, существования, места и роли католицизма в развитии европейской цивилизации. Анализируются догматические различия православного и католического богословия, причины разделения Церквей. Широко представлена полемика западников и славянофилов как в контексте (   Читать дальше...   )Жанр: Сборник статейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6B3CF93E27ED472EB2A37FB9C873F841680CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181946   (322019) от 08.11.2017
-
-М.Ю. Смирнов (сост.) | Протестантизм как фактор формирования российской государственности и культуры [Антология] (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322019.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге отражены воззрения на протестантизм в России, а именно взгляды и дискуссии по поводу возникновения, существования, места и роли протестантских сообществ в нашей стране, принадлежащие непротестантским авторам. В Антологии представлены полемические сочинения и исследовательские труды отечественных конфессиональных и светских авторов в широком хронологическом (   Читать дальше...   )Жанр: Сборник статейФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3C0B2269B898FA5D6C81EA0B80F496C33E9FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181704   (321920) от 08.11.2017
-
-Н. С. Гордиенко | Введение христианства на Руси: домыслы буржуазно-клерикальной пропаганды (1987) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра посвящена опровержению буржуазно-клерикальной фальсификации предпосылок, обстоятельств и последствий введения христианства на Руси. В ней разоблачаются попытки антикоммунистических сил Запада использовать предстоящий чисто церковный юбилей — 1000-летие русского православия в политически реакционных и идеологически диверсионных целях: для дискредитации Великой (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E70BF7771F632B56B82B515CC18CF60460E510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957605   (321499) от 22.11.2015
-
-Н.Н. Поташинская (сост.) | Революция в церкви? (Теология освобождения): Документы и материалы (1990) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - попытка последовательно и беспристрастно - языком документов - рассказать о таком заметном течении в современном христианстве, как теология освобождения. Это сложное комплексное движение играет сегодня серьезную роль как внутри католической церкви, так и в международных отношениях. Сегодня, в эпоху распространения идей нового политического мышления на (   Читать дальше...   )Жанр: История, ДокументыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A8E87490EBF50FC00BE770CB4E232AF2B83BFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

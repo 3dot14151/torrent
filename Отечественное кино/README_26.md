@@ -1,3 +1,109 @@
+###  Публикация: 607343   (994345) от 23.01.2013
+
+Всё просто (2012) [H.264] DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Надя из Питера, учится в Лондоне. Родители создают возможность жить без особых забот и хлопот. Молодой человек Женя работает в Москве в крупной компании и подает большие надежды. Одно расстройство — из-за перспективной работы Женя переехал в Москву, а Надя осталась в Лондоне. 3000 километров — слишком далеко. И Надя решает сделать Жене сюрприз — приехать в гости без предупреждения. В итоге, сюрпризы ожидают не только Женю, но и Надю.Жанр: Мелодрама, КомедияРежиссер: Соня КарпунинаАктеры: Соня Карпунина, Агния Кузнецова, Клим Шипенко, Константин Крюков, Александр Яценко, Артем Быстров, Любовь Толкалина, Михаил Бабичев, Александр Самойленко, Донатас ГрудовичПеревод: Не требуетсяПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E83DDAE09F5DF1BE007866C4BD219AC01EF7D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607721   (993873) от 24.01.2013
+
+День учителя (2012) [H.264] DVDRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни типичного персонажа российской истории, «маленького человека» — учителя русского языка и литературы в школе. Интеллигент и его проблемы в начале XXI века. Один день из жизни страны, которая когда-то любила Есенина. О том, что у неё еще есть надежда…Жанр: ДрамаРежиссер: Сергей МокрицкийАктеры: Анатолий Кот, Светлана Немоляева, Ирина Рахманова, Людмила Титова, Андрей Бильжо, Алла ЮгановаПеревод: Не требуетсяПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87213BBB6A1F04EB3AEA15BD0BD39D1FC99655E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608337   (993399) от 25.01.2013
+
+Петрович (2012) DVB
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Галина живет в деревне и работает бригадиром на местном тарном заводе. За крутой нрав и привычку носить мужские вещи деревенские не без некоторой опаски называют ее Петровичем. И не напрасно — Галя не дает спуску ни рабочим, ни даже представителям администрации.
+
+Однажды в деревню приезжает художник-немец, которого на постой определяют как раз в дом Галины. И тут (   Читать дальше...   )Производство: Россия, МедиапрофсоюзЖанр: МелодрамаРежиссер: Андрей КрасавинАктеры: Анна Уколова, Дмитрий Фрид, Анастасия Боброва, Сергей Журавель, Сергей ВласовПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24161015E10D362380267FE6DA4C09BCC3853437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608096   (993384) от 25.01.2013
+
+День учителя (2012) DVD5
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Один день из жизни типичного персонажа российской истории, «маленького человека» — учителя русского языка и литературы в школе. Интеллигент и его проблемы в начале XXI века. Один день из жизни страны, которая когда-то любила Есенина. О том, что у неё еще есть надежда…Производство: Россия, Новые людиЖанр: ДрамаРежиссер: Сергей МокрицкийАктеры: Анатолий Кот, Светлана Немоляева, Ирина Рахманова, Людмила Титова, Андрей Бильжо, Алла ЮгановаПеревод: Не требуетсяЯзык субтитров: АнглийскийПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608552   (993238) от 25.01.2013
 
 С новым годом, мамы! (2012) BDRip
@@ -6,7 +112,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -194,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -220,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991663.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -327,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991463.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990552.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,110 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93BFBF6E57DEF15BE9EF00C0D3C483B6053D7630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611270   (988855) от 30.01.2013
-
-Джунгли (2012) [H.264] BDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988855.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Сергея и Марины в семейной жизни наступил кризис. Во время одной из ссор, они решают поехать в экзотическое путешествие. Всю дорогу между супругами не утихают ссоры, которые в конце концов приводят к тому, что они оказываются на необитаемом острове, затерянном в океане. Вместо того чтобы вместе бороться за выживание, наши герои продолжают выяснять отношения, постепенно (   Читать дальше...   )Производство: Кинокомпания CTBЖанр: Мелодрама, Комедия, ПриключенияРежиссер: Александр ВойтинскийПеревод: Субтитры: ОтсутствуютФормат: MKVПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B63B935BF9962CF66BF496C1288213B72BCD904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609332   (988795) от 30.01.2013
-
-Джунгли (2012) [1080p] Blu-ray [3D/2D]
-
->>Отечественное кино
->>Отечественные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джунгли!.. Но разве только в настоящих зеленых джунглях легко заблудиться? Современный мегаполис - вот страшные дебри, полные одиноких, потерянных душ... Но Марине и Сергею повезло. Им все-таки удалось найти друг друга, но они снова почти потерялись в пучине серых семейных будней... Хорошо, что при желании можно найти альтернативу разводу. Сергей и Марина решают (   Читать дальше...   )Жанр: Комедия, мелодрама, приключенияРежиссер: Александр ВойтинскийАктеры: Сергей Светлаков, Вера Брежнева, Александр Макогон, Александр Половцев, Марина Дюжева, Михаил Ефремов, Ирина Медведева, Ампорн Панкраток, Соонтри Кхумжулла, Сомсак ПадугаСубтитры: нетПродолжительность: 01:23:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609923   (988789) от 30.01.2013
-
-Джунгли (2012) BDRip [1080p] [Вертикальная анаморфная стереопара 3D]
-
->>Отечественное кино
->>Отечественные Фильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988789.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Сергея и Марины в семейной жизни наступил кризис. Во время одной из ссор, они решают поехать в экзотическое путешествие. Всю дорогу между супругами не утихают ссоры, которые в конце концов приводят к тому, что они оказываются на необитаемом острове, затерянном в океане. Вместо того чтобы вместе бороться за выживание, наши герои продолжают выяснять отношения, постепенно (   Читать дальше...   )Жанр: Мелодрама, Комедия, ПриключенияРежиссер: Александр ВойтинскийАктеры: Сергей Светлаков,  Вера Брежнева,  Александр Макогон,  Александр Половцев,  Марина Дюжева,  Михаил Ефремов,  Ирина Медведева,  Ампорн Панкраток,  Соонтри Кхумжулла,  Сомсак ПадугаПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 433314   (988775) от 08.01.2012
-
-Сухие и мокрые (1993) VHSRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988775.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сухие и мокрые" - пародия на заполонившие в это время страну бразильские и мексиканские телесериалы, тягучие, сладкие и влажные, как тянучка. Авторы сценария экономили на диалогах, как домохозяйки на порошковом соке, четыре слова варьировались в различных сочетаниях и этого весьма скромного минимума давало пищу обсуждениям и разговорам минимум на неделю. (   Читать дальше...   )Производство: РоссияЖанр: Комедия, ПародияРежиссер: Юрий ПесьяковАктеры: Николай Фоменко, Алексей Мурашов, Андрей ЗаблудовскийПеревод: Не требуетсяСубтитры: ОтсутствуютПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

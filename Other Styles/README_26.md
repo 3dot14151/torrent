@@ -1,3 +1,206 @@
+###  Публикация: 1099714   (903278) от 02.02.2017
+
+Medwyn Goodall - Echoes of Emergence (1987) Reissue 2017 / MG Music Ltd [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. A Misty Morning Across the Water (05:48)
+02. Drifting (05:09)
+03. Lonely Shore (05:21)
+04. On a Mountain (05:49)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87D4FAB4AE9BAB849CD701E628E63D143B5C524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099710   (903264) от 02.02.2017
+
+Paul Sills - Electric Storm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Kinetic (08:34)
+02. Horizons (05:02)
+03. Static Rain (06:06)
+04. Solar (05:45)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F240EC9AEB11C50969CE06C7169F56C0441CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992168   (902692) от 01.03.2016
+
+VA - Impressions Of Native America (2001) [MP3|320 кб/с] <Native american, Ethnic, Folk, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Ellis Island - Mother Earth Round Dance (5:45)
+02. Western Voices - The Calling (3:27)
+03. Cyberland - Circle Round The Sun (4:43)
+04. Cyberland - Explora (4:06)(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, New AgeПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A0D7B76AF46319855F0B92CA8F6099032A9F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991929   (902336) от 01.03.2016
+
+VA - Romantic Collection - Aria & Mystique (2000) 2CD [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+1. Aria Arianna (05:04)
+2. Anitime Anywere (03:17)
+3. Ave Maria (03:51)
+4. L' Amour Est Un Oiseau Rebelle ''Carmen'' (02:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C45682BA02C4D3D020419C516CD5DE726D0EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369447   (901708) от 24.03.2020
+
+VA - Ethnic Music...indians, Dreams, Visions (2012) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Nazca - Mother Earth
+02. Nazca; Wayra Rodriguez - Vision
+03. Nazca; Wayra Rodriguez - Circle of Friendship
+04. Indians - Sunrise(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33643B10116402B9943898F98A22BDED8702A3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099985   (901581) от 03.02.2017
+
+Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Rising Oceans 06:20
+02. Aquata 07:31
+03. Song of Frogs 05:12
+04. Call from the Forest 06:05(   Читать дальше...   )Жанр: Ambient, Downtempo, RelaxationПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC559B99538010E53478CBF9F7B3DC3C8DB4AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100093   (901482) от 03.02.2017
+
+VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Cry Me a River
+02. Olivia Keast - Every Breath You Take
+03. Ginnie - I Can't Make You Love Me - Acoustic Version
+04. Hannah Dorman - Hurts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100007   (901397) от 03.02.2017
 
 Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +209,7 @@ Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Ешь богатых / Eat the Rich (1987) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Vicente Amigo - Apasionadas Cuerdas del Alma (2015) [FLAC|Lossless|image + .cue]
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -93,7 +296,7 @@ John Carpenter - Lost Themes (Deluxe) (2015) [FLAC|Lossless|WEB-DL]<Soundtrack, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigma
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899532.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -180,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899486.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -206,7 +409,7 @@ Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -235,7 +438,7 @@ Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -264,7 +467,7 @@ VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, tr
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -290,7 +493,7 @@ Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +551,7 @@ Lesiem - 5 альбомов (2000 - 2005) [FLAC|Lossless|tracks + .cue] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +580,7 @@ Phaedrus - Gravity, Vol. 1 (2007) [MP3|192 Kbps] <New Age, Enigmatic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -406,7 +609,7 @@ Enigma - 7 Albums, 2 Compilations (1990 - 2008) [FLAС|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -435,7 +638,7 @@ VA - 69 Must Have Chillout & Lounge Songs (2013) [MP3|320 кб/с]<Downtempo, Ch
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -461,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -490,7 +693,7 @@ Wikluh Sky - Сербский фильм / A Serbian Film (2010) [MP3|320 kbps] 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +722,7 @@ VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossles
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,209 +736,6 @@ VA - Straight Outta Compton (Music From The Motion Picture) (2016) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED0CB509EDDCC05C1303A4632CA9EEF3F5C1D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993172   (895189) от 05.03.2016
-
-Trio Mandili - With Love (2015) [MP3|320 кб/с] <Ethnic / Georgian Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apareka (2:38)
-02. Qrizantemebi (The chrysanthemums) (2:55)
-03. Dililme (2:46)
-04. Qalo (The Women) (2:38)(   Читать дальше...   )Жанр: Ethnic / Georgian FolkПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71B917F084ED4B35C7D4F35D5F3300DA7C53CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100094   (894629) от 07.02.2017
-
-Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Un Max De Croco
-2. La Boetie Stochastic Process
-3. 100 % Babines, Pur Molossoïde!
-4. A La Zheuleuleu(   Читать дальше...   )Жанр: Instrumental Avant-garde Metal, Electronic, ExperimentalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101514   (894440) от 07.02.2017
-
-VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Bad Moon Rising
-02. Polygon Window - UT1 - Dot
-03. Shonen Knife - Ah Singapore
-04. DJ Krush - Yeah(   Читать дальше...   )Жанр: Unofficial SoundtrackПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F4C100B5900CABAAE9C6280FDDAD3AF7EFC1C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993880   (893979) от 06.03.2016
-
-Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Egypt Prologue (02:39)
-02. Bek And Zaya (00:45)
-03. Market Chase (00:29)
-04. Coronation (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B662776492F8B395285C708CC8A9F9F1D3C283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993977   (893973) от 06.03.2016
-
-Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Go. Loslassen
-02. Mindfulness. Achtsamkeit
-03. Serenity. Gelassenheit
-04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993838   (893557) от 06.03.2016
-
-VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любэ - Давай за
-02. 7Б - Молодые ветра
-03. Танцы Минус - Не меняй меня
-04. Тараканы! - Я смотрю на них(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 01:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370601   (893495) от 29.03.2020
-
-Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893495.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - SURVIVAL Mode Ambient & Exploration
-2017 - WINTERMUTE, Ambient & Exploration
-2017 - WINTERMUTE, Episode One: "Do Not Go Gentle
-2017 - WINTERMUTE, Episode Two: "Luminance FugueЖанр: SoundtrackПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
 ```
 
 https://mybot314.ru/tekegram_catalog/

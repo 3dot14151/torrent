@@ -1,3 +1,343 @@
+###  Публикация: 1797714   (17111) от 24.05.2025
+
+Фоны - assetpro .design - Behance - Surreal Gradient Waves - Backgrounds Collection - 142427923 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Набор разнообразных градиентных фонов цветных и чёрно-белых с дополнениями.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552CDDD780DBFBA7E4EA6E4DABE9C0E54B2321AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798427   (17110) от 24.05.2025
+
+Текстуры - RuleByArt - CreativeMarket - Delphinus - 474303 [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция из 20 текстур со сложными световыми узорами.
+Каждое изображение представлено в виде TIF-файла (с альфа-каналом), который можно открыть в Photoshop и Illustrator и т.п.Формат: TIFРазрешение файлов: 4500 x 4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5731830698282B9F4DA7E1D5CA0A04C5B857592A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798430   (17103) от 24.05.2025
+
+Фоны - SupremeTones - Envato - Golden Marble Backgrounds - 9GTYL3Z [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Золотые мраморные фоны.Формат: PNGРазрешение файлов: 5400 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1258BF0C8140314FEC7B354B71AD83DD57CC42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797850   (17102) от 24.05.2025
+
+Фоны - Desigix - 100+ Abstract Backgrounds [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Абстрактные фоны в четырёх цветовых вариациях.Формат: PNGРазрешение файлов: 5824 x 3264
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3672EB49F12D5CA520834B29447B1D17745677C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797703   (17101) от 24.05.2025
+
+Фоны - HS PSD - Behance - Liquid Metal Backgrounds - 205036325 [PNG, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фоны под жидкий металл с дополнениями.Формат: PNG, JPGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64ECDF341F8FE49447623A3DD516B9F8D01E295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797977   (17100) от 24.05.2025
+
+Текстуры - Pixelbuddha Studio - Behance  - Plastic Textures Collection - 146161699 [JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция текстур с изображениями пластиковой упаковки, липкой ленты.
+Материал раздаётся с официальной документацией.Формат: JPG, PSDРазрешение файлов: 1000 x 453 - 5000 x 3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D324BA0B0D48B1B4BC5B430B76EC5D702522C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797956   (17099) от 24.05.2025
+
+Растровый клипарт - Graphic Studio - Creative Fabrica - Gothic Goth Seamless Patterns [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесшовные узоры в готическом стиле.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C768EBB106E1380C4723BAC70AEB8278867FF12C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798432   (17097) от 24.05.2025
+
+Сборники - devotchkah - Envato - Target Circular Backgrounds - CSZRGUA [JPG, AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+25 сложных круговых фонов в векторе и растре.Формат: JPG, AI, EPSРазрешение файлов: 6750 x 4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8759EAE5ECF99D6047BA3E1A512849C81A48A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810750   (17006) от 06.08.2025
+
+Растровый клипарт - Adobe Stock - Picnic and Barbecue in the Countryside [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+52 стоковых фотографий на тему барбекю из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 2048x2048 - 8688x5792
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1EBDB9E9E83077E9875AAE281493FD23850895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797887   (16858) от 26.05.2025
+
+Фоны - Sweetmotions - Envato - 10 Abstract Gold & Black Marble Texture - 4M8JDJ6 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+10 Абстрактных текстур и чёрно-золотого цвета.Формат: JPGРазрешение файлов: 8000 x 5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AC205795A96E8ED29BA986E06C6FFB1098652B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798624   (16835) от 26.05.2025
+
+Фоны - Aamo - Creative Fabrica - Embossed Affection Background [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рельефные фоны с сердечками.Формат: PNGРазрешение файлов: 6000 x 6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9946FB50BBAF17A98DEB87818A2388D1E4B8E082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798433   (16829) от 26.05.2025
+
+Оверлеи - kaleriia - Envato - Water Surfaces Overlays - 6XR69VZ [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Наложения в виде водных поверхностей.Формат: PNGРазрешение файлов: 5000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC467495696507A9C9815B39180EA49ACB5FB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798531   (16828) от 26.05.2025
+
+Растровый клипарт - DoodleBox - Creative Fabrica - Mandala and Snowflake Silhouettes [AI, EPS, JPG, PDF, PNG, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Изображения мандалы и снежинок в векторе и растре.Формат: AI, EPS, JPG, PDF, PNG, SVGРазрешение файлов: 2000 x 2000 - 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F43F2BCB03BBB0A3C13397316ACE6237D4CD7B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797885   (16824) от 26.05.2025
 
 Фоны - MographMotions - Envato - Realistic Northen Light Sky - J8XJRCU [JPG]
@@ -6,7 +346,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (фото)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -216,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -242,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -332,347 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EBAB2DCF1F4E1EF8DC906C0B00FCD78D2E77530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811270   (16349) от 09.08.2025
-
-Шрифты - Behance - Sergey Mikheev - Sambia - 650023 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.
-Геометрический шрифт без засечек, прямой, сильно сжатый, единой высоты, с острыми углами и закрытой диафрагмой. Семейство шрифтов состоит из обычного и жирного шрифтов, вдохновлен стилем Баухауз и относится к первой половине 20-го века. Он имеет лаконичные округлые формы, геометричность и небольшой интервал между буквами.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFBE92A1196AA9C90334C757DEF3567CA6897BC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811280   (16324) от 09.08.2025
-
-Шрифты - Behance - Wladyslaw Borisov - Grafmassa Font - 193475797 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шрифт на основе орнаментов багажника(шильдиков проще говоря) для Lada 110(ВАЗ 2110). Возможно кому-то будет интересно. А человеку проще будет найти и не повторять уже сделанную работу, а просто взять и использовать. В процессе работы над шрифтом, я понял одно, что он очень похож на шрифт Porsche. Не зря... Как будто взяли и просто шрифт Порше, и растянули у (   Читать дальше...   )Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4B5208CF48CC96FCE07AA66FEA0177ABB699AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811286   (16323) от 09.08.2025
-
-Шрифты - Behance - Wladyslaw Borisov - Advaken Sans - 227558651 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799928   (16243) от 30.05.2025
-
-3D материалы - MOTION SQUARED - Arnold Metal Materials Pack for Cinema 4D [LIB4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16243.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот пакет входят различные виды металла, такие как золото, медь, хром, оцинкованная сталь, шлифованный металл, латунь и узоры с ромбовидными пластинами . В этом пакете также есть раздел с высокодетализированными пользовательскими поверхностями и узорами, которые сделают любой материал более интересным. Все материалы имеют разрешение 4K, что означает потрясающее (   Читать дальше...   )Формат: LIB4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68C28C889912BC18BE30D9F67D3A0F6B8BE989B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811455   (16145) от 09.08.2025
-
-Шрифты - Behance - Alexey Atapin - Lost Cap font - 210600235 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративный шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6295DA605662CC7F191C9A9A278F984395244EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811456   (16144) от 10.08.2025
-
-Шрифты - Behance - Alexey Atapin - Motion - 211991577 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративный шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3F17AE6009B59A623BEADC7794B06BD1B926F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811458   (16143) от 10.08.2025
-
-Шрифты - Behance - Alexey Atapin - Kosmos - 140863565 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5606DA2D0107F529B7AA14C82EB31833234B120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811460   (16118) от 10.08.2025
-
-Шрифты - Behance - Alexey Atapin - Insomnia Variable font - 212659183 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративный шрифт с кириллицей 4 стиля.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0660CDD7F2D59A294410797CDDE4AE85FC31FC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811462   (16117) от 10.08.2025
-
-Шрифты - Behance - Alexey Atapin - Hertz - 212074005 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBECADC526E5EC27B36090FE72A894C1DC6085D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811464   (16115) от 10.08.2025
-
-Шрифты - Behance - Elena Voynova - Ramka - 144180901 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Материал раздаётся с официальной документацией.
-Файл "Ramka-Bold.otf" - пробный, ознакомительный вариант.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF442C8BACE493BAE677FCDA0C3F1FB469DFF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811490   (16094) от 10.08.2025
-
-3D сцены - Fab - Destruction Complete [UASSET, UMAP]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушения в Unreal Engine.Формат: UASSET, UMAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A277524A38C81D5EF0B6C476A185E8CED3F03B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811495   (16090) от 10.08.2025
-
-3D сцены - Fab - Post Apocalyptic World [UASSET, UMAP]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушения в Unreal Engine.Формат: UASSET, UMAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412D9AB2AD15D17466996E1442217E489958E928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811500   (16089) от 10.08.2025
-
-3D сцены - Fab - Theater Hall Environment (Theater Concert Cinema Hall Exhibition Meeting 3d) [UASSET, UMAP]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Театральный зал содержит 93 уникальных модели, включая все представленные ресурсы и высококачественные ресурсы. Он отличается хорошим уровнем детализации и оптимизирован для игровых проектов.Формат: UASSET, UMAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA054A30898A9C3937B07D0D6E16E1EDDF23BE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

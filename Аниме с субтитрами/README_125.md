@@ -1,3 +1,107 @@
+###  Публикация: 1757158   (39275) от 25.10.2024
+
+Dead Mount Death Play (2023) | Смертельная игра мёртвой горы [ТВ-2] [2023, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда легендарный герой близок к победе над некромантом, известным как Бог Трупов, события принимают неожиданный оборот с последним гамбитом темного колдуна — магией реинкарнации. Эта последняя отчаянная попытка застает храброго бойца врасплох, и теперь он мальчик по имени Полька Шинояма в совершенно новом мире! Противостояние добра и зла только что стало эпическим. (   Читать дальше...   )Производство: Студия Geek ToysЖанр: приключения, фэнтезиРежиссер: Сацума ЁсихироПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E59C55B607BBA71F30ECAE6D5E0650A2FB38E5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757128   (39271) от 25.10.2024
+
+Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда легендарный герой близок к победе над некромантом, известным как Бог Трупов, события принимают неожиданный оборот с последним гамбитом темного колдуна — магией реинкарнации. Эта последняя отчаянная попытка застает храброго бойца врасплох, и теперь он мальчик по имени Полька Шинояма в совершенно новом мире! Противостояние добра и зла только что стало эпическим. (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, комедияРежиссер: Исихира СиндзиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA476CE9C5C5F6ABA379597BDB876A0E9BCC80D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754016   (39004) от 28.10.2024
+
+Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханако после школы 2 [2024, TV, 4] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение аниме: Ханако после школыПроизводство: студия Lerche / ラルケЖанр: комедияРежиссер: Китамура МасакиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 4 эп. по 10 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B087B04FE9B24A9CB8BF965B46C00EAC599B4254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758265   (38587) от 01.11.2024
+
+Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое воплощение богини: Токийское откровение [1995, OVA, 2 из 2] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Подростка Кобаяши Акито в детстве часто били, поэтому он вырос злым и мстительным, увлекся черной магией и в конце концов связался с нехорошими демонами, желающими уничтожить человечество. Из всех людей по нраву ему только друг детства - Сома Коджиро, по совместительству являющийся еще и последним воплощением божественного хранителя земель японских Тайры Масакадо, (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ямасаки ОсамуПеревод: RG GenshikenЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 2 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C95EB4DEA001B7FB974BE5B87084E52FFC21E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690755   (38037) от 07.11.2024
 
 High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+1 эп.] WEBRip 720 raw
@@ -6,7 +110,7 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +137,7 @@ eX-Driver | Экс-драйвер [2000, OVA, 6 эп.] DVDRip 480p raw+eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ eX-Driver the Movie | Экс-драйвер: фильм [2002, Movie + 3 SP] DVD
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Delico's Nursery | Детская Делико [2024, TV, 13 эп.] WebRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ Acro Trip | Плохая поездка [2024, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ Hitoribocchi no Isekai Kouryaku / Loner Life in Another World / Нападени
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +424,7 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Король демонов, поп
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Tsuma, Shougakusei ni Naru. / If My Wife Becomes an Elementary School Student. /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -400,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33840.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -426,7 +530,7 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming S2 | A Herbivorous Dragon of 5,000 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Kekkon Surutte, Hontou Desuka / 365 Days to the Wedding / Вы правда же
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +583,7 @@ Sword Art Online Alternative: Gun Gale Online II / Мастера меча он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -506,7 +610,7 @@ NegaPosi Angler | Negative Positive Angler | Негативный позитив
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Mecha-ude (2024) | Mechanical Arms | Механические руки [2024, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Sayonara Ryuusei, Konnichiwa Jinsei / Goodbye, Dragon Life / Прощай, жи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,117 +673,6 @@ Sayonara Ryuusei, Konnichiwa Jinsei / Goodbye, Dragon Life / Прощай, жи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:012F0E351AD58F7FF2C6B8CE2BDDA5B7296D8B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753445   (33587) от 20.12.2024
-
-Mahou Tsukai ni Narenakatta Onnanoko no Hanashi. | История девушки, которая не смогла стать магом [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куруми Мирай учится в первом классе средней школы.
-Она училась в младших классах магической школы Редрун, единственного в мире учебного заведения для магов, одобренного Международной лигой магов и способного по окончании работать в королевских семьях, и всегда была лучшей в классе. Однако когда она подала документы в старшую школу и сдала экзамен, чтобы поступить (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ватанабэ ТакасиПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские (мультисаб)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61711D0496EDEB885F658E2DA3106AFB300B9F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753444   (33469) от 21.12.2024
-
-The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цвета [ТВ-2] [2024, TV, 12] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории.
-
-Агентство «283 Продакшн» готовит четыре новых группы к важнейшему конкурсу W.I.N.G. Путь на вершину непрост, и девушкам придётся не только укрепить отношения, но и найти собственные краски. Окрылённые надеждами, будущие звёзды тянутся к бескрайнему небу.Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: повседневность, музыкальныйРежиссер: МанкюПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-SubПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F3CD8A18A47FED7EF7A5F8B854859117712BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752361   (33433) от 22.12.2024
-
-Nageki no Bourei wa Intai Shitai / Let This Grieving Soul Retire! / Скорбящий пpизpaк хочет уйти в отставку [2024, TV, 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступил золотой век для кладоискателей, которые в поисках славы, несмотря на опасности, совершают набеги на хранилища сокровищ по всему миру. Неизмеримые богатства, слава и власть ждут тех, кто одержит победу.
-«Давайте станем охотниками за сокровищами!»
-Это обещание, данное Краем Андреем и его друзьями, закончилось печально, когда юный Край понял, что в нем нет (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ADEEC7DB111304B303DB69C06803CAFB18B25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752350   (33401) от 22.12.2024
-
-Tensei Kizoku, Kantei Skill de Nariagaru 2 / Переродившись аристократом, я использую свой навык оценки, чтобы возвыситься 2 [2024, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй сезон Tensei Kizoku, Kantei Skill de Nariagaru.
-
-Описание на первый сезон:Однажды по пути с работы Арс Лоувент умирает и перерождается слабым аристократом в другом мире. Но, разумеется, не простым: он обладает навыком, позволяющим оценивать способности и таланты окружающих. И вот с этим-то навыком он и создаст себе команду, которая позволит ему выжить и возвыситься (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Като ТакаоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD978F4B93C8C24A0F5F2CEAE565B6BF59C28B5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

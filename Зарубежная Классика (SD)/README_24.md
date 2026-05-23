@@ -1,3 +1,109 @@
+###  Публикация: 764022   (877712) от 10.03.2014
+
+И слоны бывают неверны / Un elephant ca trompe enormement (1976) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Герои фильма — четверо уже немолодых (за сорок), но ещё весьма сексуально активных мужчин. Пускаясь в любовные приключения, они попадают во множество забавных ситуаций…Производство: Франция / Films de la Guеville, GaumontЖанр: КомедияРежиссер: Ив РоберАктеры: Жан Рошфор, Клод Брассёр, Ги Бедос, Виктор Лану, Даниэль Делорм, Анни Дюпре, Мартин Сарси, Марта Виллалонга, Луиз Конте, Кристоф БурсейеПеревод: Многоголосый закадровый (СВ-Дубль по заказу ЗАО "6-й канал")Субтитры: ОтсутствуютПродолжительность: 01:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555BC64149457AF1F89BF32067643C3EA7CE0AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494400   (877231) от 14.09.2021
+
+Возьми меня с собой на бейсбол / Take Me Out to the Ball Game (1949) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эдди и Деннис - профессиональные игроки в бейсбол, но в глубине души они - конферансье водевиля. Неприятности в их размеренной жизни и карьере начинаются когда, в очередной раз, выходя на бейсбольное поле, друзья узнают, что у их команды новый владелец по имени - К. С. Хиггинс.
+Удивлению и возмущению парней нет предела, но главный сюрприз ждет команду впереди: оказывается (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Мелодрама, Комедия, СпортРежиссер: Басби БерклиАктеры: Фрэнк Синатра, Эстер Уильямс, Джин Келли, Бетти Гаррет, Эдвард Арнольд, Джулс Маншин, Ричард Лэйн, Томас Дж. Дуган, Дороти Эбботт, Гарри АлленПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE4DD671543F7D8D27F2B21EC7E9D36BE455EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997046   (877202) от 15.03.2016
+
+Женщина есть женщина / Une femme est une femme (1961) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Анжела во что бы то ни стало хочет ребенка, но ее муж Эмиль отказывается. В конце концов она делает вид, что попросила их друга Альфреда оказать ей честь, которая принимается. Эмиль, пойманный в ловушку, наконец удовлетворяет желание своей жены.Производство: Франция, Италия / Euro International Film (EIA), Rome Paris FilmsЖанр: Драма, Мелодрама, КомедияРежиссер: Жан-Люк ГодарАктеры: Жан-Клод Бриали, Анна Карина, Жан-Поль Бельмондо, Анри Атталь, Керин Балм, Доротея Бланк, Мари Дюбуа, Эрнест Мензе, Жанна Моро, Николь ПакуинПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский (Forced, Full), английскийПродолжительность: 01:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E8D70D9107EAF94700DFB4BBE9C78E2F5807EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 641690   (877150) от 12.04.2013
+
+Полицейский / Un flic (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В маленьком городке Сен-Жан-де-Мон происходит ограбление банка. Один из грабителей ранен. Выясняется, что деньги, похищенные налетчиками, предназначались для закупки крупной партии наркотиков. Таким образом, одни воры помешали другим провернуть выгодное дело.
+Расследование поручено комиссару Кольману. Он уверен в себе. Он знает преступный мир Франции, как свои пять (   Читать дальше...   )Производство: Euro International Film (EIA),Oceania Produzioni Internazionali CinematograficheЖанр: Боевик, Драма, КриминалРежиссер: Жан-Пьер МельвильАктеры: Ален Делон, Катрин Денёв, Ричард Кренна, Риккардо Куччолла,  Майкл Конрад, Поль Кроше, Симона Валер, Андре Пусс, Жан Десайи, Валери ВильсонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A1707B7776861137BDDC41C1CBB1F3512BAE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 791966   (877104) от 14.09.2021
 
 Джесси Джеймс. Герой вне времени / Jesse James (1938) DVDRip [H.264]
@@ -6,7 +112,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -33,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_876259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -138,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874467.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47B6605B3C7156549CBCB8BA9B6596D7C31D1D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106695   (868117) от 22.02.2017
-
-Мистер Питкин: Ранняя пташка / The Early Bird (1965) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман работает на старой,забытой Богом,маслобойне,все оборудование которой медленно,но верно приходит в полную негодность. А вокруг,между тем,кипит жизнь-технический прогресс уверенно наступает со всех сторон. И тогда Норман решает во что бы это не стало отстоять свою древнюю маслобойню.Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Эдвард Чэпман, Джерри Десмонд, Пэдди О’Нил, Брайан Прингл, Ричард ВернонПеревод: Одноголосый закадровыйСубтитры: НетПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D128DD4D1A90D39DEB3FDCB4B30E8024D3E9F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107402   (867998) от 22.02.2017
-
-Мистер Питкин: Порода бульдог / The Bulldog Breed (1960) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любой человек достоин любви. Даже самый никчемный и невезучий. Помощник бакалейщика Норман очень хотел любить и быть любимым, но… со вторым пунктом ему явно не повезло. От отчаяния и безысходности он вербуется на службу в Военно-Морской Флот Ее Величества. Тут-то и начинается самое интересное…Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Иэн Хантер, Дэвид Лодж, Роберт Эркарт, Эдвард Чэпман, Эдди Бирн, Питер Джонс, Джон Ле Мезюрье, Теренс Александр, Сидни ТэфлерПеревод: Одноголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBED417552E56A0EB7A9E35C312AC982DAB7447E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107531   (867996) от 22.02.2017
-
-Мистер Питкин: Неприятности в лавке / Trouble in Store (1953) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норман работает мелким клерком в огромном лондонском универмаге. Работа скучная, неинтересная, малооплачиваемая. Но есть один плюс - вокруг много красивых девушек, в одну из которых наш герой и влюбляется. А потом начинаются настоящие приключения. Оказывается, шайка преступников готовится ограбить универмаг...Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Джон Пэдди КастэйрсАктеры: Мойра Листер, Мегс Дженкинс, Маргарет Разерфорд, Майкл Уорд, Майкл Бреннан, Лана Моррис, Джон Уоррен, Джон Уорвик, Джоан Симс, Джоан Ингрэм, Джерри Десмонд, Дерек Бонд, Эсма Кэннон, Сирил Чемберлен, Норман УисдомПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63202C4F06AE73481419B1F9D1E57BF9BF1DCF61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992730   (867786) от 20.03.2016
-
-Нож в воде / Noz w wodzie (1962) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейная пара отправляется на собственной яхте на прогулку по Мазурским озёрам. Случайно их путь пересекается с молодым человеком без гроша в кармане, которого супруги берут на яхту в качестве попутчика. Между двумя мужчинами возникает соперничество, и не в последнюю очередь за внимание женщины. Муж старается произвести на паренька впечатление своим гламурным образом (   Читать дальше...   )Производство: Польша, Творческое объединение «Камера»Жанр: ДрамаРежиссер: Роман ПоланскиАктеры: Немчик, Йоланта Умечка, Зигмунт Малянович, Анна Чепелевская, Роман ПоланскиПеревод: Многоголосый закадровый, одноголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD2028DF0F2728FA29724572E29D94109F39AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

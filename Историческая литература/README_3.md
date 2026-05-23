@@ -1,3 +1,83 @@
+###  Публикация: 1850917   (1054871) от 31.01.2026
+
+Поль Реньяр | Эпидемия безумия. Классика социальной психологии (Злокачественные заболевания психики. Колдовство, магнетизм, морфинизм, лихорадка величия) (2022) [PDF, FB2, RTF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошло главное сочинение известного французского физиолога П. Реньяра, в котором подробно анализируются различные формы умственных эпидемий, имевших место с XV по XIX век. Автор описывает исследуемые явления и доказывает существование связи между исторической эпохой и формой, которую принимает та или иная эпидемия – колдовство, морфинизм или мания величия. (   Читать дальше...   )Жанр: Психология, ИсторияИздательство: РодинаФормат: PDF, FB2, RTF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CEDEC5A0900896E3C15B0A1385C10E46079CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850924   (1054870) от 31.01.2026
+
+Ф.Зиглер | Чёрная смерть. Как эпидемия чумы изменила средневековую Европу (2023) [PDF, EPUB, MOBI, RTF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга британского историка и писателя Филипа Зиглера представляет собой исследование распространения Черной смерти, или чумы, на территории средневековой Европы. Автор пишет об истоках и причинах возникновения мора, процессах и способах его передачи, заражения. Рассматривая и сопоставляя множество свидетельств средневековых хронистов и работы по изучению эпидемии (   Читать дальше...   )Жанр: ИсторияИздательство: ЦентрполиграфФормат: PDF, EPUB, MOBI, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636730F5CA4EFD64F2E1F9D6ED6A107BDA32FCC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850943   (1054788) от 31.01.2026
+
+М. Экмечич | История сербов в Новое время (1492–1992). Долгий путь от меча до орала (2024) [FB2, RTF, PDF, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Книга известного сербского историка и учёного —академика Милорада Экмечича «Dugo kretanje između klanja i oranja istorija Srbau Novom Veku 1492–1992» («Долгий путь от меча до орала – история сербов в Новое время (1492-1992)» впервые издана на русском языке при поддержке компании «Газпром нефть».
+
+Для работы над важным для развития культурных и исторических связей (   Читать дальше...   )Жанр: История, СербияИздательство: АбрикобуксФормат: FB2, RTF, PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EDC2B8F5BDF8DC1F5C4E1778083FBF33C3E751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850945   (1054787) от 31.01.2026
 
 Миямото Мусаси, Юдзан Дайдодзи, Такуан Сохо | Самураи. Путь воли и меча (сборник) (2018) [PDF, FB2, EPUB, RTF]
@@ -6,7 +86,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +138,7 @@ P. Гароди, И. Валлерстайн | Мифы израильской п
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +454,7 @@ Dietrich Orlow | A History of Modern Germany. 1871 to Present. 9th Edition (2025
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -600,86 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D485C82EB152C9F1504F20E3BF55688E89CDDE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848766   (1053108) от 18.01.2026
-
-Дмитрий Иванов | Арктика. История освоения Крайнего Севера. Большой иллюстрированный атлас (2024) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053108.jpg" />
-</div>
-
-
-###  Подробнее
-
-На географических картах Арктики можно встретить немало русских названий. Это память о тех временах, когда наши соотечественники открывали один из самых суровых регионов Земли. Экспедиции россиян исследовали все северное побережье Евразии, обнаружили пролив между Америкой и Азией, побывали на Полюсе относительной недоступности, работали на первых дрейфующих станциях… (   Читать дальше...   )Жанр: История, География, Арктика, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F706471B1C68ABD8EC90E3268F3A356FED0321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848765   (1053107) от 18.01.2026
-
-Дмитрий Иванов | Антарктида. История изучения ледяного континента. Большой иллюстрированный атлас (2025) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как русские мореплаватели и советские полярники разгадывали тайны ледяного континента – в текстах и уникальных визуальных материалах.
-
-Более 200 лет прошло с тех пор, как экспедиция Фаддея Беллинсгаузена и Михаила Лазарева открыла Антарктиду. Продолжателями их дела стали участники первых советских антарктических экспедиций, которые 70 лет назад отправились к ледяному (   Читать дальше...   )Жанр: История, География, Антарктида, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43734CF7308D311536190457D76CA623100BCED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848763   (1053105) от 18.01.2026
-
-В.О. Шпаковский | Самураи – рыцари Страны восходящего солнца. Большой иллюстрированный атлас (2024) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для того чтобы понять, кем были самураи, эти суровые и храбрые воины Дальнего Востока, которых называют японскими рыцарями, нужно познакомиться с историей Японии, её культурой и традициями, которые уходят своими корнями в далёкое прошлое. В книге даны краткие сведения из истории Японии, начиная с её деления на исторические эпохи и заканчивая основными датами и событиями, (   Читать дальше...   )Жанр: История, Самураи, ЭнциклопедииИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9A42DE786C3A7962FC27397E200017D287E3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

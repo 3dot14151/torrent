@@ -1,3 +1,165 @@
+###  Публикация: 1265260   (274061) от 28.11.2018
+
+Alcatrazz - Live In Japan 1984 (2018) DVD5 [custom]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления американской хэви-метал-группы Alcatrazz в зале Nakano Sun Plaza (Токио) 28 января 1984г.01. Opening
+02. Too Young To Die, Too Drunk To Live
+03. Hiroshima Mon Amour
+04. Night Games(   Читать дальше...   )Производство: Ward RecordsЖанр: Hard rock, Neoclassical metalРежиссер: Ward RecordsАктеры: AlcatrazzСубтитры: отсутствуютПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320ED10B6BAA930DEEF3186497825ED5F0765673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337631   (273536) от 11.11.2019
+
+Большой юбилейный концерт Александры Пахмутовой (2019) HDTV [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Весь вечер на сцене Большого театра – Александра Пахмутова, поздравить композитора выйдут прославленные спортсмены: Вячеслав Фетисов, Лариса Латынина, Иван Едешко, Елена Чайковская, Владислав Третьяк, Аделина Сотникова, а также артисты самых разных жанров, среди которых Денис Мацуев и Лев Лещенко, Александр Градский и Тамара Гвердцители, Сергей Полунин и Хибла Герзмава, (   Читать дальше...   )Производство: РоссияЖанр: концертСубтитры: отсутствуютПродолжительность: 02:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE42D571DCD61CFD0B21401A30EC36996765BA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083151   (273486) от 16.12.2016
+
+Группа «Лицей» выступление на Авторадио (12.12.2016) WEBRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настя Макаревич & группа «Лицей» в гостях у "Шоу Мурзилки LIVE" на АВТОРАДИО с живым концертом. Песни, а так же интервью. Состав группы "Лицей": Анастасия Березовская, Анастасия Макаревич, София Тайх.1. Фотография
+2. Рыжий пёс
+3. След на воде
+4. Осень(   Читать дальше...   )Производство: АвторадиоЖанр: КонцертПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81B4823769C70D0F94807918F80538C8AFD4FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189228   (273465) от 11.11.2019
+
+Фёдор Достоевский - Варвар и Еретик (Игрок) (2005) TVRip (Ленком)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Наравне с землей, водой, воздухом и огнем - деньги суть пятая стихия, с которой человеку чаще всего приходится считаться. В этом одна из многих -возможно, даже главная- причина того, что сегодня, через сто лет после смерти Достоевского, произведения его сохраняют свою актуальность. Сценография монументальна. Александр Абдулов и Инна Чурикова демонстрируют высочайшее (   Читать дальше...   )Производство: Россия, Московский театр Ленинского комсомола, ГТРК "Культура"Жанр: Драма, спектакльРежиссер: Марк ЗахаровАктеры: Александр Абдулов, Александра Захарова, Инна Чурикова, Леонид Броневой, Мария Миронова мл., Юрий Колычев, Данила Соломатин, Полина Воропаева, Виктор Речман, Владимир Володин, Александра Дорохина, Андрей Соколов, Сергей Чонишвили, Людмила Зорина, Сергей АлександровСубтитры: отсутствуютПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A66B775B15FCBD01585EC4C6FCA6EA26B22394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142420   (272349) от 12.11.2019
+
+Вальпургиева ночь (Ленком) (2017) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Венедикт Ерофеев использовал в своих сочинениях некоторые «народные грубости». Эти «грубости» – неотъемлемая часть нашего языка и сознания, нашей истории и культуры. Если их исключить, будет похоже на предательство образной системы писателя, предательство правды жизни. Тем не менее, мы используем их в спектакле осторожно и в ограниченном количестве. Название спектаклю (   Читать дальше...   )Производство: Россия | Театр Ленком, ГТРК "Культура"Жанр: Театр, драмаРежиссер: Марк ЗахаровАктеры: Игорь Миркурбанов, Александра Захарова, Виктор Раков, Виктор Вержбицкий, Полина Чекан, Сергей Степанченко, Дмитрий Гизбрехт, Анастасия Марчук, Алиса Сапегина, Татьяна Збруева и другие.Субтитры: ОтсутствуютПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA503E61D2C4252D8FBF3495E31911D62D85B3EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273832   (272327) от 24.12.2010
+
+Вера Брежнева - Любовь спасет мир (Подарочное издание) (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+DVD с нового Альбома Веры Брежневой "Любовь спасет мир (Подарочное издание)Актеры: Вера БрежневаПеревод: ОригинальныйПродолжительность: (00:03:28+00:03:57+00:04:04+00:03:32+00:03:52)=00:17:73
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A84B8D42BA9AF192A022CC785F8D088FF2CA3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963379   (272273) от 12.11.2019
 
 Опасный поворот (1972) SATRip (3 серии)
@@ -6,7 +168,7 @@
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272273.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +195,7 @@ Sting - Live At The Olympia Paris (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -62,7 +224,7 @@ Eric Clapton - Live at Montreux 1986 (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +250,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +279,7 @@ Adriano Celentano - Adriano Live Il Concerto Arena di Verona - Rock Economy (201
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -170,7 +332,7 @@ Def Leppard - Visualize, Video Archive (2001) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271125.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -199,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -229,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -255,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -282,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -308,7 +470,7 @@ Slayer: The Repentless Killogy (2019) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -335,7 +497,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -364,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269038.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -392,7 +554,7 @@ Extreme - Take Us Alive (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -421,7 +583,7 @@ Bad Company - In Concert. Merchants of Cool (2005) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -450,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -479,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -507,7 +669,7 @@ The Rolling Stones - Voodoo Lounge Uncut 1994 (2018) 2xDVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -536,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -550,173 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BF8107E9FCA101CE158C207D4DAD3E3E03F3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338911   (268119) от 17.11.2019
-
-Квартирник НТВ у Маргулиса. 85 лет Юрию Визбору (16.11.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_268119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск самой атмосферной программы НТВ «Квартирник НТВ у Маргулиса» посвящен юбилею советского поэта, композитора, актера и драматурга Юрия Визбора. В 2019 году одному из главных представителей жанра авторской песни, ставшему символом поколения 60-х, исполнилось бы 85 лет. В честь юбилея знаменитого барда в студии «Квартирника» собрались артисты, чтобы исполнить (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53BDE188E6A935A816FBFCA8CE1DC5C66232901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965537   (267786) от 17.11.2019
-
-Квартирник у Маргулиса - Чиж (2015) DVBRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий программы - российский рок-музыкант Евгений Маргулис, бывший участник легендарной группы «Машина времени» — приглашает на домашние концерты известных рок-музыкантов России. В этом выпуске в гостях у Евгения Маргулиса - Сергей "Чиж" Чиграков. Дата эфира: 05.12.2015.01. Урал байкер блюз
-02. Глазами и душой
-03. Глупенькая песня (Ассоль)
-04. Два тракториста(   Читать дальше...   )Производство: РоссияЖанр: МузыкаРежиссер: Дмитрий ЕфимовичПродолжительность: 00:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096B1B9CC3004435628A0994109E35FAC9077AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276317   (267629) от 29.12.2010
-
-Эпидемия - Эльфийская Рукопись: Сага о двух мирах (2010) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип официального сборника "Эльфийская Рукопись: Сага о двух мирах" на трёх DVD с дополнительными материалами.01. Золотые драконы
-02. Час испытания
-03. Рождённый для битвы
-04. Пройди свой путь(   Читать дальше...   )Жанр: Концерт, Power MetalПродолжительность: 03:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E09224DB7262B1BDE62A0A7C6589FBB5784D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427798   (267605) от 28.12.2011
-
-Bill Frisell / Solos - The Jazz Sessions (2008) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия "SOLOS: The Jazz Sessions" выпускается Канадcкой Original Spin Media и состоит из трех сезонов. В каждом по тринадцать ДВД-дисков. Все диски состоят из полных треков, интервью и закулисных кадров. Разработанная для домашнего просмотра, SOLOS предлагает Вам место в первом ряду в зале с уникальными джазовыми исполнителями. Снято в потрясающем HDTV с (   Читать дальше...   )01. Keep Your Eyes Open
-02. Throughout
-03. Ron Carter
-04. Boubacar(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212625   (267537) от 05.12.2018
-
-Бабочка... Бабочка... / Матылек... Матылек... (2018) DVD5 (Театр им. Я.Коласа) [BEL]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко летая по жизни, Эдда привыкла к роскоши. Но у старости свои особенности. Одинокая женщина каждый вечер ждёт гостей, но никто не приходит, не звонит... Только горничная Фока постоянно слушает рассказы хозяйки о чудесной молодости и богатой жизни. Однажды к Эдде заходит молодой человек Элиа и заставляет её вспомнить прошлое, все моменты, которые она хотела позабыть (   Читать дальше...   )Производство: Театр им. Я.Коласа, Беларусь.Жанр: МелодрамаРежиссер: Валерий АнисенкоАктеры: Томара Скворцова, Ирина Тишкевич, Дмитрий КоваленкоПеревод: ОтсутствуетЯзык озвучки: Бел.Субтитры: отсутствуютПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F917EDA2BD5D7D0A61E78EA68571DC345398F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333408   (267422) от 05.12.2018
-
-Портрет Дориана Грея (1969) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267422.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноименного романа английского писателя О. Уайльда.
-
-Портрет Дориана Грея имел удивительное свойство: он принимал на себя все грехи «оригинала», а так же течение времени. В реальной жизни Дориан Грей не менялся, не старел, на лице его не появлялось ни одной морщины, а старел за него портрет...Жанр: Телеспектакль, драмаРежиссер: Н.МарусаловаФормат: AVIПродолжительность: 2:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782E3D787472A1C1DB24F0D2FE5E7F128CDBBEAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

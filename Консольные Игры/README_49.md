@@ -1,29 +1,3 @@
-###  Публикация: 582742   (317104) от 30.11.2012
-
-Warhammer Battle March [xbox 360] [Region Free] [rus] (2008)
-
->>Консольные Игры
->>Xbox 360
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые на Xbox360 вышла культовая фэнтези-стратегия. Масштабу сражений позавидует кинотрилогия «Властелин колец» и фильм «Хроники Нарнии» – под вашим личным командованием тысячи самых необычных солдат, включая темных эльфов-садистов, кровожадных вампиров, гигантских крыс-мутантов, поклоняющихся богам Хаоса варваров и, конечно же, орков и гоблинов. В мире Warhammer аркебузы и мортиры сосуществуют с магией – все стороны вечного конфликта между Порядком и Хаосом активно используют технологию и волшебство. Игра основана на культовой вселенной, созданной богами настольных игр из Games Workshop. Этот мрачный, детально проработанный фэнтезийный мир имеет миллионы поклонников. Следуя захватывающему сюжету игры, вы становитесь полководцем и получаете полную власть над своим войском – вы определяете не только его состав и стратегию, но и внешний вид, боевую униформу и раскраску ваших солдат. За вас сражаются могучие герои, которые становятся сильнее в сражениях и получают новые способности. Ваши богатыри могут посреди (   Читать дальше...   )Жанр: RTSЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A73476B8BEA6ECA9AB7C79040ED748F3B79377A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182477   (316188) от 10.11.2017
 
 NHL Legacy Edition (2015) [PS3] [EUR] 4.21 [Repack / 1.01] [Ru/Multi]
@@ -32,7 +6,7 @@ NHL Legacy Edition (2015) [PS3] [EUR] 4.21 [Repack / 1.01] [Ru/Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +34,7 @@ Chasm (2018) [Switch] [USA] 9.0.1 / NSP [Unofficial / 1.0.71 ] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +60,7 @@ Chasm (2018) [PSVita] [USA] 3.65 [NoNpDrm] [Unofficial / 1.05] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +86,7 @@ Hot Wheels: Track Attack [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +112,7 @@ MySims SkyHeroes (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +139,7 @@ Game of Thrones: A Telltale Games Series (2014) [Xbox360] [PAL / NTSC / U] LT + 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +165,7 @@ Hellboy: The Science of Evil (2008) [PS3] [EUR] 2.20 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +191,7 @@ SoulCalibur V [PS3] [USA] [Ru] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +217,7 @@ The Witcher 3: Wild Hunt - Complete Edition / Ведьмак 3: Дикая Ох�
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +270,7 @@ Jurassic World Evolution: Complete Edition (2020) [Switch] [USA] 10.2.0 [NSZ] [L
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +298,7 @@ Crysis Remastered (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.5.0] [Ru/Multi
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312379.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +325,7 @@ Tales from the Borderlands: Episode 1 - 5 (2014) [Xbox360] [RegionFree] [FreeBoo
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +353,7 @@ Tearaway / Сорванец (2013) [PSVita] [EUR] 3.60 [HENkaku] [PSN / 1.01] [R
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +381,7 @@ Eledees (Elebits) [Wii] [PAL] [Multi 5] [2007]
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310669.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +407,7 @@ Pokеmon Ultra Moon (2017) [3DS] [EUR] [CIA] [Unofficial] [Multi]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +434,7 @@ Blade Strangers (2018) [Switch] [USA] 8.1.0 [NSP] [License / 1.3.0] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +460,7 @@ MX vs ATV: Untamed (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +486,7 @@ Tom Clancy’s EndWar (2008) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [Unof
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +512,7 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +538,7 @@ Ride to Hell: Retribution (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +564,7 @@ The Chronicles of Narnia: Prince Caspian [Wii] [NTSC] [En] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -616,7 +590,7 @@ Ski Doo: Snowmobile Challenge (2009) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO IS
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +616,7 @@ Army of Two: Trilogy (2008 / 2010 / 2013) [Xbox360] [RegionFree] [FreeBoot] [Lic
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -670,7 +644,7 @@ Disgaea 4: A Promise Unforgotten (2011) [PS3] [USA] 3.66 [HAN OFW / CFW] [Repack
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -682,6 +656,32 @@ Disgaea 4 может похвастаться новой графикой, в к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F68BBD3B7487E244D8A18DF3BD18F81B9C5B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077356   (305989) от 28.11.2016
+
+FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.2 / DLC] [Multi]
+
+>>Консольные Игры
+>>Wii U
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Устраивайте гонки на умопомрачительных скоростях по футуристическим мирам в FAST Racing Neo из Nintendo eShop на Wii U. Забирайтесь в кресло пилота одного из множества антигравитационных кораблей и давите на педаль газа в высокооктановых гонках с 60 кадрами в секунду. Станьте настоящей легендой, покорив все три лиги FAST Racing NeoТип издания: LicenseРазработчик: Shin'en MultimediaЖанр: RacingЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895EA7CE1B111764CE5D176877CF1883D574B2FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

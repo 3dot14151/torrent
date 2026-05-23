@@ -1,3 +1,55 @@
+###  Публикация: 1000629   (856959) от 26.03.2016
+
+Train Fever (2015) [Ru/Multi] (Build 7753/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главная особенность Train Fever — встроенная в транспортную стратегию автономная градостроительная игра, которая неподвластна нам. Но не расстраивайтесь — вместо нас ей управляет кремниевый мэр. Небольшие деревни, фермы, поселки, районные центры и мегаполисы находятся во власти искусственного интеллекта. Населяют этот мир различные персонажи. Как это водится, они (   Читать дальше...   )Тип издания: LicenseРазработчик: Urban GamesЖанр: Simulation, Strategy, Economy, TrainsЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870C4497F7A3DDC2A5DBD04EE741F6F6AEB36CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001520   (853517) от 28.03.2016
+
+Punch Club (2016) [Ru/Multi] (1.1/dlc) Repack ARMENIAC [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В детстве ты стал свидетелем кровавого убийства своего отца и был разлучен с братом. Ты пообещал умирающему отцу, что сможешь постоять за себя! Теперь тебе придется усиленно тренироваться, есть стейки и прокладывать своими кулаками себе путь на вершину бойцовской карьеры. Ну и конечно, найти убийцу отца и отомстить.Тип издания: RepackРазработчик: Lazy Bear GamesЖанр: Strategy (Manage, Busin.), Arcade (Fighting)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF19B5FD50278A0A51E78F62117692BD4ADA439E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110870   (849681) от 04.03.2017
 
 Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [Gold Edition]
@@ -6,7 +58,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack R.G. Механики [G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Coffee Noir - Business Detective Game (2021) [Multi] (1.01) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.1.2r10007/dlc) License PLAZA [Royal Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835605.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Lula: The Sexy Empire (1998) [En] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832784.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Fear Equation (2016) [En] (2.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.0.0.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Sheltered (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -189,7 +241,7 @@ The Amazing American Circus (2021) [Ru/Multi] (50654) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -215,7 +267,7 @@ Game Tycoon 2 (2016) [En/Multi] (1.05) Repack ALiAS
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) License PROPHET
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Farming Life (2021) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ Oil Enterprise (2016) [Ru/Multi] (1.03) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Villagers (2016) [Ru/Multi] (1.030) License RELOADED
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Cities in Motion Dilogy (2011-2013) [Ru/Multi] (1.0.0/1.6.3) Repack R.G. Мех�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Prison Architect (2015) [Ru/Multi] (1.0/upd 6b/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ SPORE™ Collection (2008) [Ru/En] (1.3.0.22/3.1.0.22/dlc) Repack R.G. Меха�
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ SimCasino (2021) [Ru/Multi] (1.0.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ Exodus Borealis (2021) [Multi] (5.2) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -555,7 +607,7 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Barn Finders (2020) [Ru/Multi] (1.0.0.16128) Repack xatab
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Zoo Tycoon: Ultimate Animal Collection (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -618,58 +670,6 @@ Zoo Tycoon: Ultimate Animal Collection (2017) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B89B970D49BA8415B6CB0AEA1AE0691E10D23A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214657   (763894) от 22.03.2018
-
-Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мамма мия! С пылу, с жару, прямо на ваш ПК: долгожданное продолжение сделало легендарную серию Pizza Connection еще вкуснее и ароматнее! Испеките пиццу, которой можно гордиться! К проверенным ингредиентам экономического симулятора Pizza Connection 3 только что добавились новые. Пройдите нелегкий и полный опасностей путь от никому не известного римского пекаря до (   Читать дальше...   )Тип издания: RepackРазработчик: Gentlymad Studios, Assemble EntertainmentЖанр: Simulation, StrategyЯзык озвучки: Английский, Немецкий, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18F4330B6EE19B9FC3866D772C6CF2470FA8F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017591   (760486) от 17.05.2016
-
-Spore - Complete Pack (2009) [Ru/En] (1.2.0.2818/3.0.0.2818) Repack R.G. Механики
-
->>След.
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь зародилась в капле воды. Миллиарды лет эволюции и тысячи мутаций привели земную фауну к ее нынешнему состоянию. Однако как происходит сложнейшее развитие от бактерии к целой цивилизации - величайшая тайна, полог которой откидывает Spore. Попав в эпоху, когда поверхность планеты населяли лишь простейшие существа, вы начинаете развивать их, помогая преодолевать (   Читать дальше...   )Тип издания: RepackРазработчик: MaxisЖанр: Strategy (God Sim, Manage, Busin., Real-time), Arcade, RPG (Rogue,Action), 3DЯзык озвучки: СимплишЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F876B1B21BF3519C87AF0B6C3DFFF0F7EC2B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

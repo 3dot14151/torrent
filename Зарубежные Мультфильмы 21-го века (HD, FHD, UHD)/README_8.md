@@ -1,3 +1,81 @@
+###  Публикация: 1459244   (1023230) от 01.04.2021
+
+Душа / Soul (2020) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Уже немолодой школьный учитель музыки Джо Гарднер всю жизнь мечтал выступать на сцене в составе джазового ансамбля. Однажды он успешно проходит прослушивание у известной клубной певицы и, возвращаясь домой вне себя от счастья, падает в люк и умирает. Теперь у Джо одна дорога — в Великое После, но он сбегает с идущего в вечность эскалатора и случайно попадает в Великое (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, приключения, семейный, музыкаРежиссер: Пит Доктер, Кемп ПауэрсПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FD371A0726846EC1688766608002EB569AACFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459623   (1023050) от 02.04.2021
+
+Душа / Soul (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрПеревод: Дублированный (iTunes), Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988DE5475912E5373D57EC89E74B552F11177F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460126   (1022721) от 04.04.2021
+
+Душа / Soul (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Филисия Рашад, Давид Диггс, Анджела Бассетт, Грэм Нортон, Рэйчел Хаус, Алиси Брага, Ричард Айоади, Доннел Роулингс, Амир-Халиб Томпсон, Марго Холл, Сакина Джэффри, Фортун ФеймстерПеревод: Дублированный (iTunes), многоголосый закадровый (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 01:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1001F27A729536F439B1556305271B853D09F988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460506   (1022580) от 05.04.2021
 
 Лийоки / Liyoki (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019058.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -557,7 +635,7 @@ Justice Society: World War II (2021) WEB-DL [H.264/1080p-LQ] [EN]
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -594,84 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ABB013F7A51D4295CCF0610DBDA67330B5EC6D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466533   (1018351) от 30.04.2021
-
-Митчеллы против машин / The Mitchells vs. the Machines (2021) WEB-DL [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразная семейка, которую едва ли можно назвать идеальной, отправляется в поездку на машине и оказывается посреди восстания роботов. Кто бы мог подумать: теперь они последняя надежда человечества на спасение!Производство: США, Канада, Франция / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Netflix)Субтитры: Русские (Forced), английские (Forced)Продолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F66795110AF47983ED38AB4410CFC1933B52851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466536   (1018350) от 30.04.2021
-
-Митчеллы против машин / The Mitchells vs. the Machines (2021) WEB-DL [H.264/720p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразная семейка, которую едва ли можно назвать идеальной, отправляется в поездку на машине и оказывается посреди восстания роботов. Кто бы мог подумать: теперь они последняя надежда человечества на спасение!Производство: США, Канада, Франция / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Netflix)Субтитры: Русские (Forced), английские (Forced)Продолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC6D7A4608BECA5C14CED312A8C392158F69E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466540   (1018339) от 30.04.2021
-
-Митчеллы против машин / The Mitchells vs. the Machines (2021) WEB-DL [H.265/1080p-LQ] [HDR, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Своеобразная семейка, которую едва ли можно назвать идеальной, отправляется в поездку на машине и оказывается посреди восстания роботов. Кто бы мог подумать: теперь они последняя надежда человечества на спасение!Производство: США, Канада, Франция / Sony Pictures Animation, Lord Miller, Columbia PicturesЖанр: Мультфильм, фантастика, комедия, приключения, семейныйРежиссер: Майкл Рианда, Джефф РоуАктеры: Эбби Джейкобсон, Дэнни Макбрайд, Майя Рудольф, Майкл Рианда, Эрик Андре, Оливия Колман, Фред Армисен, Бек Беннетт, Крисси Тиган, Джон ЛеджендПеревод: Дублированный (Netflix)Субтитры: Русские (Forced), английские (Forced)Продолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB10601C8F7F5EEFC12BE10F0E0E8B0DD51E963
 ```
 
 https://mybot314.ru/tekegram_catalog/

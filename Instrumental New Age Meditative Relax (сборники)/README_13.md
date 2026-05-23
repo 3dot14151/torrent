@@ -1,3 +1,38 @@
+###  Публикация: 570881   (389288) от 06.11.2012
+
+VA - Mystic (2002) [MP3|320 кб/с]<New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Enigma - Turn Around (singles edit)
+03. ERA - Dont'U (singles version)
+04. Yogeshwara - Dansing Circle
+05. Oliver Shanti - Water-Four Circles Of Life
+06. Karunesh - Call Of The Tribes
+07. Lesiem - Lesiem
+08. Beautiful World - Beautiful World
+09. Quinn - Siochain Agus Jonannas
+10. Orbis Mundi - Talking Violin(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E201A33D9D5BB4CEC034EEDDE4BFC2B38A3E80FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067783   (384923) от 30.10.2016
 
 VA - The Spirit of Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -6,7 +41,7 @@ VA - The Spirit of Acoustic (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrume
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +70,7 @@ VA - Acoustic Covers for Weddings (2016) [MP3|320 Kbps] <Downtempo, Chillout, In
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +99,7 @@ VA - Волшебные Инструментальные Мелодии (2015) [
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379146.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +128,7 @@ Paul Mauriat - L'ete Indien (2003) Compilation, Unofficial Release, Not On Label
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +157,7 @@ VA - Breathing Earth (2015) [MP3|320 кб/с]<Chillout, Lounge, Ambient>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +186,7 @@ VA - 50 Tracks Piano Background Music (2015) [MP3|320 кб/с]<Instrumental,Easy
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +215,7 @@ VA - Afternoon Acoustic Playlist (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ins
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +244,7 @@ VA - Piano Dream House (2005) [MP3|192-256 кб/с]<House, Piano, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +273,7 @@ VA - Музыка нового дня (2006) Ридерз Дайджест, 3CD 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_357341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -267,7 +302,7 @@ VA - Romantic Melodies / Collection 15 albums  (2004 - 2008) [MP3|320 kbps]<Pop,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +329,7 @@ VA - Acoustic Christmas (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrument
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +358,7 @@ VA - New Age Ambiente: Instrumental Collection (2018) [MP3|320 Kbps] <New Age, A
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +387,7 @@ VA - The Most Relaxing New Age Music (2018) [MP3|320 Kbps] <New Age, Relax>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +416,7 @@ VA - 1000 Original Hits (Instrumental) (2004) [MP3|256 кб/с]<Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -410,7 +445,7 @@ VA - Happy Holidays Winter Chillout Lounge (2015) [MP3|320 кб/с]<Downtempo, C
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -439,7 +474,7 @@ VA - Soul Indigo: New Age Anthology (2017) [MP3|256-320 Kbps] <New Age, Ambient,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -468,7 +503,7 @@ VA - Rise In The Sky (2020) [MP3|320 Kbps] <New Age, Ambient, Relax Instrumental
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +532,7 @@ VA - Boost Balance and Stability: 50 Top Yoga Music, Calming Healing Songs (2016
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +561,7 @@ VA - Pure Emotions (Piano and Strings) (2015) [MP3|320 кб/с]<Instrumental, Ea
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +590,7 @@ VA - Magic Sounds Of Piano Keys (2019) [MP3|320 Kbps] <Piano, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +619,7 @@ Henry Mancini & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listenin
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -613,7 +648,7 @@ Percy Faith & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening,
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -642,7 +677,7 @@ James Last & His Orchestra - Compilation (2022) [MP3|320 Kbps] <Easy Listening, 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -671,7 +706,7 @@ John Sokoloff - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -700,7 +735,7 @@ Gil Ventura - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -714,35 +749,6 @@ Gil Ventura - Compilation (2022) [MP3|320 Kbps] <Easy Listening, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E68FA6057D303591B37D055B842E5A32617DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582167   (324336) от 08.10.2022
-
-Olga Stankevich - Compilation (2022) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration
-02. The Legent
-03. Ballet
-04. Walk(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8D444DE742AA89AAD9CB42B42C1C56658A8354
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 982395   (916883) от 22.02.2016
+
+Анна – королева пиратов / Anne of the Indies (1951) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Поймав пирата Ла Рошеля, британские власти предлагают ему свободу в обмен на поимку двух морских разбойников — капитана Черная Борода и капитана Провидения. Ла Рошель попадает на борт корабля, которым командует Провидение. И тут он выясняет, что капитан Провидение — женщина…Производство: США / 20th Century Fox Film CorporationЖанр: Боевик, Драма, Мелодрама, ПриключенияРежиссер: Жак ТурнёрАктеры: Джин Питерс, Луи Журдан, Дебра Пейджит, Херберт Маршалл, Томас Гомес, Джеймс Робертсон Джастис, Фрэнсис Пьерло, Шон МакКлори, Холмс Херберт, Байрон НельсонПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E92B107B60C2C928D548C3153627AFC0FD60487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982047   (916764) от 22.02.2016
+
+Два моряка и генерал / Due marines e un generale (1965) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Идет Вторая мировая война. Два сослуживца Джой и Фрэнк, по воле случая, оказываются вовлечены в выполнение важнейшей миссии — подготовить высадку американского десанта в районе порта Анцио. Благодаря своему врожденному кретинизму они разрушают немецкую оборону и выигрывают войну…Производство: Италия / Dino de Laurentiis Cinematografica, Italian International FilmЖанр: КомедияРежиссер: Луиджи СкаттиниАктеры: Франко Франки, Чиччо Инграссия, Бастер Китон, Фред Кларк, Марта Хайер, Франко Рессель, Барбара Лой, Алессандро Сперли, Альфредо АдамиПеревод: Одноголосый закадровый (Д.Есарев)Субтитры: ОтсутствуютПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D24669A83BB89E1AB6A1B16E8685EDE739A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 982600   (916626) от 22.02.2016
+
+Захват поезда Пелэм 1-2-3 / The Taking of Pelham One Two Three (1974) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Нью-Йорк. Четверо вооружённых людей захватывают вагон метро под улицами Манхэттэна и берут всех пассажиров в заложники. Они требуют миллион долларов. Власти принимают решение удовлетворить требование террористов, они считают, что у злоумышленников нет шансов улизнуть из подземки с такими деньгами. Но у четвёрки хитрый план…Производство: США / Palladium Productions, Palomar Pictures CorporationЖанр: Боевик, Триллер, КриминалРежиссер: Джозеф СарджентАктеры: Уолтер Мэттау, Роберт Шоу, Мартин Болсам, Гектор Элизондо, Эрл Хиндмэн, Джеймс Бродерик, Дик О’Нил, Ли Уоллес, Том Педи, Беатрис УиндПеревод: Авторский х2Субтитры: ОтсутствуютПродолжительность: 01:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C26D9F960E93276A85F21322D632755710C327F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289845   (916590) от 01.02.2011
+
+Великолепная семерка / The Magnificent Seven (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В маленькой деревушке крестьяне годами страдают от бесчинств местных бандитов. Их главарь Калвера держит в страхе всю округу, мучая ее жителей постоянными поборами и наказаниями. И однажды крестьяне решают нанять себе защитников — семерых вооруженных всадников во главе с бритоголовым Крисом.
+Великолепная семерка быстро наводит порядок, но Калвейре все же удается бежать. И тогда поимка злодея и его соратников становится делом чести великолепной семерки.Жанр: Вестерн, Боевик, ПриключенияРежиссер: Джон СтерджесАктеры: Юл Бриннер, Стив МакКуин, Эли Уоллах, Хорст Буххольц, Джеймс Коберн, Чарльз Бронсон, Роберт Воон, Брэд Декстер, Розенда Монтерос, Владимир Соколофф, Рико Аланис, Пепе ХернПеревод: Дублированный / Советский дубляжПродолжительность: 02:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4A8E7D4F88BBD10758ED83B8185C09246F9AC48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 290093   (915056) от 02.02.2011
 
 Веревка и кольт (Кладбище без крестов) / Une corde, un Colt... (Cimitero senza croci) (1969) DVDRip
@@ -6,7 +111,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915020.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -245,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -433,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -459,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906971.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -574,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34BCE1DB0072FF4B1CC89217806EA9F37E3AD7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991383   (905764) от 28.02.2016
-
-Римские каникулы / Roman Holiday (1953) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Рим с официальным визитом прибывает юная принцесса Анна. Дни её расписаны по минутам — приемы, посещения фабрик, интервью… в общем, тоска! Она совсем девчонка, ей хочется свободы и она убегает из дворца на улицу, где гуляют, поют и целуются жители Вечного города.
-Увы, незадолго до побега доктор сделал ей укол снотворного и принцесса засыпает на скамейке. А мимо (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Комедия, Мелодрама, ДрамаРежиссер: Уильям УайлерАктеры: Грегори Пек, Одри Хепберн, Эдди Альберт, Хартли Пауэр, Харкорт Уильямс, Маргарет Роулингс, Туллио Карминати, Паоло Карлини, Клаудио Эрмели, Паула БорбониПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18BAE3D6E0FDA998BC0ABAB0C8D962ADDD314224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985713   (905566) от 28.02.2016
-
-Совершеннолетие / Age of Consent (1968) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брэдли Морахэн — знаменитый австралийский художник, выплачивающий большие алименты, готовится к отъезду на родину. Он направляется на Большой Барьерный Риф, чтобы поселиться в полуразрушенной хижине на острове своей мечты недалеко от материка. Живут на этом острове еще только пропитанная джином старуха, похожая на ведьму, ее внучка Кора и Избель Марли изголодавшаяся (   Читать дальше...   )Производство: АвстралияЖанр: Драма, Мелодрама, Комедия, БиографияРежиссер: Майкл ПауэллАктеры: Джеймс Мейсон, Хелен Миррен, Джек МакГоурэн, Нева Карр-Глинн, Андония Катсарос, Майкл Бодди, Харольд Хопкинс, Слим ДеГрей, Макс Мелдрам, Хадсон ФосеттПеревод: Любительский одноголосый закадровый (Гундос)Субтитры: Русский, АнглийскийПродолжительность: 01:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BB3CF1F61E78DB982C5E7E126E9AAFD8377534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759581   (904970) от 23.02.2014
-
-Последний из Могикан / The Last of the Mohicans (1920) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904970.jpg" />
-</div>
-
-
-###  Подробнее
-
-За свою долгую кинематографическую жизнь, сам сюжет книги Фенимора Купера выдерживал многочисленные изменения, сжатия и искажения сюжета. Неизменными были только герои. Есть некоторые фильмы, которые просто необходимо посмотреть за их историческую ценность.
-Такова и эта немая версия последнего из могикан. Историческая точность не является целью и книги, и этого фильма. (   Читать дальше...   )Производство: США, Sling ShotЖанр: Драма, приключения, экранизацияРежиссер: Кларенс Браун, Морис ТурнёрАктеры: Уоллес Бири, Барбара Бедфорд, Алан Роско, Лиллиэн Холл, Генри Вудворд, Джеймс Гордон, Джордж Хэкэторн, Нельсон Макдауэлл, Гарри Лоррэйн, Теодор Лёрх, Джек МакДональд, Сидни Дин, Джозеф Синглтон, Борис Карлофф и др.Перевод: Одноголосый любительский (озвучены интертитры)Субтитры: Английские интертитрыПродолжительность: 01:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CCEA9AC9535A9679C8A76A7B6F24A91CDA9D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987967   (904151) от 29.02.2016
-
-Обезьяньи проделки / Monkey Business (1931) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904151.jpg" />
-</div>
-
-
-###  Подробнее
-
-В трансатлантическом плавании братья Маркс устраивают свои обычные выходки и умудряются досадить почти всем на борту.Производство: США, Paramount pictureЖанр: КомедияРежиссер: Норман З. МакЛеодАктеры: Граучо Маркс, Харпо Маркс, Чико Маркс, Зеппо Маркс, Роклифф Феллоуз, Гарри Вудс, Тельма Тодд, Рут Холл, Том КеннедиПеревод: Двуголосый закадровыйПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E270DE3E060AAF027FBABD551C5329D62990066
 ```
 
 https://mybot314.ru/tekegram_catalog/

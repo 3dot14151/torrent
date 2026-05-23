@@ -1,4 +1,111 @@
 https://t.me/izofen
+###  Публикация: 1870915   (1068808) от 
+
+Э. Фрид, К. Джейкобс, Э. Рожа | Эффективный разговорный ИИ. Создаем чат-ботов, которые действительно работают (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Новые мощные фреймворки для разработки чат-ботов и модели генеративного ИИ практически сняли ограничения, связанные с некорректным распознаванием намерений пользователя и генерацией бессодержательных ответов. Освойте разработку чат-ботов на основе больших языковых моделей (LLM) и других современных инструментов, а также проектирование разговорных систем, ориентированных (   Читать дальше...   )Жанр: Компьютерная литература. Искусственный интеллект. Нейронные сетиПеревод: В.ЗагребинИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A665D9E118663B69ECAF84F429A356C87577277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1868629   (1068140) от 01.05.2026
+
+Анатолий Зеленин, Александр Кропп | Apache Kafka в действии. От базовых концепций до продакшена [2 книги] (2025, 2026) [PDF, EPUB, MOBI, AZW3] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга Apache Kafka в действии это:
+- Возможности распределенной потоковой обработки в Kafka.
+- Реализация решений для работы с данными в реальном времени.
+- Интеграция Kafka в корпоративные среды.(   Читать дальше...   )Жанр: Компьютерная литератураПеревод: М. ПоповичИздательство: Питер, ManningФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363E9F74C316530CB14C17C6E1524DE00FEEF375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1869191   (1068097) от 04.05.2026
+
+Томаж Братанич, Оскар Хане | Основы GraphRAG. Улучшенный RAG на базе графов знаний [2 книги] (2025, 2026) [PDF, EPUB, MOBI, AZW3] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Система генерации ответа, дополненная результатами поиска (Retrieval Augmented Generation, RAG), автоматически выбирает и предоставляет контекст, характерный для конкретной предметной области, что значительно улучшает способность LLM генерировать точные ответы без искажений. Подход GraphRAG основывается на использовании графа знаний для структурирования входных данных (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Е.Бартов (ООО «Прогресс книга»)Язык: Русский, английскийИздательство: Питер, ManningФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA49E93FCA0CE9CBF4B753F15EEB0E9075F561F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867159   (1066811) от 
+
+K. Satirli, T. Dolezal / К. Сатирли, Т. Долезал | Terraform. Сборник рецептов / Terraform Cookbook [2 книги] (2025, 2026) [PDF, EPUB] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство по использованию Terraform для автоматизации облачной инфраструктуры. Книга построена по принципу сборника рецептов, где каждая задача рассматривается с объяснением «как» и «почему». Она подходит как для начинающих, помогая им освоить основы Terraform и концепции «инфраструктура как код», так и для опытных инженеров, предлагая продвинутые (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: К.НазароваЯзык: Русский, английскийИздательство: АЛИСТ; O’Reilly MediaФормат: PDF, EPUBКачество: Обработанный скан, Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FD06F7C6986608B1EBBF27884CC162E895A18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1866711   (1066279) от 21.04.2026
 
 Barry Burd | Java For Dummies. 9th Edition (2025) [PDF, EPUB] [EN]
@@ -7,7 +114,7 @@ Barry Burd | Java For Dummies. 9th Edition (2025) [PDF, EPUB] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -25,6 +132,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862356   (1064141) от 30.03.2026
+
+Дэвид Коэн, Кристиан Штурм | Linux для разработчиков [2 книги] (2024, 2025) [PDF, DJVU] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Разработчики всегда стремятся подняться на новый уровень мастерства, но большинство полностью теряется, когда дело доходит до командной строки Linux.
+С помощью этой книги вы сделаете следующий важный шаг в своей карьере. Большую часть навыков, которые вы получите после ее прочтения, можно сразу же применить на практике, чтобы стать более эффективным разработчиком. (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: Р. ЧебыкинЯзык: Русский, английскийИздательство: Packt Publishing, Спринт БукФормат: PDF, DJVUКачество: Изначально электронное (ebook), Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C4F29FC4AFC017F50078D250678AA8B2B01A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860342   (1061646) от 20.03.2026
+
+Ранас Мукминов | Claude Code. Полное руководство по AI-ассистенту для разработчиков (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами – наиболее полное русскоязычное руководство по Claude Code, революционному AI-ассистенту для разработчиков, созданному компанией Anthropic. Включает описание книги и перечень ключевых тем: написание кода, рефакторинг, отладка, тесты, MCP, DevOps, безопасность, реальные проекты.
+Каждая глава содержит практические примеры, фрагменты кода, советы и предупреждения. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E684651163B99AF7212E3C339895FB62A1BC7B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859576   (1061304) от 16.03.2026
+
+Массимо Бертаччини | Алгоритмы криптографии [2 книги] (2024, 2026) [PDF] [RU, EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Изучите математическую логику шифрования и дешифрования сообщений, постепенно переходя от базовых принципов ко все более сложным концепциям. Освоив эллиптические кривые, протоколы с нулевым разглашением, гомоморфное шифрование и основы квантовых вычислений, вы заложите прочный фундамент для дальнейшего развития в криптографии.
+Познакомьтесь с самыми инновационными (   Читать дальше...   )Жанр: Компьютерная литератураПеревод: С. ЧерниковЯзык: Русский, английскийИздательство: Packt Publishing, Sprint BookФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952621AEF955CE082FD31E2B342CA0B5DEEECC34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1859434   (1061184) от 15.03.2026
+
+Frances Buontempo | Introducing C++: The Easy Way to Start Learning Modern C++ (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+This book cuts through the noise, focusing on the essential elements of C++ with hands-on projects that quickly build your skills and confidence. Author and C++ expert Frances Buontempo gets you up to speed quickly with the latest features and best practices of the language, preparing you for more advanced exploration.
+- Write clean and efficient C++ code
+- Understand (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E76DFAA0E26E1BB93EB65ACF8B9E84D00C3199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858714   (1060557) от 12.03.2026
+
+С. Чернышев, Ю. Петров, С. Ильин и др. | Основы Flutter (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для всех, кто хочет погрузиться в эффективную кроссплатформенную разработку с Flutter. Вы не только изучите синтаксис языка Dart и основы фреймворка, но и сразу примените знания на практике, разрабатывая проект, который развивается на протяжении всей книги. После каждой новой темы вас ждут задания по доработке его кодовой базы, что позволит уверенно (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BA9860B34117EAA198BBEB11E5F6BBAAF6A2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856333   (1059090) от 28.02.2026
 
 Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
@@ -33,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -53,6 +295,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853345   (1056720) от 14.02.2026
+
+Валерий Рубанцев | Если бы у Диофанта был компьютер. Решаем исторические задачи по математике (2026) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга Валерия Рубанцева «Если бы у Диофанта был компьютер» посвящена решению классических исторических математических задач, прежде всего диофантовых уравнений, с использованием современных компьютерных алгоритмов и программирования. Она предлагает новый взгляд на задачи древности, сочетая историю математики с практическими навыками вычислений, что делает ее полезной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77ECAD8121E1CDFE07A61B47B03B88ADAC310B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852858   (1056558) от 12.02.2026
 
 Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
@@ -61,7 +329,7 @@ Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -89,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -115,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -141,7 +409,7 @@ Robin Nixon | Learning PHP, MySQL & JavaScript. A Step-by-Step Guide to Creating
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -167,7 +435,7 @@ Joos Korstanje | Advanced Forecasting with Python. Mastering Modern Forecasting 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055070.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -193,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -219,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -237,6 +505,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850563   (1054616) от 31.01.2026
+
+Илья Кантор | Современный учебник JavaScript [3 книги] (2026) [EPUB, PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого учебника вы можете изучить jаvascript, начиная с нуля и заканчивая продвинутыми концепциями вроде ООП. Мы будем использовать браузер в качестве окружения, но основное внимание будет уделяться именно самому языку jаvascript. Давайте посмотрим, что такого особенного в jаvascript, чего можно достичь с его помощью, и какие другие технологии хорошо с ним (   Читать дальше...   )Жанр: ПрограммированиеЯзык: русскийИздательство: javascript.ruФормат: EPUB, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63B0AE81725267A9B84C735385FC9C6E8EA1603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849347   (1053554) от 22.01.2026
 
 Alex Vasilev | Python by Example (2025) [PDF] [EN]
@@ -245,7 +539,7 @@ Alex Vasilev | Python by Example (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -272,7 +566,7 @@ Shakuntala Gupta Edward, Rahul Bhattacharya, V. Sinha | Enterprise Guide for Imp
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -298,7 +592,7 @@ Diego Oliva, Marco Antonio Perez Cisneros и др. | Initialization and Diversit
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -324,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -351,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -377,7 +671,7 @@ Anita Goel | Python Programming. An Object-Oriented Approach (2025) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -388,299 +682,6 @@ This book covers the core concepts of Python Programming to enable students unde
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B2F915A796FCDFBCE288533451740060B10B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849037   (1053326) от 20.01.2026
-
-Michael D. Smith | Problem Solving with Python. Using Computational Thinking in Everyday Life (2026) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053326.jpg" />
-</div>
-
-
-###  Подробнее
-
-An innovative new way to teach computational thinking and problem solving that makes programming accessible to anyone.
-
-Problem solving with computation has become a basic literacy required of modern life, but the traditional way we teach students to code doesn’t work for everyone. This innovative textbook provides a highly engaging alternative approach. Problem (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеЯзык: АнглийскийИздательство: The MIT PressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCA258FC0C0DFC5870ACF91D1A2E7672254F858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849017   (1053321) от 20.01.2026
-
-Юйдун Цзинь | Алгоритмы и структуры данных с примерами на Python (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этой книги – при помощи наглядных иллюстраций и исполняемых примеров кода помочь читателю понять ключевые идеи алгоритмов и структур данных и освоить их воплощение в программном коде. Если вам не хватает времени на чтение множества учебников, она станет спасательным кругом в океане знаний.
-Книга будет особенно полезна всем, у кого есть начальные навыки программирования, (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C160815309EBF984CE16EFE24DB33D8700E3B569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849097   (1053231) от 21.01.2026
-
-Chris Fregly | AI Systems Performance Engineering. Optimizing Model Training and Inference Workloads with GPUs, CUDA, and PyTorch (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elevate your AI system performance capabilities with this definitive guide to maximizing efficiency across every layer of your AI infrastructure. In today's era of ever-growing generative models, AI Systems Performance Engineering provides engineers, researchers, and developers with a hands-on set of actionable optimization strategies. Learn to co-optimize hardware, (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849095   (1053230) от 21.01.2026
-
-Priyanka Vergadia, Valliappa Lakshmanan | Visualizing Generative AI. How AI Paints, Writes, and Assists (2025) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Generative AI has the potential to innovate and evolve business processes, but workers are still figuring out how to build with, optimize, and prompt GenAI tools to fit their needs. And of course, there are pitfalls to avoid, like security risks and hallucinations. Getting it right requires an intuitive understanding of the technology’s capabilities and limitations. (   Читать дальше...   )Жанр: Искусственный интеллект, Программирование, Компьютерная литератураЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9D20864D3E05062088489C327A1CC836C32FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848875   (1053013) от 19.01.2026
-
-Александр Торговкин | Тестирование видеоигр, или Легкий способ попасть в геймдев (2024) [PDF, FB2, EPUB]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Играть в игры и получать за это деньги? Звучит как работа мечты! Но чем на самом деле занимаются тестировщики?
-Тестирование – критически важный этап при создании видеоигр, позволяющий разработчикам исправить ошибки и недочеты, а игрокам – сполна насладиться геймплеем.
-На страницах книги ты найдешь ответы на самые важные вопросы о профессии QA-специалиста в области (   Читать дальше...   )Жанр: Тестирование, Программирование, ВидеоигрыИздательство: БомбораФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook), OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADB32F52439101CE641A4DBF4AE02198D1FDA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848295   (1052804) от 16.01.2026
-
-Валерий Рубанцев | Быстрая компьютерная графика (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052804.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «Быстрая компьютерная графика» вы продолжите знакомство с компьютерной графикой, но уже с модулем WPFObjects. Его вы также получаете бесплатно и сразу с установщиком среды разработки PascalABC.NET. С ним вы легко и просто сможете создавать любые игровые объекты и перемещать их по окну программы мышкой в любую сторону. Эти объекты сами перерисовываются, поэтому (   Читать дальше...   )Жанр: Программирование, пособие, графикаИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D54CE8E84ECA5CB7776F466A59211D78249763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848481   (1052671) от 17.01.2026
-
-Robert C. Martin | Clean Architecture. A Craftsman’s Guide to Software Structure and Design (2018) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Building upon the success of best-sellers The Clean Coder and Clean Code, legendary software craftsman Robert C. "Uncle Bob" Martin shows how to bring greater professionalism and discipline to application architecture and design.
-As with his other books, Martin's Clean Architecture doesn't merely present multiple choices and options, and say "use your (   Читать дальше...   )Жанр: ПрограммированиеЯзык: АнглийскийИздательство: Pearson EducationФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E701E8498E2F123B0BB6D93C225AE832C036BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848129   (1052573) от 16.01.2026
-
-Бернд Ульман | Программирование аналоговых и гибридных компьютеров (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052573.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере того как классические цифровые компьютеры приближаются к своим физическим и архитектурным границам, стремительно растет интерес к аналоговым и гибридным вычислениям. Такие компьютеры могут превосходить классические цифровые по скорости работы, общей вычислительной мощности, энергоэффективности, а также обладать чрезвычайно высокой степенью параллелизма. Данная (   Читать дальше...   )Жанр: ПрограммированиеИздательство: ДМК ПрессФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA6E23834EF11F0232F47661F7701F43031A057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847668   (1052380) от 13.01.2026
-
-В.Ю. Ачкасов | Программирование на Lazarus. Учебное пособие [4-е  изд.] (2025) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052380.jpg" />
-</div>
-
-
-###  Подробнее
-
-В  учебном  пособии  рассматривается  среда  программирования  Lazarus  и  компилятор FPC. Lazarus —  свободно распространяемая среда программирования на Объектом Паскале, бесплатный  аналог  Delphi.  В  издании  подробно  рассматриваются  все  аспекты  создания Windows-приложений на базе этой среды.
-Учебное  пособие  предназначено  для  студентов,  обучающихся  по  направлениям подготовки, (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Ай Пи Ар Медиа,Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E7166024A3B29AAEBCE01A8BAFBFCFB2A7E49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847678   (1052363) от 14.01.2026
-
-Е.В. Кукушкина | Начальные сведения о языке программирования Visual Basic for Application [3-е издание] (2024) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052363.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассматриваются основы языка программирования VBA, применяемого для разработки собственных приложений в офисном пакете Microsoft. В приложении Word рассматриваются возможности создания диалоговых окон, разработка макросов и работа с документом. В приложении Excel рассматривается создание пользовательских функций с помощью VBA для автоматического (   Читать дальше...   )Жанр: Компьютерная литература, ПрограммированиеИздательство: Издательство Уральского университетаФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D6FC3F0C3575608CA91FC23AB7EE06E9450520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847053   (1052000) от 10.01.2026
-
-Валерий Рубанцев | Черепашья графика на занимательных примерах (2023) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во многих языках программирования, а теперь и в паскале, есть Черепашка – исполнитель простых команд для вычерчивания линий. Черепашка наглядно показывает пошаговый процесс графических построений. Если Черепашка чертит линию, то мы видим, как она приползает в начало этой линии, поворачивается в сторону конца линии и медленно ползёт «из пункта А в пункт Б», оставляя (   Читать дальше...   )Жанр: ПрограммированиеИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3044A43C45E93BEC4671570635C63EDD233F3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

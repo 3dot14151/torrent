@@ -1,3 +1,107 @@
+###  Публикация: 1566679   (244694) от 30.07.2022
+
+In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Вы проникли на космический корабль, где проводят различные эксперименты. Сможете ли вы открыть это и спасти человечество? In the Space - это научно-фантастический квест, где вам нужно будет проверить свои навыки, вам придется решать различные головоломки и наблюдать за подсказками, которые можно найти по всему космическому кораблю.Тип издания: LicenseРазработчик: Adrian SystemsЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFFE75CDBF14597BC8502879555B484D25F9297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540946   (244676) от 01.04.2022
+
+Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Catie in MeowmeowLand - это классическая юмористическая приключенческая игра в жанре "укажи и щелкни". Сюжет разворачивается в чудесном и странном мире, полном кошек и смешных персонажей. Кейти гуляла в своем саду, когда появился странный белый котик. Девочка пошла за ним и очутилась в странном мире под названием "Мяуляндия". Теперь ей нужно найти (   Читать дальше...   )Тип издания: LicenseРазработчик: ARTilleryЖанр: Приключение, Квест, ГоловоломкаЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163FEEC40A43AAB1912700A92A69987D8C26DFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566869   (244581) от 31.07.2022
+
+Noctem (2022) [Multi] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Noctem - это психологический хоррор от первого лица с элементами реального жизненного опыта. Погрузитесь в захватывающий опыт с атмосферным, реалистичным окружением и раскройте ужасающие давно сокрытые секреты и тайну, которая распространяется по всему Треугольнику Аляски. Действие Noctem происходит в маленьком городке на Аляске с красивой природой и туманом, где (   Читать дальше...   )Тип издания: LicenseРазработчик: Dreamtale StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, ГреческийЯзык интерфейса: Английский, Греческий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966E456F94DE489BE6D25BB8207D250DBF16757E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567089   (244443) от 01.08.2022
+
+Dare to Stay (2022) [En] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В городке Редстоун, штат Пенсильвания, зло возвращает хаос, который когда-то преследовал семьи в 1950-х годах. Детектив Аласдер, успешный следователь, переназначается и вынужден вновь пережить навязчивые дела своего прошлого. В 1950-х годах в маленьком городке под названием Редстоун, штат Пенсильвания, произошла серия необъяснимых событий, где исчезли родители нескольких (   Читать дальше...   )Тип издания: LicenseРазработчик: Dared Gaming StudiosЖанр: Хоррор, РасследованиеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822C9CBF36C2C34FAA185C32BA561E63D25502D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567081   (244343) от 01.08.2022
 
 The Chronicle (2022) [En] (1.0) License TiNYiSO
@@ -6,7 +110,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ JANITOR BLEEDS (2022) [Ru/Multi] (1.0.41) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +474,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Life after Death (2022) [Ru/En] (10.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Scorn (2022) [Ru/Multi] (Build 9713371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342725   (222295) от 03.12.2019
-
-Waxworks (1992) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кошмар начался, когда вам было восемь лет, и ваш брат-близнец Алекс без вести пропал в черном лабиринте под кузницей Виста, где ваш дядя Борис хранил свои одержимые демонами восковые фигуры. Прошло 20 лет... Дядя Борис умер, а вы получили в наследство его адскую коллекцию и жуткое известие о том, что Алекс жив. Одержимый древним семейным проклятием, он намеревается (   Читать дальше...   )Тип издания: LicenseРазработчик: HorrorsoftЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510397   (221731) от 30.11.2021
-
-The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец здесь. Апокалипсис, который чертовски реален, кроваво-библейский и кровоточащий безумный. Нации находятся в свободном падении и грызутся друг другу в глотку, брат сражается с братом, дети поднимают руки против своих старших. Хотя было ясно, что мир вот-вот будет уничтожен, произошел сбой, и вместо термоядерной мегатонной бомбы все, что мы получили, - это влажная (   Читать дальше...   )Тип издания: LicenseРазработчик: Sylen StudioЖанр: Приключение, Визуальные новеллы, ДрамаЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1380214FF40EC97639DB0D2D69024A914FDDA25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424236   (221509) от 20.11.2020
-
-Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая классическая adventure с видом от первого лица по мотивам серии книг писателя Терри Брукса, переводившихся и на русский язык. Несмотря на наличие в игре боевой и ролевой составляющей, они не очень значительны, поэтому игру можно, хоть и с некоторой натяжкой, отнести именно к приключенческим играм. Для начала необходимо сказать несколько слов о мире, в котором (   Читать дальше...   )Тип издания: UnofficialРазработчик: Legend EntertainmentЖанр: Adventure, QuestЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225006   (220225) от 14.12.2018
-
-Lake Ridden (2018) [En] (1.5.1505) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lake Ridden (Озеро Риден) - игра-головоломка, основанная на истории, от первого лица. Восхитительное сверхъестественное приключение, в котором вы разгадываете загадочное прошлое, пытаясь найти свою сестру. К счастью, вы не одиноки .... В 1988 году тринадцатилетняя Мария (Marie) со своей младшей сестрой отдыхает в кемпинге. Теплое лето обретает признаки осени.Тип издания: LicenseРазработчик: Midnight HubЖанр: Приключение, Головоломка, МистикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B02D2A760920AF54B105EE6D3BF775EFE5E733
 ```
 
 https://mybot314.ru/tekegram_catalog/

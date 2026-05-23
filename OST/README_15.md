@@ -1,3 +1,61 @@
+###  Публикация: 1319928   (477192) от 15.08.2019
+
+The Soundtrack Studio Stars - Sounds of Tarantino (2014) [MP3|320 Kbps] <Soundtrack, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Bang / My Baby Shot Me Down (from Kill Bill Vol. 1)
+02. Misirlou (from Pulp Fiction)
+03. Stuck In the Middle With You (from Reservoir Dogs)
+04. Who Did That to You (from Django Unchained)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6444A5F843F54ADF8AA7CEDAE9F2FFED16320618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319910   (475882) от 01.08.2022
+
+Запрещенный прием (расширенный) - Sucker Punch (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Official soundtrack:
+
+01. Emily Browning - Sweet Dreams (are made of this) (05:19)
+02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320106   (475071) от 16.08.2019
 
 Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
@@ -6,7 +64,7 @@ Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +93,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +122,7 @@ Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +148,7 @@ Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи �
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -119,7 +177,7 @@ Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -148,7 +206,7 @@ Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +235,7 @@ Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -206,7 +264,7 @@ Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -235,7 +293,7 @@ Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -264,7 +322,7 @@ Tommy Tallarico - Evil Dead: Hail To The King (2000) [MP3|~190 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448586.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +380,7 @@ Edward Shearmur - K-PAX / Планета Ка-Пэкс (2001) [MP3|320 кб/с]<
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -386,7 +444,7 @@ Nile Rodgers & VA - Путешествие в Америку / Coming to America
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -415,7 +473,7 @@ Sergey Eybog - Бесконечное Лето (Original Game Soundtrack) (2013)
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Underworld Collection 1-5 / Другой мир 1-5 (2003-2016) [MP3|128-32
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -473,7 +531,7 @@ VA - Friday the 13th / Пятница 13-е (2009) [MP3|192 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +589,7 @@ Hans Zimmer - Inferno / Инферно (Original Motion Picture Soundtrack) (201
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +618,7 @@ Roque Banos - Don’t Breathe / Не дыши (Original Motion Picture Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +647,7 @@ VA - Criminal Mind / Мыслить как преступник (2005-2015) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,7 +676,7 @@ doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -647,7 +705,7 @@ Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtr
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -676,7 +734,7 @@ Johnny Jewel - Lost River / Как поймать монстра (Original Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -690,64 +748,6 @@ Johnny Jewel - Lost River / Как поймать монстра (Original Motio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063651   (432155) от 17.10.2016
-
-VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Cardon - Overture (01:54)
-02. Derek Duke - Rally The Heroes (02:13)
-03. Derek Duke - Temple Of Anubis (02:00)
-04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72CF5E974B6CF60E30035D3DB92D18C5FFC8DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946288   (429316) от 12.10.2015
-
-VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Пускепалис - Intro
-02. Би-2 feat. Диана Арбенина - Тише и тише
-03. D. Brown feat. Elizaveta feat. Би-2 - Я ищу
-04. Би-2 feat. Варя Демидова - Книга(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

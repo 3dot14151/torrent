@@ -1,3 +1,82 @@
+###  Публикация: 1518776   (152020) от 21.12.2021
+
+Обитель зла: Раккун-Сити / Resident Evil: Welcome to Raccoon City (2021) WEB-DL [H.264/1080p] [EN / EN, FR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Раккун-Сити, где когда-то располагался фармацевтический гигант Umbrella и вовсю бурлила жизнь, превратился в город-призрак. Компания давно переехала, но на ее месте глубоко под землей набирает силу великое зло. Когда оно вырвется на свободу, единственный шанс выжить уцелевшей горстке людей — сплотиться и узнать всю правду о корпорации Umbrellа.Производство: Германия, Франция, США / Constantin Film, Davis FilmsЖанр: ужасы, фантастика, боевик, триллерРежиссер: Йоханнес РобертсАктеры: Кая Скоделарио, Ханна Джон-Кэймен, Робби Амелл, Том Хоппер, Эван Джогиа, Донал Лог, Нил МакДонаф, Лили Гао, Чад Рук, Марина МазепаПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские, французскиеПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260ED0624E6BC8F619FE9E139E665B945437098E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271018   (151194) от 22.12.2018
+
+Восьмой класс / Eighth Grade (2018) BDRip [H.264/1080p-LQ] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История Кейлы Дэй — восьмиклассницы, которая ведёт канал на YouTube о доверии и самооценке, помогающий ей справляться с переходным возрастом.
+Фильм получил премию Международного кинофестиваля в Сан-Франциско, две номинации на премию «Готэм» и ряд других. В декабре 2018 года картина «Восьмой класс» вошла в список 10 лучших фильмов 2018 года, опубликованный Американским (   Читать дальше...   )Производство: США, A24Жанр: Драма, КомедияРежиссер: Бо БёрнэмАктеры: Элси Фишер, Джош Гамильтон, Эмили Робинсон, Кэтрин Оливьер, Джек Райан, Дэниэл Золгадри, Фред Хехингер, Имани Льюис, Люк Прэйл и др.Перевод: ОтсутствуетСубтитры: Русские, АнглийскиеПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FA604EE7445006DDAC7188BE7A3B616BAE8E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271102   (151105) от 22.12.2018
+
+Рома / Roma (2018) WEBRip [H.264/1080p-LQ] [Spa / RU, EN and etc. Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История жизни обычной семьи среднего класса в Мехико 1970-х.Производство: Мексика, США / Esperanto Filmoj, Participant MediaЖанр: ДрамаРежиссер: Альфонсо КуаронАктеры: Ялица Апарисио, Марина Де Тавира, Диего Кортина Отри, Карлос Перальта, Марко Граф, Даниэла Демеса и др.Перевод: ОтсутствуетЯзык озвучки: ИспанскийСубтитры: русские, английские, бразильские (португальские), датские, голландские, европейские (испанские), финские, французские, немецкие, греческие, индонезийские, итальянские, букмольские (норвежские), польские, португальские, испанские, шведские, турецкиеПродолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0BB7E8AB033293BE3C52966F822304DEE090A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194787   (150815) от 27.12.2017
 
 Бегущий по лезвию 2049 / Blade Runner 2049 (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +85,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141813.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140493.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF8AB6E01515E61B809046D6D6349625E492BA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196073   (137890) от 31.12.2017
-
-Иностранец / The Foreigner  (2017) BDRemux [H.264/1080p] [EN / EN, Ch, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший спецагент, ветеран вьетнамской войны Цюань давно сложил оружие и завел мирную жизнь. Но после того, как в теракте прямо на глазах погибает его дочь-подросток, видя, что власти не спешат разыскивать преступников, Цюань сам начинает поиск убийцы. Он пойдет на все, чтобы совершить праведное возмездие...Производство: Великобритания, Китай, США / STX Entertainment , Sparkle Roll Media , Wanda Media Co. , Huayi Brothers Media , Arthur Sarkissian Productions, The Entertainer Production Company , thefyzzЖанр: боевик, триллер, драма, криминал, детективРежиссер: Мартин КэмпбеллАктеры: Джеки Чан, Пирс Броснан, Майкл МакЭлхаттон, Лю Тао, Чарли Мерфи, Орла Брэйди, Кэти Льюнг, Рэй Фиарон, Руфус Джонс, Марк Тэнди, Джон Кронин, Каолан БирнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, китайские, испанскиеПродолжительность: 01:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1430AC6781609D81DF119D9E6A5D6EBF5CF688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273321   (137367) от 31.12.2018
-
-Хэллфест / Hell Fest (2018) BDRemux [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три подруги встречаются накануне Хэллоуина и вместе со своими парнями решают отметить праздник походом на Хэллфест, популярный фестиваль, главная цель организаторов и участников которого — напугать друг друга до полусмерти. Но для серийного убийцы в маске Хэллфест — это не просто карнавал ужасов, а площадка для смертельных игр. Он кромсает и душит у всех на виду, (   Читать дальше...   )Производство: США / Tucker Tooley Entertainment, Ingenuity Studios , Valhalla Motion PicturesЖанр: УжасыРежиссер: Грегори ПлоткинАктеры: Эми Форсайт, Рейн Эдвардс, Бекс Тейлор-Клаус, Кристиан Балис, Мэтт Меркьюрио, Роби Аттал, Тони Тодд, Кортни Дитц, Стивен Конрой, Микаэль ТурекПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4621002E74ED5403F4BE843CD1CBBA6D1B7B75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680231   (134469) от 28.11.2023
-
-Оставленные / The Holdovers (2023) WEB-DL [H.264/1080p] [EN / En Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Занудный учитель истории из отдаленной подготовительной школы вынужден остаться в кампусе на время каникул с проблемным учеником, которому некуда идти.Производство: США / Miramax Films, CAA Media FinanceЖанр: драма, комедияРежиссер: Александр ПэйнАктеры: Пол Джаматти, Доминик Сесса, Давайн Джой Рэндольф, Кэрри Престон, Брейди Хепнер, Ian Dolley, Jim Kaplan, Майкл Провост, Эндрю Гарман, Нахим ГарсиаПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4ACAC12E90107DC9BAF682AE6AF773F8D9412E
 ```
 
 https://mybot314.ru/tekegram_catalog/

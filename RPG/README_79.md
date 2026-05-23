@@ -1,3 +1,81 @@
+###  Публикация: 1803213   (13930) от 21.06.2025
+
+Empire of Sin (2020) [Ru/Multi] (1.08.0/dlc) Repack FitGirl [Premium Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Empire of Sin - стратегическая игра от Romero Games и Paradox Interactive, которая перенесет вас в сердце преступного мира Чикаго 1920-х годов, когда там царил сухой закон. Станьте одним из четырнадцати криминальных боссов, реальных или созданных на основе реального образа: например, Аль Капоне, Стефани Сент-Клер или Голди Гарно. Соберите разношерстную банду, постройте (   Читать дальше...   )Тип издания: RepackРазработчик: Romero GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE82CCDC140552713DCEBEBC0FEAFDEEC8F8648B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803071   (13921) от 21.06.2025
+
+Soulstone Survivors (2022) [Ru/Multi] (1.0f/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Soulstone Survivors - это динамичный экшен-рогалик, где вы уничтожаете орды врагов и прокладываете путь к божественной силе. В роли охотника бездны используйте разрушительные навыки и открывайте разрушающие баланс синергии на пути к абсолютной власти. Сразитесь с Владыками бездны и их приспешниками, соберите камни души и станьте богом!Тип издания: RepackРазработчик: Game Smithing LimitedЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7063C0A3EADC8EC6CFD0A2C25339B885C0B7ADA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751969   (13861) от 22.06.2025
+
+Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры Shadows of Doubt происходит в 1980-х, в сверхиндустриализованной альтернативной реальности. Примерьте на себя роль сыщика: используйте специальные устройства, как настоящий детектив, ищите улики и получайте деньги за раскрытие преступлений, поиск и продажу полезной информации и так далее.Тип издания: LicenseРазработчик: ColePowered GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D1F9FB1807ED0B2433CBAE7F23C3823FA4F6A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708336   (13837) от 22.06.2025
 
 Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
@@ -6,7 +84,7 @@ Stolen Realm (2021) [Ru/Multi] (1.2.7/dlc) Repack FitGirl [Complete Bundle]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13796.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Yao-Guai Hunter (2023) [Multi] (1.0.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Svarog's Dream (2023) [En] (7.0.6/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Fallout 3 (2009) [Ru] (1.7.0.4/dlc) Repack EXROW [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Forgotten Mines (2024) [Multi] (1.1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13494.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.05/dlc) Repack seleZen [S
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13439.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0.184/dlc) Repack FitGirl 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (Mod HotFix) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Fate Seeker II (2) (2021) [Multi] (18655320) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Warhammer 40,000: Space Marine II (2) (2024) [Ru/Multi] (8.0.0.1/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.3/dlc) Repack FitGirl [Ultimate Editio
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Crown Gambit (2025) [Ru/Multi] (1.0.3) Repack FitGirl [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Bygone Dreams (2025) [Ru/Multi] (1.0.0.4) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Trident's Tale (2025) [Multi] (20250529 133011 79336) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB983BC1ABBAFA35B1CFF6531B59BE4FA54A2E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791320   (12827) от 02.07.2025
-
-Sandwalkers (2024) [Ru/Multi] (2.1.2) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandwalkers – это пошаговый «рогалик», где главной вашей целью является исследование. Соберите команду и отправляйтесь в путь по враждебным землям. Сражайтесь и постигайте древние тайны, чтобы найти и спасти Мать-древо Умаму (Mother Tree Umama). Каждые десять лет племя Мка отправляет караван в глубины Фитхи. Это вечная буря, которая разделила племена Увандо и сделала (   Читать дальше...   )Тип издания: LicenseРазработчик: Goblinz StudioЖанр: Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9762B02336B3D91B04D63135CD0804DFB7C6BAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776092   (12818) от 02.07.2025
-
-Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12818.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой экшн-RPG вам предстоит стать монстром-оборотнем, способным принимать форму убитых им чудовищ. Отправляйтесь в путешествие в одиночку или берите с собой до 3 друзей в совместном режиме и откройте темные секреты, сокрытые в легендарном городе Ааша. Становитесь сильнее, отыскивая новое снаряжение и изучая умения как для человеческой, так и для чудовищной формы, (   Читать дальше...   )Тип издания: LicenseРазработчик: AftnareldЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2907D4505CE21B7E13548B57DA606F570616D64D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700967   (12816) от 02.07.2025
-
-Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caribbean Legend - пиратская РПГ с открытым миром погружает в захватывающую эпоху карибского пиратства, предлагая пройти увлекательное путешествие в роли Шарля де Мора, молодого французского дворянина, ищущего приключений и помогающего своему брату в Новом Свете. На протяжении 200-часового приключения по разнообразным островам и регионам игроки сталкиваются с огромным (   Читать дальше...   )Тип издания: RepackРазработчик: BlackMark StudioЖанр: Ролевые игрыЯзык озвучки: Русский, Английский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A83FCA6FBA3014280AFD276B0C028B359AB9EAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

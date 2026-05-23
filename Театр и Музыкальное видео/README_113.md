@@ -1,3 +1,173 @@
+###  Публикация: 494343   (251044) от 10.05.2012
+
+30 Seconds To Mars - Hurricane (Uncensored) (2010) BDRip 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Фентезийный клип-фильм Hurricane от 30 Seconds To Mars. Отлично снят. Главное, пожалуй, музыка, по крайней мере - для меня. Она просто шикарная.Жанр: Hard rock, space rock, progressive rockРежиссер: Bartholomew CubbinsАктеры: Jared Leto, Shannon Leto, Tomo MiličevićПродолжительность: 00:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D9A230C39B71EB6BC1403ED6219EF02E635A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397202   (250162) от 15.03.2022
+
+Metallica - Live in Moscow (2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Официальное видео выступления группы «Metallica» на стадионе Лужники в Москве 21 июля 2019 года, в рамках тура WorldWiredTour в поддержку десятого студийного альбома «Hardwired...To Self-Destruct»1. Hardwired
+2. The Memory Remains
+3. The Four Horsemen
+4. Harvester of Sorrow(   Читать дальше...   )Жанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 02:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5A00CF8281E8C365871C0E0639B1FA85A57141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618042   (250122) от 09.03.2023
+
+Праздничный концерт Юсифа Эйвазова и Кирилла Туриченко (2023) TVRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Телеверсия концерта Юсифа Эйвазова и Кирилла Туриченко. История их знакомства и дружбы по-настоящему удивительна: впервые они встретились на сцене шоу «Маска» в образах Ламы и Носорога. Красивая история дружбы продолжилась и за пределами проекта: Юсиф и Кирилл приготовили для своих слушателей настоящий подарок — большой праздничный концерт, где они выступили сольно, (   Читать дальше...   )01. Туриченко и Эйвазов - Miserere
+02. Туриченко и Эйвазов - Nessun Dorma
+03. Таблетка для памяти о знакомстве Туриченко и Эйвазова
+04. Туриченко и Эйвазов - Мой Друг(   Читать дальше...   )Производство: Россия | Вайт МедиаПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D33327B5D8FA548FF83C8DCB01A80113D6F43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493042   (248491) от 07.05.2012
+
+Black Sabbath – Undead And Alive (2004) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+1. N.I.B. 	5:16
+2. Paranoid 	2:50
+3. War Pigs 	7:32
+4. Children Of The Grave 	4:16
+5. Snowblind 	6:13(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492974   (248302) от 06.05.2012
+
+Шансон года - 2012 (2012.05.06) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Телевизионная версия церемонии вручения ежегодной всенародной премии «Шансон года» — это настоящий праздник для поклонников шансона. Зрителей НТВ ждут те, кто поет с душой и всегда — о самом главном.
+Торжественная церемония проходит в Государственном кремлевском дворце каждую весну, и с каждым годом интерес к этому событию возрастает. Секрет популярности прост: наши (   Читать дальше...   )01. Любовь Успенская - Сирень
+02. Любовь Успенская - Два человека
+03. Лесоповал - Мне улыбнись
+04. Лесоповал - Товарищ мент(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:25:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490705   (248236) от 06.05.2012
+
+VA - Сборник клипов part. 3 Deutsch Rap (2002-2012) WEBRip 720p | KURD28
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Deutsch RapПродолжительность: ~03:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C9704141D6AE486D774B3EF0AFCA2F1D30129D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492435   (248202) от 06.05.2012
 
 Лиза Стэнсфилд Live At Ronnie Scott's / Lisa Stansfield - Live At Ronnie Scott's (2005) DVD5
@@ -6,7 +176,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_248202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -41,7 +211,7 @@ NEMOPHILA. Seize the Fate U.S. tour 2023 HOUSE OF BLUES SAN DIEGO (2023) BDRip [
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -71,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -98,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -125,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -154,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -180,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -206,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -235,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -262,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244470.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -291,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -320,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243336.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -347,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -376,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -405,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -432,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -462,7 +632,7 @@ Delain - Hunter's Moon (2019) BDRip [H.265/1080p] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -489,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -519,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -548,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -562,172 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4BBAB2D71DF49DC946EE4C2BF17E7AF1066F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631000   (236904) от 03.05.2023
-
-МузЛофт / МузLoft. Анатолий Цой (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236904.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-Наконец-то к нам в гости пришел артист, с которого начался Музлофт. Анатолий снова поразил всех своим вокалом, презентовал новые песни и эксклюзивно поделился свежими историями и инсайдами шоу-бизнеса.Производство: Россия | Y-GenerationЖанр: PopЯзык озвучки: РусскийПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C65C0B00116224E3B0F3792234E727C7D242391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631389   (236474) от 05.05.2023
-
-Дима Билан – Гладиатор. 25 лет для вас (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот уже четверть века один из самых ярких представителей российской эстрады Дима Билан радует поклонников своими хитами. Он единственный победитель «Евровидения» от России, семикратный победитель EMA, единственный обладатель 20 тарелок одной престижной музыкальной премии, лидер ротаций, чартов и музыкальных премий, заслуженный артист России, а теперь еще и главный (   Читать дальше...   )Производство: Россия | ВайТ МедиаЖанр: PopПродолжительность: 01:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A3AB90470FE27C96C30FAA7C722802FB58E433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458145   (235764) от 28.03.2021
-
-Квартирник НТВ у Маргулиса. Группа Операция Пластилин (27.03.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235764.jpg" />
-</div>
-
-
-###  Подробнее
-
-История рок-группы «Операция Пластилин» началась в нулевых: в 2005 был записан первый альбом, а в 2009 они ушли в творческий отпуск, но в 2010 вернулись на большую сцену и основательно взялись за дело, что позволило им встать в один ряд с другими талантливыми рокерами. Сегодня их музыка — это коктейль из рока, регги, ска, панка, стихов и new wave с добавлением текстов, (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D0F58BF6F5752A0F4EF0F4E263DF2EADCC1067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631736   (235753) от 07.05.2023
-
-Квартирник у Маргулиса. Группа «Город 312» (06.05.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235753.jpg" />
-</div>
-
-
-###  Подробнее
-
-312 — это телефонный код Бишкека, откуда родом участники поп-рок-группы, образованной в уже далеком 2001-м. Ая, Дим, Маша, Леон, Ник и Саша сами пишут песни, которые становятся хитами. Их композиции «Останусь», «Вне зоны доступа», «Обернись», «Фонари» и многие другие знают наизусть миллионы слушателей. В гостях у Евгения Маргулиса участники группы поделились интересными (   Читать дальше...   )00:00:05  Падай
-00:06:47  Твоею частью
-00:13:23  Простить
-00:21:43  Люди, которых нет(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD681FA716B256B4D62806FD328AE1391B8C83C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631800   (235684) от 07.05.2023
-
-Сергей Михалок - Акустика в «Молодости» (2021) WEBRip [AV1/1080p-LQ] [PR]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235684.jpg" />
-</div>
-
-
-###  Подробнее
-
-В феврале 2021 Сергей Михалок дал два эксклюзивных концерта в легендарной «Молодости». Предлагаем вам окунуться в атмосферу концерта в Киеве, и услышать знакомые хиты в акустике.1 — Вступление
-2 — Зоопарк
-3 — Капитал
-4 — В платье белом(   Читать дальше...   )Производство: Украина / BRUTTO NOSTRAЖанр: Радикальный шансонПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D11D68D4F4B5D99446DF6A5F28042676A52E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638924   (234785) от 01.07.2023
-
-Скутер - Превышая все площади / Scooter - Excess all areas (2006) DVDRip [H.264/1080p] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео с заключительного концерта (записанного в Гамбурге 26 марта 2006 года), в рамках концертного тура "Who's Got The Last Laugh Now Tour 2006". Специальном гостем на протяжении всего тура, был Jeff Mantas, гитарист группы Venom, исполнявший гитарные партии в треках группы.01. Intro
-02. Hello (Good To Be Back)
-03. I'm Raving
-04. Apache Rocks The Bottom / Rock Bottom(   Читать дальше...   )Производство: ГерманияЖанр: ScooterTechno, Hard Trance, Happy HardcoreРежиссер: Marcus PohlПеревод: ОтсутствуетСубтитры: Русские, английскиеПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4D50CF3EA03E098AA520BA15DD4B6F3F84F946
 ```
 
 https://mybot314.ru/tekegram_catalog/

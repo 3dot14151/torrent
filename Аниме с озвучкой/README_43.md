@@ -1,3 +1,109 @@
+###  Публикация: 1567055   (207152) от 27.09.2022
+
+Сияющие ведьмы | Renmei Kuugun Koukuu Mahou Ongakutai Luminous Witches | Luminous Witches [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Лондон, война, магия, девочки-айдолы, фамильяры — думаете, это никак не связано? А вот и нет! Всё это ждёт нас в данном аниме. Девчонки, владеющие магией, — единственное, что может спасти людей во время войны. Это могло бы стать заурядным сюжетом, но всё не так просто! Героини могут сливаться со своими питомцами, превращаться в зверодевочек и с помощью магии использовать (   Читать дальше...   )Производство: Япония / Студия ShaftЖанр: Музыка, фантастика, военное, приключенияРежиссер: Саэки СёдзиЯзык озвучки: Русский многоголосый закадровый, Японский
+- Shaman, Shiro, Megera, Haru (AniDub)Субтитры: Русские (софтсаб надписи/полные)
+- надписи: (VLDeshka), полные: (Beesip & kmait)Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F357C911A91B73A42E46F62277918B2223B8E4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612790   (207116) от 17.02.2023
+
+Armitage III | Армитаж III [1995, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в будущем, когда человечество успешно освоило Марс, установив там развитое урбанистическое общество, огромную помощь в создании которого оказали биороиды так называемого 2-го поколения, живущие среди людей нормальной жизнью. Однако экономический спад привёл к резкому обострению отношений людей со «Вторыми», обвиняемыми в создавшейся безработице (   Читать дальше...   )Производство: AICЖанр: приключения, фантастика, романтика, киберпанкРежиссер: Оти ХироюкиПеревод: ChipChapЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 4 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A556BB4C2CB317126342C8400EB81F8B5F327BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613829   (206989) от 19.02.2023
+
+Project A-ko | Проект А-ко [1986, Movie] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эйко Магами - простая японская супердевочка. Каждое утро, с трудом проснувшись от звона будильника, она на сумасшедшей скорости несётся в школу, держа за руку свою золотовласую подружку Сико Котобуки. Кроме будильника, у Эйко есть ещё один враг - королева класса, дочь крупного магната Бико Дайтокудзи, испытывающая нежные романтические чувства к глуповатой красавице (   Читать дальше...   )Производство: Studio A.P.P.P.Жанр: приключения, комедия, фантастика, эттиРежиссер: Нисидзима КацухикоПеревод: Schtirlitz & Veacheslav420Язык озвучки: японский, русский, английскийСубтитры: русскиеПродолжительность: 83 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0462D4D05778599C87D3B936ADAC0BEE901E69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613833   (206947) от 19.02.2023
+
+Project A-ko 2: Daitokuji Zaibatsu no Inbou | Project A-Ko 2: Plot of the Daitokuji Financial Group | Проект А-ко II: Интрига финансовой группы Дайтокудзи [1987, OVA, 1 из 1] BDRip 1080p HEVC 10-bi ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Три недели прошло после инцидента, что оставил корабль капитана Наполиполита балансировать на верхушке Graviton City. А-Ко и её отряд отправляются на весенний отпуск. Пока А-Ко подумывала о том, что ей нужно похудеть и В-Ко разрабатывала план, чтобы одолеть свою красноголовую соперницу, С-Ко, Наполиполита и Спай-Ди испытывают сильную тоску по дому - умоляя найти (   Читать дальше...   )Производство: Studio A.P.P.P.Жанр: приключения, комедияРежиссер: Морияма ЮдзиПеревод: Ramzes III, Veacheslav420 & schtirlitzЯзык озвучки: японский, русский, английскийСубтитры: русскиеПродолжительность: 1 эп. на 50 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9188233C70E803B6274105BADB77F430201DE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580265   (206903) от 30.09.2022
 
 Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord Is Reborn as a Typical Nobody | Повелитель перерождается как ничтожество [2022, TV, 12 из 12] BDRip 1080p HEVC 10-bit  ...
@@ -6,7 +112,7 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Gigigoegoe seonghyeongsu | Beauty Water | Эликсир красоты [2020, M
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -140,7 +246,7 @@ Cyber City Oedo 808 | Кибер-город Эдо 808 [1990, OVA, 3 из 3] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -194,7 +300,7 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -221,7 +327,7 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -248,7 +354,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -275,7 +381,7 @@ Techno Police 21C | Технополиция XXI века [1982, Movie] BDRip  H
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +407,7 @@ Baoh Raihousha | Baoh the Visitor | Бао: Посетитель [1989, OVA] DVD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -327,7 +433,7 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -353,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -379,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -408,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -436,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -465,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -492,7 +598,7 @@ Mahou Tsukai Reimeiki | The Dawn of the Witch | Рассвет ведьмы [202
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -518,7 +624,7 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -544,7 +650,7 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -572,7 +678,7 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -583,110 +689,6 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F1AA431FF198331E70ED31C752B9B7312AE981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606449   (203700) от 22.01.2023
-
-Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земле грозит опасность – пришельцы из иного измерения самим фактом появления в нашем мире вызывают страшные бедствия. Зачастили они, как положено, в Страну восходящего солнца, и люди быстро привыкли, что кроме цунами и подземных толчков надо бояться еще и «возмущений пространства». Да, методом страуса проблему не решить, только стоит ли биться насмерть с незваными (   Читать дальше...   )Производство: студия AIC PLUSЖанр: приключения, комедия, мистика, романтикаРежиссер: Мотонага КэйтароЯзык озвучки: Японский, русский (AniLibria, Wakanim)Субтитры: Русские (GMC)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97DCEA687E711E2C7C07B509D9F3E94568C67D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608297   (203385) от 29.01.2023
-
-Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution: Before I Knew It, My Life Had It Made | Плод эволюции [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день над Сэйити Хираги издевались в школе, так как он уродливый, отвратительный, грязный, вонючий толстяк. Всё изменилось резко и очень неожиданно, когда в один прекрасный день из школьного динамика раздался голос Бога, который объявил, что всем нужно подготовиться к перемещению в другой мир. Голос также объяснил, что мир этот — фантастический мир, там существуют (   Читать дальше...   )Производство: Япония, студия HotlineЖанр: пародия, комедия, фэнтези, исекайРежиссер: Окумура ЁсиакиЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV); English, Español, Português - дублированный (Crunchyroll)Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5141B1057780F2CEEA9B6F6F0932A91B7B6C073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610698   (202945) от 08.02.2023
-
-Повелитель [ТВ-4] | 	Overlord IV [2022, TV, 13 из 13] BDRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настала пора Назарику выйти из тени. Следуя своему великому плану, Айнз Уол Гоун создал свою страну — Колдовское Королевство — и, заключив ложный союз с Империей Багарут, с лёгкостью захватил Эрантел. Присвоив титул Короля-заклинателя, он взошёл на трон своего нового царства. Цель велика — под стать правителю: создать утопичное и процветающее королевство, основанное (   Читать дальше...   )Производство: Япония / Студия MadhouseЖанр: Приключения, фэнтезиРежиссер: Ито НаоюкиЯзык озвучки: Русский (Studio Band, AniLibria.TV, Dream Cast, SHIZA Project); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll); (AniLibria.TV)Продолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2471969850D8CA1826823B0EBAE8ECBAB51B1C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612795   (202633) от 17.02.2023
-
-Armitage III: Dual Matrix | Армитаж: Двойная матрица [2002, Movie] BDRip 1080p HEVC 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наоми Армитаж и Росс Силибус укрылись под вымышленными фамилиями на Марсе и тихо растят дочку Йоко. Однако спокойной семейной жизни приходит конец, когда в одном из земных предприятий по производству антиматерии происходит бунт роботов. Армитаж узнает, что восстание - лишь повод для сокрытия информации о разработке новых роботов «третьего типа». Наоми отправляется (   Читать дальше...   )Производство: AICЖанр: приключения, фантастика, меха, киберпанкРежиссер: Акияма КацухитоПеревод: MC Entertainment, NarsusЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EF2AAADF54230FC2667BC507516BCEA10951BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 654581   (204584) от 02.01.2023
+
+Koi to Senkyo to Chocolate / Love, Election & Chocolate / Любовь, выборы и шоколад [2012, TV, 13] BDrip 1080p Hi10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+В престижной частной школе Такафудзи кипят совсем не детские страсти! Борьба за власть и влияние среди отпрысков небедных семей привела к первым жертвам, про многих лидеров Совета поползли темные слухи, и потому назначены новые выборы. Главным претендентом на пост президента Школьного совета является действующий казначей Сацуки Синономэ, которую даже недоброжелатели (   Читать дальше...   )Жанр: комедия, романтика, школаРежиссер: Китахата ТоруЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FCA2FB2274B000C9B50151D61FF83827ED9057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589043   (204564) от 02.01.2023
+
+Renai Flops / Love Flops / Любовные неудачи [2022, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Асахи Кащигави — обычный японский школьник, который в один прекрасный день сталкивается с чередой необычных случаев по дороге в школу. Все они происходят согласно пространному телевизионному гороскопу, который он смотрел утром, а кульминацией должно стать неудачное столкновение с девушкой. Вот только встречает он не одну девушку, а нескольких и, по странному совпадению, (   Читать дальше...   )Жанр: комедия, романтика, этти.Режиссер: Нагаяма НобуёсиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1C45509375E6A7092DEAFFE00B437AA4EF2942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591727   (204493) от 04.01.2023
+
+Peter Grill to Kenja no Jikan: Super Extra | Peter Grill and the Philosopher's Time: Super Extra | Питер Грилл и время мудреца [ТВ-2] [2022, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Между подавлением вторжения гоблинов, улучшением торговых переговоров с гномами и умиротворением бдительной сестры, которая может просто сойти с ума, чтобы держать его в узде, у Питера есть своя работа. Он самый востребованный герой в стране… и это не считая множества женщин, интересующихся его «другими» талантами. Питеру потребуется вся его сила воли, чтобы сосредоточиться (   Читать дальше...   )Производство: SevenЖанр: комедия, эттиРежиссер: ТацумиПеревод: AnimeJoyЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3955B53E81187F93950B02FBC0FF84E5A4E2DCC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602884   (204351) от 07.01.2023
+
+Bokusatsu Tenshi Dokuro-chan | Bludgeoning Angel Dokuro-chan | Убойный ангел Докуро OVA [2005-2007, OVA, 6 эп.] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Обычный школьник Сакура-кун даже не подозревает, что в будущем ему суждено изобрести революционную технологию вечной молодости, которая будет прекращать взросление девочек после того, как им исполнилось двенадцать лет (хотя, делая это открытие, он будет преследовать совсем иные цели...). Тем не менее это изобретение даст людям невиданные доселе возможности, что не (   Читать дальше...   )Производство: Студия Hal Film Maker / ハルフィルムメーカーЖанр: комедия, эттиРежиссер: Мидзусима ЦутомуПеревод: Shedani (1-4); BakaNyaka (5-6)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 6 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238522EAF759DCBEC5035113C529D36A431C0C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602962   (204349) от 07.01.2023
 
 Mahou Tsukai Sally | Sally the Witch | Ведьма Салли [ТВ-1] [1966, TV, 109 эп.] DVDRip 768p raw
@@ -6,7 +110,7 @@ Mahou Tsukai Sally | Sally the Witch | Ведьма Салли [ТВ-1] [1966, T
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Kidou Senshi Gundam: Suisei no Majo | Мобильный доспех Ганда
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Gensou Mangekyou: The Memories of Phantasm | Тохо - Калейдоскоп �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Aru Machikado no Monogatari | Tales of a Street Corner | История одно
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -166,7 +270,7 @@ Soukyuu no Fafner: Dead Aggressor - The Beyond | Небесный Фафнир: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -192,7 +296,7 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -218,7 +322,7 @@ Maetel Legend / Легенда Мэйтел [2000, OVA, 2 из 2] DVDrip 480p ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203576.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -244,7 +348,7 @@ Waga Seishun no Arcadia | Arcadia of My Youth | Harlock Movie 2 | Капитан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -270,7 +374,7 @@ Seiken Densetsu: Legend of Mana - The Teardrop Crystal | Легенда свят
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -296,7 +400,7 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 эп.] BDRip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -322,7 +426,7 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_201825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Arknights: Reimei Zensou / Arknights: Prelude to Dawn / Рыцари ковче�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Mairimashita! Iruma-kun (2022) | Добро пожаловать в ад, Иру
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201696.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +530,7 @@ Fumetsu no Anata e Season 2 | To Your Eternity Season 2 | Для тебя, Бе�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +556,7 @@ Toutotsu ni Egypt Shin 2 | Oh, Suddenly Egyptian God 2 | Ух ты, египет
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Idolish Seven: Third Beat! | Idolish 7: Third Beat! | Семёрка идоло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Revenger | Мститель [2023, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Koori Zokusei Danshi to Cool na Douryou Joshi | Ледяной парень и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -570,112 +674,6 @@ Tensei shitara Slime Datta Ken Movie: Guren no Kizuna-hen | That Time I Got Rein
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8363E952EC78BB35DEAA7331F1EB6F75097A7FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605945   (200821) от 24.03.2023
-
-Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестрой! [2023, TV, 12 эп.] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как-то раз безработный затворник Махиро Ояма проснулся девочкой. Его гениальная младшая сестра Михари объяснила, что всё дело в лекарстве, которое она ему подмешала. Спустя два года беззаботной и бессмысленной жизни Махиро наконец-то придётся поработать подопытным кроликом для своей сестры.Производство: Студия Studio Bind / スタジオバインドЖанр: комедия, повседневностьРежиссер: Фудзии СингоПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9F56A854A421E396EB10C570B848DDB3F5714C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602716   (200817) от 24.03.2023
-
-Sugar Apple Fairy Tale | Сказка о сахарном яблоке [2023, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200817.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти матери Энн Хэлфорд решает пойти по её стопам и стать Мастером Серебряного Сахара — кондитером невероятного класса. Таких специалистом весьма немного, и они высоко ценятся в стране Хайленд. Энн собирается в город Льюистон, где королевская семья проводит фестиваль сахарных скульптур, ведь лишь победив там можно стать Мастером Серебряного Сахара, но путь (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Судзуки ЁхэйПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41FBC5A2F71F3F9003E20E51A5E3932D204934FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602718   (200804) от 24.03.2023
-
-The Legend of Heroes: Sen no Kiseki - Northern War | Легенды Героев: Следы Холодной Стали — Северная Война [2023, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1178 год по Септианскому календарю. В результате мистической катастрофы государство Северная Амбрия наполовину превратилось в соляную пустыню. Лишённые средств к существованию, жители страны сплотились вокруг бывших военных, организовавших наёмничий отряд «Северные Егеря», предлагающий свои услуги во многих конфликтах за границей.
-
-27 лет спустя родившаяся и выросшая (   Читать дальше...   )Производство: Студия Tatsunoko Production / タツノコプロЖанр: приключенияРежиссер: Сато ХидэкадзуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E0979F0648D640DC21AAAE200B115D3173585A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617191   (200792) от 25.03.2023
-
-Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жизнь в ином мире [2023, TV, 12 эп.] HDTVRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший работник компании Мачио Хираку умер в 39 лет после борьбы с болезнью. Но он получил второй шанс. Его оживили, омолодили и перенесли в другой мир, где существует магия и живут эльфы, вампиры и драконы. Но перед тем как Мачио отправился в другой мир, ему позволили загадать четыре желания. Он выбрал не болеть, жить в спокойном месте, знать язык места, в которое (   Читать дальше...   )Производство: Студия Zero-G / ゼロジーЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F456542EB58DF04FF1163D03F2F59C66810CFD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

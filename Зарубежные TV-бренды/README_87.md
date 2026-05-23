@@ -1,3 +1,55 @@
+###  Публикация: 1167854   (412294) от 22.09.2017
+
+Discovery: Загадки планеты Земля / What on Earth? (2015-2017) HDTVRip (сезон 1-3, серии 1-30 из 30)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чем больше спутников запускают в космос, тем меньше на Земле остается слепых пятен. Теперь, когда снимки из космоса стали частью общедоступных программ, таких как «Google Earth», на суше и на море вдруг стали обнаруживаться различные аномалии. Увлекательная программа «Загадки планеты Земля» возвращается с новым сезоном, где мы продолжим исследовать тайны и загадки (   Читать дальше...   )Производство: США / Discovery Communications, LLCЖанр: Документальный, научно-познавательныйРежиссер: Дэниэл Эдвардс ...Перевод: Одноголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998B366B15CBFAA4BB2BF6C4AC519D5121EE8AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066512   (411919) от 26.10.2016
+
+Discovery: Оглушающий океан / Sonic Sea (2016) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Океан становится все оглушительнее, и от этого страдают его обитатели – например, из-за высокой интенсивности шума расстояния для общения синих китов сократились на 90%, а уровень шума кораблей увеличивается вдвое каждое десятилетие в течение последних 40 лет! Эти данные были опубликованы в докладе Международного фонда защиты животных «Шум в океане: приглушите звук». (   Читать дальше...   )Производство: США, Канада, Норвегия / Discovery ChannelЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9FB455643B9CDF2E8B4D54C434CE023679D1204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066453   (411684) от 26.10.2016
 
 NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (2016) SATRip
@@ -6,7 +58,7 @@ NG:ЭкзоМарс: В поисках жизни / Exomars: The Hunt for Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411684.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Discovery. Взрывное шоу / The Explosion Show (2020) WEB-DL [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +137,7 @@ Discovery: Охотники за реликвиями / Auction Hunters (2015) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +163,7 @@ Discovery: Как это сделано ? Как делают спортинве
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +189,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +215,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +241,7 @@ History Channel. Кровь и слава. Гражданская война в 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +267,7 @@ BBC: Знакомьтесь, ваши предки неандертальцы / 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG. Суперсооружения: Аэробус BelugaXL / Megastructures. Be
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408524.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +319,7 @@ Discovery: Оглушающий океан / Sonic Sea (2016) HDTV 1080i
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +345,7 @@ BBC: Джек Потрошитель: следствие возобновляе�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +371,7 @@ Discovery: Смертельный улов / Deadliest Catch (2018) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +397,7 @@ DV: Волшебные числа: таинственный мир матема�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +423,7 @@ NG: Когда акулы нападают / When sharks attack (2016) HDTVRip (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +475,7 @@ Discovery: Мистический мир: Необъяснимое.Неведо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ NG: Жизнь в других мирах. Аурелия / Extraterrestrial. Au
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +610,7 @@ BBC: Тайная жизнь близнецов / The Secret Life of Twins (2015
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +636,7 @@ NG: Жизнь в других мирах. Голубая луна / Extraterres
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA36C8DB0C3F513DC5EC349FC08CB5AE83107C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167276   (401225) от 29.09.2017
-
-BBC: Уникальные способности животных / Animal Super Senses (2014) DVB [H.264/720p-LQ] (Серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши органы чувств - необыкновенны. У нас отличное зрение, тонкий слух, мы можем уловить слабый аромат в дуновении ветра. Однако это далеко не предел. Представьте, что можно видеть при помощи звука, слышать грозу за сотни километров, воспринимать мир замедленно или уметь разглядеть малейшие детали. Двое ученых - физик др. Хелен Черски и биолог Патрик Арье отправятся (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC) TelevisionЖанр: Документальный, научно-популярный, фаунаРежиссер: Сэм Ходжсон, Кирстин ДэвидсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3x~00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57B9CC9E692CD2DD693B6A13B93BA1D6E48A63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168745   (399226) от 01.10.2017
-
-History Channel: История далекого прошлого / Deep Time History (2016) HDTVRip  (3 серии из 3)
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы этом сериале мы рушим стены между наукой и историей, чтобы понять, как историей человечества зачастую управляют события далекого прошлого.Производство: США, Flight 33 ProductionsЖанр: Документальный, познавательный, научно-популярныйРежиссер: Джеймс Грант ГолдинПеревод: ДублированныйПродолжительность: 3 х ~ 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30D64A6E6EA5BAAF119D3B523DDE344B6ACF5D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

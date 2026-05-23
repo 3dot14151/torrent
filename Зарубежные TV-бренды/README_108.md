@@ -1,3 +1,55 @@
+###  Публикация: 1647806   (208464) от 20.07.2023
+
+Необъяснимое / The UnXplained (2023) WEB-DL [H.264/1080p] (сезон 5, серии 1-10 из 10) [DVO]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+В сериале будут исследованы факты, стоящие за самыми увлекательными, странными и необъяснимыми загадками нашего мира.Производство: США, Prometheus EntertainmentЖанр: документальный, история, исследованияУчастники: Уильям Шэтнер, Митио Каку, Джонатан Янг, Ток Томпсон, Эндрю КоллинзПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (Forced, Full), английские (Full)Продолжительность: 10x ~00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB80FEF9F056BC1CC9E62BACF9F8CCBCBA5E10B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609559   (208343) от 03.02.2023
+
+Затерянный мир Ангкор-Вата / Lost World of Angkor Wat (2022) HDTVRip (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Один из самых масштабных храмовых комплексов, сохранившихся до наших дней. Его построили всего за 35 лет, благодаря необычным инженерным решениям. Сейчас геологи с помощью передовых технологий, откроют в этом древнем городе нечто еще более значительное, что было веками скрыто за густым лесом. Они откроют потерянный мир, который в два раза больше современной Франции.Производство: Великобритания, Windfall FilmsЖанр: документальный, историяРежиссер: Сэм МортиморПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 2x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0164E004E3DC9DFA6B50FC96C810C6F3F0A82EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576177   (208212) от 13.09.2022
 
 Эволюция планеты / Birth of Planet Earth (2019) WEB-DL [H.264/1080p]
@@ -6,7 +58,7 @@
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -84,7 +136,7 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207459.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +214,7 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +266,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -266,7 +318,7 @@ NG: Апокалипсис: Первая мировая война (5 серий
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +370,7 @@ NG. Загадка акул Мауи / Maui Shark Mystery (2022) WEB-DL [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Discovery. Отравление в Солсбери / Secrets of the Salisbury P
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_205471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +604,7 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E72A2194AFBAFAF38EE2B226AE1E7C5D635CAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603546   (204296) от 09.01.2023
-
-Зона 51: Секретные файлы ЦРУ / Area 51: The CIA's Secret Files (2014) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершив короткий перелёт из Лас-Вегаса глубоко в пустыню штата Невада, можно найти секретный объект ЦРУ под названием "Зона 51". Это огромная тайная база, существование которой власти Соединенных Штатов не признавали на протяжении почти 60 лет. Однако, в августе 2013 ЦРУ наконец согласилось, что это место действительно существует. Но до сих пор воздушное (   Читать дальше...   )Производство: Великобритания, Warehouse 51 Productions, Sky Vision, National GeographicЖанр: документальный, история, военныйРежиссер: Пол НельсонПеревод: одноголосый профессиональныйСубтитры: английскиеПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA3FAD2F369D036172D5B5620D0ABF31BA2F774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656017   (203941) от 28.08.2023
-
-BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В дальнем уголке Земли прячется дикая природа Южной Америки. Невероятные ландшафты приютили необычных и удивительных животных. От скалистых вершин Анд, через выжженную пустынную степь, до берегов, на которые обрушивают волны самые суровые моря планеты. Жизнь здесь требует решимости и непреклонности. Для кого тут открываются невероятные возможности но для других это (   Читать дальше...   )Производство: Великобритания, BBC and Animal Planet Co-ProductionЖанр: документальный, фауна, флора, путешествияПеревод: одноголосый профессиональный (SDI Media)Продолжительность: 3 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4117A2B5E8DAE8078FB69CFD64E33D218BC033BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

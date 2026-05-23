@@ -1,3 +1,84 @@
+###  Публикация: 1431651   (165582) от 15.12.2020
+
+Roblox v2.458.415263 [Ru]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+ROBLOX - Здесь каждый режим противостояния предполагает борьбу с другими игроками. Есть несколько динамических вариаций, включая битву за выживание, командные игры, а также уничтожение ходячих мертвецов.Тип издания: Пиратка (Мод)Релиз состоялся: 3 декабря 2020 г.Разработчик: Roblox CorporationПоддерживаемая ОС: Android 4.4 и вышеЖанр: ПриключенияЯзык интерфейса: Русский есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2664DC82AC439771BE51C282E3D33E82D29ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673525   (165238) от 01.11.2023
+
+Screenshot touch v2.1.3 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Screenshot Touch – это удобное и простое приложение, которое облегчит вам создание скриншотов и видео с экрана своего смартфона. На многих телефонах нынче существует и встроенная функция создания скриншота, но таких точных и разнообразных настроек, как в Screenshot touch, вы не найдете нигде! Захватывайте любую область экрана, убирайте ненужное, делайте скриншоты (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 26.10.2023Разработчик: Daejeong KimПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7732D4ECDACEDCE899C7B25CD9EABE82C7A6DD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516742   (165178) от 12.12.2021
+
+Sticker Maker v0.0.3-20 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Сделайте свои стикерпак для WhatsApp. Вы можете использовать мемы или свои фотографии, любая фотография с вашего телефона будет работать. Сделайте стикер для вашей подруги, вашей семьи, ваших друзей в 4 простых шага.
+1. Выберите имя для своего стикерпак
+2. Добавьте стикер в стикерпак, нарежьте их пальцем.
+3. Сохранить стикерпак(   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 01.09.2021Разработчик: Viko & CoПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5874B6EA118F1CB180273BBF58DA022D8F5376C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516821   (165090) от 12.12.2021
 
 CloudBeats: Cloud Music Player 1.8.3 PRO [En]
@@ -6,7 +87,7 @@ CloudBeats: Cloud Music Player 1.8.3 PRO [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -34,7 +115,7 @@ CookPad 2.228.1.0 Premium Mod [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +144,7 @@ Garena Free Fire: Безумие v1.56.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -89,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +197,7 @@ Max Payne Mobile v1.7 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -142,7 +223,7 @@ Kaspersky Internet Security Premium v11.59.4.5119 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +278,7 @@ KeePassDX Pro v3.0.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +304,7 @@ Enpass Password Manager Pro v6.7.1.572 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +330,7 @@ CPU-Z (Mobile) v1.41 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +356,7 @@ Jotr: Quickly Draw & Sketch 4.4.4 Pro [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +384,7 @@ Psiphon Pro 386 Mod by DEXUNPACKER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -329,7 +410,7 @@ Revo Uninstaller Mobile 3.2.380G Mod by Timozhai [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -355,7 +436,7 @@ Root Explorer / Root Проводник 4.12.3 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -407,7 +488,7 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -433,7 +514,7 @@ Happy Color v2.8.14 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +542,7 @@ VoltLab v5.1.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163744.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +570,7 @@ Zona v2.0.152 Mod by Timozhai [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +596,7 @@ ARK: Survival Evolved v2.0.21 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163597.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -541,7 +622,7 @@ Dendy Games (645 in 1) v3.11 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -567,7 +648,7 @@ Guitar Tuna v6.16.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -594,7 +675,7 @@ CoinSnap - Value Guide v1.2.9 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -606,84 +687,6 @@ CoinSnap - Value Guide v1.2.9 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B9C0A51B43B97AB32E8845A8FC6D80EC8DF7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673953   (163093) от 03.11.2023
-
-JetAudio 12.0.1 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163093.jpg" />
-</div>
-
-
-###  Подробнее
-
-jetAudio проигрывает практически все цифровые музыкальные файлы (.wav, .mp3, .ogg, .flac, .m4a, .mpc, .tta, .wv, .ape, .mod, .spx, .opus, .wma*, .mid** и др.). К тому же, jetAudio обеспечивает высококачественное звучание и предлагает широкий выбор звуковых эффектов, таких как расширение стереобазы (X-Wide), реверберация (Reverb) и усиление низких частот (X-Bass). (   Читать дальше...   )Тип издания: PlusРелиз состоялся: 03.11.2023Разработчик: Team JetПоддерживаемая ОС: Android: 5.0 и вышеЯзык интерфейса: Русский, Английский  и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B4E5747CC00CB6CC9787007650389DD6C17FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598393   (162784) от 18.12.2022
-
-HD VideoBox Plus v2.31 FIX-20221215 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162784.jpg" />
-</div>
-
-
-###  Подробнее
-
-HD VideoBox Plus — это самый крупный онлайн кинотеатр на андроид медиа-приставке — десятки тысяч фильмов, а также мультфильмов, сериалов и телепрограмм. Смотреть видеофайлы можно с источников: Bazon, Zona, Filmix, UaFilm, Kinokong и многие другие. В настройках можно указать, какие каталоги использовать и выбрать качество. Также в версии Plus доступен поиск и скачивание (   Читать дальше...   )Тип издания: Mod (получен Plus)Релиз состоялся: 15.12.2022Разработчик: dkc7dev (barbarian_ua)Поддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B2E04453A20023247ADC1B4DD0EE603DCC71A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399078   (162654) от 18.12.2020
-
-YouTube Downloader v7.1 [Ru/En] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162654.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью этой программы можно скачать любое видео с портала ютуб. Работает на всех девайсах.Тип издания: FreeРелиз состоялся: 17.12.2020Разработчик: dentexПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```
 
 https://mybot314.ru/tekegram_catalog/

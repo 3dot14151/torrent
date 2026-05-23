@@ -1,3 +1,81 @@
+###  Публикация: 1421926   (315125) от 06.11.2020
+
+Братья по крови (2020) WEBRip (сезон 2, серии 1-12 из 12)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+События разворачиваются после трагического взрыва, в котором пострадали братья Киреевы и их друзья. Снова пережив потерю близких людей, братья пытаются вернуться к нормальной жизни и провести расследование, но их ждут неприятные сюрпризы – изменения в составе руководства и появление в отделе нового судмедэксперта.. .Производство: Украина / «1+1 Продакшн»Жанр: детективРежиссер: Олег МасленниковАктеры: Эрик Абрамович, Сергей Деревянко, Петр Крылов, Зоряна Марченко, Виктор Сарайкин, Федор Гуринец, Наталия Бабенко, Олег Масленников, Вадим Павленко, Владимир Захарченко и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD88DEEDB38E7C961D4E66751E139CAC3F3A66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417588   (314922) от 06.11.2020
+
+Братья по крови (2020) WEB-DLRip [H.264] (сезон 2, серии 1-12 из 12)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Двум братьям, Максиму и Андрею Киреевым, приходится работать в одном отделе полиции, чтобы разобраться в запутанном деле загадочной смерти их общего отца. Андрей – сын Киреева от первого брака, надежный и опытный капитан полиции, который годами ненавидел отца за то, что тот бросил их с матерью. Максим – второй ребенок Киреева, инфантильный молодой парень, который (   Читать дальше...   )Производство: Украина | «1+1 Продакшн»Жанр: детективРежиссер: Олег МасленниковАктеры: Эрик Абрамович, Сергей Деревянко, Петр Крылов, Зоряна Марченко, Виктор Сарайкин, Федор Гуринец, Наталия Бабенко, Олег Масленников, Вадим Павленко, Владимир Захарченко и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22CFE019D08BB3117AA4911C1BB4AE509F14E497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260203   (314019) от 06.11.2018
+
+На самой грани (2018) WEBRip [H.264] (серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Анна попадает в аварию, в которой погибают водитель и ее подруга. Она – единственный свидетель. Виновника аварии, матерого рецидивиста Зотова, который вез контейнер с кровью в больницу для своей сестры, задерживают. Его сестра умирает и Зотов винит этом Аню, обещая отомстить. С этого момента жизнь героини меняется. Погибает ее руководитель, Фомин, а Аню находят без (   Читать дальше...   )Производство: Украина | студия "УПС"Жанр: криминал, мелодрамаРежиссер: Андрей ИвановАктеры: Анна Леванова, Алексей Череватенко, Екатерина Варченко, Артём Мяус, Артём Алексеев, Борислав Борисенко, Вячеслав Василюк, Наталия Цыганенко, Арина Петрова и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CD971D4DF6F115ED599691984F7919BD5AF171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332617   (311302) от 21.10.2019
 
 Двойное отражение (2019) WEBRip (сезон 1, серии 1-8 из 8)
@@ -6,7 +84,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC221551C34F7D4487F44CF3D6B774EFA3133290
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337339   (274646) от 10.11.2019
-
-Город влюблённых (2018) WEBRip (сезон 1, серии 1-20 из 20)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саша, Ева и Инга – три подруги, которые пытаются справиться с личными проблемами. Александра тележурналистка, Инга ресторатор, а Ева переводчица. Несмотря на несостоявшуюся личную жизнь, все они пытаются продолжать поддерживать позитивный настрой и не терять надежды на то, что в скором времени им наконец-то удастся познать женское счастье...Производство: УкраинаЖанр: мелодрамаРежиссер: Антон ГойдаАктеры: Екатерина Мельник, Марина Коняшкина, Кирилл Жандаров, Юлия Такшина, Марина Бородина, Евгений Морозов, Андрей Финягин, Анастасия Сердюк, Артемий Егоров, Анатолий Зиновенко и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3B357A05AEB67F2FF23C82C55556EDE41DD465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264381   (271746) от 30.11.2018
-
-Кто ты? (2018) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271746.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории - психотерапевт Инга Штефан, которая после странной гибели нескольких пациентов и исчезновения жениха, начинает сотрудничество с убойным отделом полиции. Помогая правоохранительным органам расследовать очередное дело, героиня пытается поставить себя на место убийцы и найти ответы на вопросы: "Кто ты?", "Что тобой движет?". Параллельно (   Читать дальше...   )Производство: Украина / Кинокомпания "УПС"Жанр: детектив, криминалРежиссер: Анатолий МатешкоАктеры: Екатерина Кузнецова, Антон Батырев, Ярослав Гуревич, Мирослав Павличенко, Игорь Пазыч, Анастасия Походенко-Матешко, Олег Примогенов, Ренат Сеттаров, Владимир Абазопуло, Елена Хохлаткина и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83BF77D470AB0BD2548F0068DCD93D162B1081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264352   (271744) от 30.11.2018
-
-Кто ты? (2018) WEBRip [H.264/1080p-LQ] (серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271744.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории - психотерапевт Инга Штефан, которая после странной гибели нескольких пациентов и исчезновения жениха, начинает сотрудничество с убойным отделом полиции. Помогая правоохранительным органам расследовать очередное дело, героиня пытается поставить себя на место убийцы и найти ответы на вопросы: "Кто ты?", "Что тобой движет?". Параллельно (   Читать дальше...   )Производство: Украина | Кинокомпания "УПС"Жанр: детектив, криминалРежиссер: Анатолий МатешкоАктеры: Екатерина Кузнецова, Антон Батырев, Ярослав Гуревич, Мирослав Павличенко, Игорь Пазыч, Анастасия Походенко-Матешко, Олег Примогенов, Ренат Сеттаров, Владимир Абазопуло, Елена Хохлаткина и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F1C6BB28940746E164A71F88E52A458F43B973
 ```
 
 https://mybot314.ru/tekegram_catalog/

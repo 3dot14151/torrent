@@ -1,3 +1,107 @@
+###  Публикация: 1119229   (808878) от 27.03.2017
+
+Love Live! Sunshine!! / Живая любовь! Сияние!! [ТВ-3] [2016, TV, 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды второгодка школы Уранохоши Чика Таками, гуляя по городу, увидела на большом экране выступление всем нам знакомой группы школьных идолов из «μ's». Девушка прониклась их выступлением, переслушала все песни и твердо решила создать свою группу для участия в проекте «Живая любовь!» Однако сложности не заставили себя долго ждать: в отличие от девочек из «μ's», (   Читать дальше...   )Производство: Жанр: повседневность, комедия, музыкальный, школаРежиссер: 酒井和男 / Sakai Kazuo / Сакай КадзуоПеревод: anipaladin & KittorЯзык озвучки: ЯпонскийЯзык субтитров: Английский (вшитые, отключаемые), Русский (внешние, отключаемые)Продолжительность: 13 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E17AA3BE433F949947CC5251FFF5B6BEB2201F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093059   (808735) от 27.03.2017
+
+Eldlive / Эль Драйв [2017, TV, 12] WEB-DLRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чута Коконосе — сирота, живущий со своей тётей. И у него совсем нет друзей. Так, что даже и поговорить не с кем — разве что с голосом в голове, привычным с самого раннего детства. Но в один прекрасный день перед Чутой появляется загадочная хреновина, которая телепортирует его в космический полицейский участок. Глава департамента Солнечной системы сообщает протагонисту, (   Читать дальше...   )Производство: Студия Studio Pierrot / スタジオぴえろЖанр: приключенияРежиссер: Фурута ТакэсиПеревод: UndokaktyzЯзык озвучки: ЯпонскийЯзык субтитров: Русский (отключаемый), Английский (отключаемый)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F724F86B7ABEADC4DBA9FA0DBE8171096A55A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198310   (808024) от 11.01.2018
+
+Yuuki Yuuna wa Yuusha de Aru: Yuusha no Shou | Yuki Yuna Is a Hero: Hero Chapter | Герой Юки Юна [ТВ-2] [2017, TV, 6] HDTV 720p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+ПродолжениеЖанр: приключения, махо-сёдзёРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Перевод: ChocoVanillaЯзык озвучки: ЯпонскийПродолжительность: 6 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE7E3E7C7BDCCC0A85E9202AB7244E364F7BE8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383424   (807858) от 17.05.2020
+
+Strike the Blood: Kieta Seisou Hen | Удар крови: Потерянное Святое Копьё [2020, OVA, 1 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дальнейшие приключения Акацуки Коджо и его подружек. На этот раз герои пережидают внезапно налетевший тайфун в школьном кружке кулинарии. И как обычно что-то пошло не так, и не туда...Производство: студия ConnectЖанр: приключения, эччиРежиссер: Ямамото ХидэёПеревод: 1) AniLibria; 2) anonimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A4B123ED8C455A8AB4EE9D350A0B10F54B62369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118445   (807101) от 28.03.2017
 
 Nurse Witch Komugi-chan R / Медсестра-волшебница Комуги-тян Эр [2016, TV, 12 из 12] WEBRip 720p raw
@@ -6,7 +110,7 @@ Nurse Witch Komugi-chan R / Медсестра-волшебница Комуги
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Garo: Honoo no Kokuin | Гаро: Печать пламени [2014, TV, 24] HDT
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Saenai Heroine no Sodatekata | Saekano | Как воспитать из обыч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ Highlander: The Search for Vengeance | Горец: В поисках мести 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ Magi: The Kingdom of Magic / Magi 2 / Маги 2 [2013, TV, 25 эп.] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ Chiruran: Nibun no Ichi / Чируран пополам [2017, TV, 12] WEB-DLRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -163,7 +267,7 @@ Trickster: Edogawa Ranpo "Shounen Tanteidan" yori / Обманщик: Клуб �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +293,7 @@ High Score Girl II | Девчонка не промах [ТВ-2] [2019, TV, 9] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +319,7 @@ Otaku no Video / Фильм об отаку 1982 и 1985 [1991, OVA, 2 из 2] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +345,7 @@ Tytania | Титания [2008, TV, 26 эп.] BDrip 1080p Hi10P raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Shounen Maid / Парень-горничная [2016, TV, 12 + SP] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Uchuu Senkan Yamato 2199: Hoshi-Meguru Hakobune | Odyssey of the Celestial Ark |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Piace: Watashi no Italian / Пьячэволе: Моя итальянская к
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +477,7 @@ One Room / Одна комната [2017, TV, 12] WEB-DLRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Heroman | Хиромен [2010, TV, 26 + 3] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, ТВ, 25] HDTV 720p 10bit r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +557,7 @@ Charlotte | Шарлотта [2015, TV, 14 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Gintama. / Гинтама [ТВ-5] [2017, TV, 12 эп.] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Hi Score Girl | High Score Girl | Девчонка не промах [ТВ-1] [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +673,6 @@ Hi Score Girl | High Score Girl | Девчонка не промах [ТВ-1] [2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632674991EC9D868F5F9BC4DAB0EE21B7FDCA670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118405   (801537) от 21.05.2020
-
-Bernard Jou Iwaku. / Miss Bernard Said. / Мисс Бернард сказала. [2016, TV, 12 + SP] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Савако Мачида по прозвищу Мисс Бернард – ленивая девушка, у которой есть благородное устремление стать начитанным человеком, однако для этого она не особо много читает. Манга-первоисточник представляет собой набор коротких бесед между Мисс Бернард и её друзьями, взаправдашними «книжными червями», о таких произведениях как Библия, «Поветь о доме Тайра», «Ружья, микробы (   Читать дальше...   )Производство: Студия Creators in Pack / クリエイターズインパックЖанр: комедияРежиссер: Хирасава ХисаёсиПеревод: Nika; Shaman Anime (спецвыпуск)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + SP по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C90FE932FBA06B44387775239504F8F2DEE3C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120407   (801234) от 01.04.2017
-
-Onigiri | Онигири [2016, TV, 13 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в мистической Японии, земле, заполненная мифическими существами японской легенды. Начав как одинокий Oni, игроки сражаются против злонамеренного влияния Kamikui. 8 персонажей, каждый со своей личностью и навыками, вступают в союз с игроком, чтобы помочь построить легенду и уничтожить зло. Вместе с ростом уровня крепнут и узы, связывающие (   Читать дальше...   )Производство: студия Pierrot PlusЖанр: комедия, пародияРежиссер: Ямамото ТакасиПеревод: I.D.A.Язык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 эп. по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA146C291552FA7B210CB223C7C1B8510699EC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120409   (801168) от 01.04.2017
-
-Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух в теле Пандоры | Пандора в багровой броне [2016, TV, 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нене Нанакороби, самая обычная девушка-киборг, переезжает в город-остров Кенанкл к своей тёте. Там она случайно знакомится с миллионершей-изобретательницей Делайлой Узал и её очаровательной, но сварливой напарницей Клэрион, которая тоже киборг, как и Нене. Сама Нене в восторге от того, что ей удалось завести друзей, однако Узал и Клэрион не так просты, да и остров (   Читать дальше...   )Производство: студия Studio GokumiЖанр: приключения, комедия, фантастикаРежиссер: Нава МунэнориПеревод: The Tide (T_T)Язык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EF961288B887255D8A5D0E4E71AF2B09EDD1D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120824   (801132) от 01.04.2017
-
-Monster Strike / Монстр Страйк [2015, TV, 51 + 2 SP] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рен Хомура возвращается на свое прежнее место жительства, но чувствует себя очень неуютно: у него нет воспоминаний о том, что он там жил. При ремонте смартфона ему втихаря устанавливают игру под названием «Monster Strike» и монстры буквально вылетают из смартфона и начинают сражаться на улицах. В изумлении наблюдая за сражением, Рен начинает вспоминать потерянные (   Читать дальше...   )Производство: Студия Studio Hibari / スタジオ雲雀Жанр: приключенияРежиссер: Итикава КадзуяПеревод: GeraldЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 51 эп. по 10 мин. + 2 SP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F25437134978038AA5130301A46BA3AA141389
 ```
 
 https://mybot314.ru/tekegram_catalog/

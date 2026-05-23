@@ -1,3 +1,67 @@
+###  Публикация: 597666   (1000317) от 02.01.2013
+
+20 Лучших песен 2012 года (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+"20 лучших песен 2012 года"- ежегодная музыкальная премия по итогам Сводного национального чарта. Из тысяч музыкальных композиций выбрать всего двадцать — дело непростое. При составлении национального сводного чарта "Красная звезда" учитывается количество скачиваний песен в Интернете, частота появлений исполнителя на телевидении, ротация на радио и, конечно, народное голосование...01. DJ Smash и Винтаж - «Москва»
+02. Лоя - «Розы темно-алые»
+03. Потап и Настя - «Если вдруг»
+04. Градусы - «Голая»
+05. Юлия Савичева - «Юлия»
+06. Джиган - «Нас больше нет»
+07. Кристина Орбакайте и Дискотека Авария - «Прогноз погоды»
+08. Серебро - «Мама Люба»
+09. Дан Балан - «Лишь до утра»
+10. Эльвира Т - «Все решено»(   Читать дальше...   )Жанр: РорПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597711   (1000314) от 02.01.2013
+
+Авторадио: Дискотека 80-х (2012) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Концерт, Музыка
+
+
+Фестиваль "Дискотека 80-х" прошел в одиннадцатый раз под лозунгом "Rock&Dance" и преподнесет зрителям еще больше сюрпризов - суперзвездный состав артистов, новые имена, а главное - неординарное захватывающее шоу. Никогда ранее на фестивале "Авторадио" так широко не были представлены рок-музыканты. Каждое имя - эпоха, легенда, символ 80-х. К тому же, все эти люди не просто "в строю", но и продолжают радовать публику новыми работами. В 2012 года Gorky Park - одна из самых знаменитых рок-групп времен перестройки - отмечает свое 25-летие, и у зрителей "Дискотеки 80-х" есть шанс увидеть на сцене фестиваля легендарную команду, которая исполнит свои самые яркие хиты. Не менее ожидаемо выступление Гарика Сукачева, одного из наиболее ярких фронтменов русского рока. Без песен "Бригады С", которые он исполнит вместе с Сергеем Галаниным, историю поколения 80-х представить невозможно. Выйдет на сцену и Константин Никольский, чьи баллады прочно (   Читать дальше...   )Перевод: Не требуетсяПродолжительность: 02:24:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598009   (1000099) от 03.01.2013
 
 Легенды Ретро FM (2013) HDTV [1080i] [эфир от 02.01.2013]
@@ -6,7 +70,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +97,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998798.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +178,7 @@ U.D.O. - Live in Sofia (2012) Blu-Ray [custom]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -151,7 +215,7 @@ Schiller / Atemlos Live (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -177,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -203,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997981.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -229,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -258,7 +322,7 @@ Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -284,7 +348,7 @@ Duran Duran - A Diamond In the Mind (2011) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -376,7 +440,7 @@ Stromae - Racine Carree Live (2015) WEB-DL
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -436,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -462,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -488,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -516,7 +580,7 @@ System Of A Down - Rock in Rio [1080p] (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -542,7 +606,7 @@ Stromae - Racine Carree Live (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -571,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -600,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -628,7 +692,7 @@ Rage Against The Machine - Live at Finsbury Park (2010) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976705.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -657,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -668,64 +732,6 @@ DIVA Ани Лорак – это фантастическая музыкаль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7764F574B8B45197D8CD47DB6FE2219A31FCF5CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744975   (969951) от 12.01.2014
-
-Океан Ельзи (Океан Эльзы) - Концерт на чемоданах (31.12.2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная группа Украины 24 декабря 2013 года дала предновогодний живой концерт в российском аэропорту Шереметьево в канун Нового года. В зоне вылета терминала D внутренних воздушных линий с девятью песнями выступили украинские «Океан Эльзы». Концерт, организатором которого стал независимый российский телеканал «Дождь», начался в 16.00 по московскому времени и длился (   Читать дальше...   )1. Там, де нас нема
-2. Джульєтта
-3. Відчуваю
-4. На небi(   Читать дальше...   )Телекомпания: Россия, т/к ДождьЖанр: Rock, концертПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5666532FA15E1C1967D16A762E0E620D24679B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745251   (968949) от 13.01.2014
-
-Metallica: Сквозь невозможное / Metallica Through the Never (2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ecstasy of Gold
-02. Creeping Death
-03. For Whom the Bell Tolls
-04. Fuel(   Читать дальше...   )Производство: США / Picturehouse EntertainmentЖанр: концерт, мюзикл, музыка, приключенияРежиссер: Нимрод АнталАктеры: Дэйн ДеХаан, Джеймс Хетфилд, Ларс Ульрих, Кирк Хеммет, Роберт Трухильо, МакКензи Грэй, Джереми РэймондПеревод: ОтсутствуетСубтитры: НетПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E831434C87550D84F6FEE0946E89E547F6A852
 ```
 
 https://mybot314.ru/tekegram_catalog/

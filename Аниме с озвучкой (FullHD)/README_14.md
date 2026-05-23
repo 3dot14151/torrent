@@ -1,3 +1,83 @@
+###  Публикация: 1388695   (765092) от 03.07.2020
+
+Hataraku Saibou | Клетки за Работой! [TV-1] [2018, TV, 14 ep + 2 Specials] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это история о вас. Точнее, о внутренней части вашего тела. Согласно новому исследованию, в человеческом теле старательно работают около тридцати семи триллионов клеток. Сутками напролёт, двадцать четыре часа в сутки и триста шестьдесят пять дней в году — все они старательно выполняют свои обязанности: эритроциты перевозят полезные вещества в разные уголки вашего (   Читать дальше...   )Производство: David Production, ЯпонияЖанр: Приключения, КомедияРежиссер: Судзуки КэнъитиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4687D57E3BFA8F679E0B3A8CB07FB6EB0116A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394006   (765091) от 03.07.2020
+
+Deadman Wonderland | Страна Чудес Смертников [2011, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ещё до начала этой истории огромное землетрясение опустошило большую часть японских земель и практически уничтожило Токио, погрузив три четверти города под воду.
+История переносит нас на 10 лет вперёд к Игараши Ганте, казалось бы обычному скромному мальчику, учащемуся в средней школе префектуры Нагано. Выживший в том ужасном землетрясении, он ничего не помнит о трагедии (   Читать дальше...   )Производство: Manglobe, ЯпонияЖанр: Приключения, Драма, ФантастикаРежиссер: Хацуми КойтиОзвучка: Одноголосая, Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0796150279C25262C2B626136E2120074646F1E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366490   (764191) от 04.07.2020
+
+High School Fleet | HaiFuri | Морская Академия [2016, TV, 12 ep + 2 OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Акэно и Моэка с детства восхищались отважными девушками, посвятившими себя морю, — «Голубыми русалками», военно-морским отрядом, управляющим боевыми кораблями. В начальной школе они пообещали друг другу посвятить себя морскому делу. Жить морем, защищать море, путешествовать по бирюзовым волнам океана.
+Спустя несколько лет они снова встречаются, но уже как ученицы (   Читать дальше...   )Производство: Production IMS, ЯпонияЖанр: Приключения, КомедияРежиссер: Нобута ЮОзвучка: Одноголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 14 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1D6E36B0F157D665FB2A08D979F86B20B99939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520054   (764114) от 03.01.2022
 
 Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль в бушующем пламени | Топить в вине бушующее пламя печали [2021, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +86,7 @@ Lie Huo Jiao Chou | Drowning Sorrows in Raging Fire | Топить печаль 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Brave Witches | Храбрые Ведьмы [2016, TV, 12 ep + OVA] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +139,7 @@ Beastars | Выдающиеся звери [ТВ-1] [2019, TV, 12 эп.] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759782.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +165,7 @@ Youjuu Toshi | Wicked City | Город чудищ [1987, Movie] BDRip 1080p raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759737.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +192,7 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu | How Not to Summon a Demon Lord 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +245,7 @@ Strike the Blood: Kieta Seisou Hen | Удар Крови: Потерянное �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +298,7 @@ Tokyo Ravens / Токийские вороны [2013, TV, 24 эп. + SP] BDRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +428,7 @@ Nakitai Watashi wa Neko wo Kaburu | Сквозь Слёзы я Притворя�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +454,7 @@ Mirai no Mirai | Mirai of the Future | Мирай из будущего [2018, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +532,7 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +558,7 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +584,7 @@ Re: Zero | Re: Zero kara Hajimeru Isekai Seikatsu | Re: Жизнь в альте
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +610,7 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +636,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +662,7 @@ Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,86 +674,6 @@ Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF453698E0F5D1119EEBD9638E720F829D760B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400997   (712597) от 08.08.2020
-
-Добро пожаловать в ад, Ирума | Mairimashita! Iruma-kun | Welcome to Demon School! Iruma-kun [2019, TV, 23 из 23] BDRip HEVC 10-bit 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судзуки Ируму продали демону безответственные родители. Но к его собственному удивлению, он не только стал жить с демоном, который принял его как своего нового внука, но и был зачислен в школу в демоническом мире, где его новый дедушка работает директором. Так началась необычная школьная жизнь Ирумы среди потустороннего, где он сталкивается со своим истинным Я, принимает (   Читать дальше...   )Производство: Студия BN Pictures / バンダイナムコピクチャーズЖанр: комедия, романтикаРежиссер: Мориваки МакотоЯзык озвучки: Русский закадровый (AniLibria.TV), Английский дублированный (Crunchyroll)Субтитры: Русские надписи, Русский, English, Français, Español, Italiano, German, Português, ArabicПродолжительность: 23 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F8A481DA5A2711C35430D0EEBFC06AE1509477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131741   (706225) от 06.05.2017
-
-Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706225.jpg" />
-</div>
-
-
-###  Подробнее
-
-В лучших традициях Хаяо Миядзаки: рисовка, персонажи, сюжет—смотреть всем обязательно!
-Научно-фантастическая фантазия о 14-летней героине, принцессе Сузу, потомка выдающегося шамана, который спас людей от катастрофы в прошлом. Сузу отправляется в путешествие вместе с духом природы Колубоккоро, чтобы восстановить мир и природу в разрушенной деревне.
-©www.animespirit.ruПроизводство: Kenji StudioЖанр: фэнтези, приключения, фантастикаРежиссер: Итосо Кэндзи (Itoso Kenji)Язык озвучки: Русский (Anidub)Продолжительность: 29 мин. 1 сек.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731B16B9E813F8724B483C8A34EC4EF4D347C2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533943   (700885) от 26.02.2022
-
-Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | Добро пожаловать в класс превосходства [ТВ-1] [2017, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киётака Аянокодзи только что поступил в Токийскую центральную углублённую старшую школу, которая славится тем, что 100% выпускников поступают в университет или находят работу. Правда, ему не повезло попасть в класс Д, куда направляют всех проблемных учеников. К удивлению поступивших оказалось, что каждый месяц школа начисляет ученикам баллы общей стоимостью на 100 (   Читать дальше...   )Производство: Студия Lerche / ラルケЖанр: драма, повседневностьРежиссер: Киси СэйдзиЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B8E12B3F71930A0B0D9F19297AA945CC9D92B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

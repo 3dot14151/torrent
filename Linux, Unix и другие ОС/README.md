@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1872081   (1070220) от 
+
+Red Hat Enterprise Linux 10.2 [x86_64, aarch64] 4xDVD 1xWSL
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Red Hat Enterprise Linux (RHEL) - популярная коммерческая операционная система на базе ядра Linux, имеющая открытый исходный код и предназначенная для развёртывания на предприятиях. RHEL можно использовать как серверную систему, а также как рабочую станцию или сервер с графическим окружением GNOME.
+
+Операционная система Red Hat Enterprise Linux ориентирована на стабильность (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A2C7FC3A63A1BECA3561C7E59E91989DD89F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871731   (1069863) от 
+
+RAR for Linux 7.22 [x64] (tar.gz)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+RAR - это консольное приложение, позволяющее управлять архивными файлами в режиме командной строки. RAR обеспечивает сжатие, шифрование, восстановление данных и многие другие функции, описанные в руководстве пользователя (rar.txt). RAR поддерживает только архивы формата RAR, которые по умолчанию имеют расширение имени файла .rar. ZIP и другие форматы не поддерживаются. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CC19EB41AEC7DE6CE7B92C2EDE8C65349A8729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1867507   (1066950) от 25.04.2026
 
 Ubuntu 26.04 Resolute Raccoon LTS [amd64] 2xDVD
@@ -7,7 +61,7 @@ Ubuntu 26.04 Resolute Raccoon LTS [amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -36,7 +90,7 @@ Zimbra OSE (Open Source Edition) 10.1.16 [x64, amd64] (tgz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -63,7 +117,7 @@ Zorin OS 18.1 Pro & Pro Lite 18.1 [X86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -91,7 +145,7 @@ Zorin OS 18.1 Pro [X86, amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -119,7 +173,7 @@ SystemRescue v13.00 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -145,7 +199,7 @@ Parted Magic 2026.03.20 [x64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -171,7 +225,7 @@ DeaDBeeF for Linux 1.10.2 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -199,7 +253,7 @@ DeaDBeeF for Linux 1.10.1 [x86_64] (deb, rpm, pkg.tar.xz, tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -227,7 +281,7 @@ Uncom 2.5 LTS [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -253,7 +307,7 @@ Winux 11.26.03.1 [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -279,7 +333,7 @@ GreenLinux 22.3.0 Kursk [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -307,7 +361,7 @@ MiniOS (все редакции, вкл. Flux) 5.1.1 (Flux 5.1.2) [amd64, i386] 
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -333,7 +387,7 @@ Kali Linux 2025.4 [amd64, arm64] 9xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058107.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -359,7 +413,7 @@ RAR for Linux 7.20 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -385,7 +439,7 @@ ALT Linux 10.2.1 СП [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -411,7 +465,7 @@ Astra Linux Special Edition 1.6.16 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +493,7 @@ openmediavault 8.0.4 [amd64]
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -467,7 +521,7 @@ EN-OS 1.0 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -495,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049589.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -521,7 +575,7 @@ Cisco Modelling Lab 2.9.1 [x86_64] 1xDVD+.OVA
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -547,7 +601,7 @@ Mikrotik Router OS 7.20.6 [x86] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,7 +627,7 @@ Debian GNU/Linux 10 (Buster) LXQt by Lazarus [x86, x86_64] (2xDVD) [Авторс
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040987.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -599,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -627,7 +681,7 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -639,60 +693,6 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2020) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7588411B1FD39B3BD35C17FD702D505B73E72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442754   (1036268) от 26.01.2021
-
-Ubuntu*Pack GNOME Classic 18.04 (декабрь 2020) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CB4A3627D23BDD0F1E2CB06B5FA6249CA0966E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442756   (1036264) от 26.01.2021
-
-Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2020) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-Интерфейс
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A5F45161E959BE876C15048AC7A63E73FC8726
 ```
 
 https://mybot314.ru/tekegram_catalog/

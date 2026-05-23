@@ -1,3 +1,55 @@
+###  Публикация: 236122   (202443) от 26.10.2025
+
+На ощупь (2010) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Его папа хочет стать президентом США. Дед и бабка – Брэд Питт и Анджелина Джоли. Он был слеп, а когда прозрел, увидел Андрея Малахова. Китайцы украли его отца. Единственный выбор для него – взять в руки арбалет и отомстить обидчикам. Откровенное кино от Юрия Грымова, где любой ценой побеждает любовь.Производство: Россия, Кинокомпания ЮГЖанр: комедия, приключенияРежиссер: Юрий ГрымовАктеры: Антон Шагин, Наталья Наумова, Александр Балуев, Валерий Баринов, Виталий Хаев, Владимир Яглыч, Юрий НазаровСубтитры: отсутствуютПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2154E72CD7EF7CE124F341CF6A3C4C63579E50D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350325   (200797) от 24.03.2023
+
+Прогулка (2003) DVD9
+
+>>Отечественное кино
+>>Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Леша влюбляется в Олю, но у него появляется соперник. Драма Алексея Учителя в форме экскурсии по ПетербургуПроизводство: Россия, Министерство культуры Российской Федерации, ТПО РокЖанр: мелодрама, драмаРежиссер: Алексей УчительАктеры: Ирина Пегова, Павел Баршак, Евгений Цыганов, Евгений Гришковец, Карэн Бадалов, Мадлен Джабраилова, Андрей Казаков, Алексей Колубков, Михаил Крылов, Екатерина КрупенинаСубтитры: АнглийскиеПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B6D7400599737EBB24AE688D9ED0DC4395A149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 48605   (194846) от 03.08.2023
 
 Медвежья охота (2007) DVD5
@@ -6,7 +58,7 @@
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_194846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138761.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_135294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -618,65 +670,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
 ###  Подробнее
 
 Герой Михаила Галустяна, прозванного в нашем мире за сходство КарлОсоном, живет в волшебном и красочном мире Метриков — пухлых большеухих летающих человечков метрового роста, миссия которых — помогать ребятишкам, которым взрослые, скорее, создают проблемы, нежели решают их. Метрики могут показываться детям, но вынуждены тщательно скрывать факт своего существования (   Читать дальше...   )Производство: Enjoy MoviesЖанр: Фэнтези, Комедия, СемейныйРежиссер: Сарик АндреасянАктеры: Михаил Галустян, Нонна Гришаева, Гоша Куценко, Александр Олешко, Игорь Верник, Мария Сёмкина, Федя Смирнов, Степан Юрпалов, Олег Табаков, Семен ФурманПеревод: Оригинальный языкПродолжительность: 01:20:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478335   (86610) от 05.04.2012
-
-8 первых свиданий (2012) DVD9
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера телезвезда, ее жених Константин — профессиональный теннисист. Они собираются пожениться. Никита врач-ветеринар и красавица-хирург Илона также спешат оформить отношения. Но одно прекрасное утро разрушает все планы. После веселого вечера Вера просыпается в одной постели с Никитой. Решив, что это последствия слишком бурной вечеринки, молодые люди разъезжаются в разные стороны. Но следующим днем все повторяется — Никита и Вера снова вместе, хотя каждый хорошо помнит, как они засыпали дома — каждый у себя… Так происходит всю последующую неделю. Какие-то таинственные силы устраивают эти неожиданные «свидания», кто-то хочет разрушить их браки, а может быть просто доказать, что они созданы друг для друга?Жанр: КомедияРежиссер: Дэвид Додсон, Александр МаляревскийАктеры: Оксана Акиньшина, Владимир Зеленский, Денис Никифоров, Екатерина Варнава, Сабина Ахмедова, Ильдар Аллабирдин, Сергей Барковский, Наталья Иохвидова, Игорь Жижикин, Елена КондулайненПеревод: ОригинальныйПродолжительность: 01:23:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478646   (86608) от 05.04.2012
-
-8 Первых Свиданий (2012) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера телезвезда, ее жених Константин — профессиональный теннисист. Они собираются пожениться. Никита врач-ветеринар и красавица-хирург Илона также спешат оформить отношения. Но одно прекрасное утро разрушает все планы. После веселого вечера Вера просыпается в одной постели с Никитой. Решив, что это последствия слишком бурной вечеринки, молодые люди разъезжаются в (   Читать дальше...   )Производство: Квартал-95Жанр: КомедияРежиссер: Дэвид Додсон, Александр МаляревскийАктеры: Оксана Акиньшина, Владимир Зеленский, Денис Никифоров, Екатерина Варнава, Сабина Ахмедова, Ильдар Аллабирдин, Сергей Барковский, Наталья Иохвидова, Игорь Жижикин, Елена КондулайненПеревод: Оригинальный языкСубтитры: ОтсутствуютПродолжительность: 01:23:04
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,55 @@
+###  Публикация: 1096976   (917465) от 25.01.2017
+
+Законодатели технологий / Game Changers (2017) SATRip (Серия 1 из?)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Конструктор Кевин хочет доказать, что его самолёт с электроприводом может изменить авиацию!Телекомпания: Великобритания, Discovery ScienseЖанр: ДокументальныйРежиссер: Томми ДовниПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EA131F16EE79333F73DAA8B0D1A6098797FA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289083   (917052) от 01.02.2011
+
+NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Более 1500 лет назад в землю были зарыты писания, излагающие иную хронику жизни Иисуса из Назарета. Эти "неканонические" евангелия, во многом разнящиеся между собой, долгое время считались ересью. Обнаруженные в прошлом веке, они поставили ученых и богословов перед новыми проблемами. Национальное Географическое Общество изучает утраченные истории о Христе в поисках ответа на фундаментальные вопросы: кто и зачем написал эти евангелия? Выдерживают ли они сравнение с каноническими Евангелиями от Матфея, Марка, Луки и Иоанна? И почему эти писания так долго пребывали в забвении? Мы восстановим события в эпоху радикальных религиозных идей и попробуем найти логику в самых причудливых историях об Иисусе.Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0567750F40A876477951CB257C7BEA03F498AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289416   (916872) от 01.02.2011
 
 BBC: Апокалипсис древних цивилизаций - 2 - Загадка Минойцев / BBC: Ancient Apocalypse - 2 - Mystery of the Minoans (2001) DVDRip
@@ -6,7 +58,7 @@ BBC: Апокалипсис древних цивилизаций - 2 - Зага
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +86,7 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -114,7 +166,7 @@ Discovery. Техногеника. Родина-мать и Останкинск
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +219,7 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -248,7 +300,7 @@ BBC: Апокалипсис древних цивилизаций - 4 - Содо
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -276,7 +328,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2015) (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_914054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -382,7 +434,7 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2016) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +590,7 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,7 +616,7 @@ Discovery: Почему? Вопросы мироздания. Как зарож�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +642,7 @@ Discovery: Пятёрка лучших / World's TOP 5 (2012) HDTVRip [выпу�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,7 +668,7 @@ NG. Расследование на месте катастрофы / Crash Scen
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -627,58 +679,6 @@ National Geographic Channel представляет «Расследовани�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09802C7FE535BE20E6E9834F4B7D67A0266DC7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098072   (910430) от 29.01.2017
-
-Египет. Фараон и авантюрист (2005) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910430.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 октября 1817 года этот человек открыл одну из самых удивительных усыпальниц в мире. Джованни Бельцони претендует на звание величайшего в истории исследователя Египта. Вот лишь одно из его невероятных окрытий - крупнейшая гробница фараона в долине царей. Её длина почти равна длине лондонского собора Св. Павла. Серия колонных залов вела в величественную погребальную (   Читать дальше...   )Телекомпания: BBC, эфир телеканал "История"Жанр: Документальный, история, игровые сценыПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D5FC793616CD37BF7B51C6C94CD6BFF35E8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368252   (910420) от 19.03.2020
-
-ВВС. Horizon. Почему вирусы убивают? / Why Do Viruses Kill? (2010) HDTVRip [H.264/720p-LQ] (Сезон 46, серия 9)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910420.jpg" />
-</div>
-
-
-###  Подробнее
-
-В середине 2009-го года весь мир замер в страхе перед новой болезнью, грозившей унести миллионы жизней. Это была новая модификация вируса гриппа H1N1. Заболевание получило название свиной грипп. Только в Великобритании число вероятных смертей оценивалось в 65 000. Однако этим жутким прогнозам не суждено было сбыться. Если эта последняя вирусная пандемия и научила (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, познавательный, научно-популярныйРежиссер: Дик ТэйлорПеревод: Одноголосый любительский, по субтитрамСубтитры: Русские (notabenoid)Продолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E5CD7F1DD4D7C42A8BF8502E5C000E8CB364D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

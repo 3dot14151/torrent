@@ -1,3 +1,107 @@
+###  Публикация: 58966   (524103) от 25.06.2022
+
+Козырной туз / I quattro dell'Ave Maria (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+После того, как Какопоулос ухитрился спастись от виселицы по ложному обвинению, он грабит на крупную сумму Кэта Стивенса и Хатча Бэсси. К тому же крадет их лошадей. В результате развеселого и бесшабашного преследования Стивенс и Бэсси становятся невольными союзниками Какопоулоса в разборках с бандой, подставившей его.Производство: Италия / Cronocinematografica S.p.a., San MarcoЖанр: Комедия, вестернРежиссер: Джузеппе КолицциАктеры: Илай Уоллак, Теренс Хилл, Брок Питерс, Кевин МакКарти, Бад Спенсер, Ливио Лоренцон, Стеффен Захариас, Тиффани Хойвелд, Армандо Бандини, Ремо КапитаниПеревод: профессиональный одноголосыйСубтитры: ОтсутствуютПродолжительность: 02:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15F73E60D6B5039045B2066B8D0CE8A06ABA1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922716   (523825) от 14.08.2015
+
+Останься со мной / Stand by Me (1986) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма переносит зрителя в 50-е годы. Лето подходит к концу, но сезон развлечений омрачен таинственным исчезновением мальчика. Четверо друзей-подростков отправляются на его поиски. Дети взялись за трудное дело, ведь им так хочется поскорее стать старше…Производство: СШАЖанр: Драма, приключенияРежиссер: Роб РайнерАктеры: Уил Уитон, Ривер Феникс, Кори Фельдман, Джерри О`Коннелл, Кифер Сазерленд, Кэйси Семашко, Гари Райли, Брэдли Грегг, Джейсон Оливер, Маршалл БеллПеревод: Профессиональный многоголосый, авторскийЯзык субтитров: Русский, английскийПродолжительность: 01:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9FFC3CF4151BC7A98D04C44BAFDDAABCF8724C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240253   (523521) от 13.08.2018
+
+Банда заложников / Le gang des otages (1972) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый тюремный срок, отпущенный Жильберу Нодье, не пошел начинающему грабителю впрок. Банда, сколоченная на скорую руку из криминальных приятелей Нодье и его жены Лилиан – бывшей труженицы панели, совершала налеты быстрые и эффективные в своей простоте, пока не перешла дорогу подлинным акулам преступного мира. Столкновение заканчивается массовой бойней, и банда (   Читать дальше...   )Производство: Италия, Франция / Citeca Productions, Medusa Distribuzione, Société Nouvelle des Établissements Gaumont (SNEG)Жанр: ДрамаРежиссер: Эдуар МолинароАктеры: Даниэль Коши, Бюль Ожье, Жиль Сегаль, Жерар Дарьё, Мишель Фавори, Морис Травай, Жинетт Гарсен, Жермэн Дельба, Симона Рьётор, Арман Местраль, Клер Морье, Габриэль Каттан, Морис БарьеПеревод: Одноголосый закадровый (Линда)Субтитры: РусскиеПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FB483D72B4303789F10C8A70701923E56B7F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923758   (523235) от 15.08.2015
+
+Гора / The Mountain (1956) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Старый проводник Захари живет в горах вместе со своим младшим братом Крисом. Мать Криса умерла при родах, и Захари был вынужден в одиночку вырастить брата, который не испытывает ни малейшей благодарности к брату и думает только о том, как бы разбогатеть и уехать. В горах происходит авиакатастрофа, но добраться до места аварии спасателям не удаётся. Крис уговаривает (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: Драма, ПриключенияРежиссер: Эдвард ДмитрикАктеры: Спенсер Трэйси, Роберт Вагнер, Клер Тревор, Уильям Демарест, Барбара Дарроу, Ричард Арлен, Э. Г. Маршалл, Анна Кашфи, Ричард Гаррик, Гарри ТаунсПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94E90C1CE47E5E5C3FD17AD1D7B106FAB8B3A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924141   (522450) от 16.08.2015
 
 Непобежденный / Unconquered (1947) DVDRip [H.264]
@@ -6,7 +110,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522223.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521622.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520661.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519662.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519244.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_515895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -537,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,113 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC6A2EFB3BA08D049777280D9372697BDB907246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930407   (515209) от 23.08.2015
-
-Легенда о потерянном / Legend of the Lost (1957) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Боннард приезжает в Тимбукту и начинает искать проводника, который сопроводил
-бы его по африканской пустыне. Проводник находится в лице американца Джо, которому
-правда не сильно по душе маршрут, который избрал Боннард. Тем не менее в пустыне
-они и последовавшая за ними проститутка Дита обнаруживают руины древнего храма, где(   Читать дальше...   )Производство: США, Италия / Metro-Goldwyn-Mayer, Batjac ProductionsЖанр: Драма, ПриключенияРежиссер: Генри ХэтауэйАктеры: Джон Уэйн, Софи Лорен, Россано Брацци, Курт Казнар, Соня Мосер, Анжела Портулари, Ибрагим Эль Хадиш, Марша ХантПеревод: Одноголосый закадровый - Сергей КузнецовПродолжительность: 01:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF7D177456E8D88141D5D19A173DBD811F0BD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193665   (514932) от 18.07.2019
-
-Джихад / Khartoum (1966) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабное столкновение между английским генералом Чарльзом Гордоном и объявившим чуждым пришельцам-захватчикам священную войну «джихад» мусульманским лидером Махди, одно имя которого говорит о непокорности и мистических тайнах.Производство: Великобритания / Julian Blaustein Productions Ltd.Жанр: Боевик, Военный, Драма, ПриключенияРежиссер: Бэзил Дирден, Элиот ЭлисофонАктеры: Чарлтон Хестон, Лоуренс Оливье, Ричард Джонсон, Ральф Ричардсон, Александр Нокс, Джонни Секка, Майкл Хордерн, Зия Мухеддин, Марн Мэйтленд, Найджел ГринПеревод: Многоголосый х3, АвторскийСубтитры: Русские, АнглийскиеПродолжительность: 02:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62CDF8C457C3C5DA0B2591BF8803FC568F65658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241807   (514894) от 22.08.2018
-
-Диана / Diane (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет рассказывает историю любви французского короля Генриха II и его фаворитки Дианы де Пуатье. Их встреча произошла, когда Генрих вместе со своим братом Франциском отправлялся в качестве заложников вместо своего отца ко двору Карла V. Уже с той поры сердце юного героя оказалось во власти очаровательной красавицы фрейлины Дианы. Однако по политическим соображениям (   Читать дальше...   )Производство: США. Metro-Goldwyn-MayerЖанр: Драма, историческийРежиссер: Дэвид МиллерАктеры: Лана Тернер, Педро Армендарис, Роджер Мур, Мариса Паван, Седрик Хардвик, Торин Тэтчер, Тайна Элг, Джон Луптон, Генри Дэниелл, Рональд ГринПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7415D306B813BA6042D367236E120637936B55C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315185   (514659) от 18.07.2019
-
-Странные супруги / Strange Bedfellows (1965) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон соединяет двух непохожих друг на друга людей, он симпатичный американец, она художница итальянка. В первый же вечер они успевают влюбиться и оформить отношения. Но с приходом нового дня, стало ясно о том, что они поторопились, между ними происходит размолвка. По прошествии семи лет, пара снова встречается, дабы оформить развод, но за это время ситуация изменилась, (   Читать дальше...   )Производство: США / Fernwood Productions Inc., Franic Production, Panama ProductionЖанр: КомедияРежиссер: Мелвин ФрэнкАктеры: Рок Хадсон, Джина Лоллобриджида, Гиг Янг, Эдвард Джадд, Ховард Ст. Джон, Дейв Кинг, Пегги Ри, Джозеф Сирола, Нэнси Калп, Люси ЛандауПеревод: Авторский (А. Яковлев)Субтитры: Английские (SDH)Продолжительность: 01:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8B9C87AF523C70FB6766D2F7C2873BE9EE5204
 ```
 
 https://mybot314.ru/tekegram_catalog/

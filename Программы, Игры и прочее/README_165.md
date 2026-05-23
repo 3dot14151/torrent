@@ -1,3 +1,82 @@
+###  Публикация: 1778544   (28276) от 08.02.2025
+
+Ocean Match / Рыбки: Три в ряд v3.0.7 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Игры для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+🐠 Добро пожаловать в Рыбки: Три в ряд (Ocean Match)! Совершенно новая игра от компании LinkDesks!
+Бесплатно играть! Попробуйте украшать уникальный аквариум, вы всегда можете зайти в игру и полюбоваться на пестрых рыбок, плавающих туда-сюда!Тип издания: ModРелиз состоялся: 08.02.2025Разработчик: LinkDesks Classic Puzzle GamesПоддерживаемая ОС: Android 5.1+Жанр: ГоловоломкаЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8A379860619F9AFF0AAEC87B410B73C4476D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778563   (28263) от 08.02.2025
+
+BZ Напоминания и Дни Рождения PRO v3.6.3 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Как часто Вы что-либо забываете сделать? С помощью этой напоминалки Вы можете ПРОСТО ПОМНИТЬ ВСЁ И ВСЕГДА! Вы можете легко контролировать все задачи, находящиеся в Вашем списке дел, и быть уверенным что Вы их сделаете. Удобное и функциональное приложение для создания, использования и управления напоминаниями. В наличии возможность поделиться напоминаниями.Тип издания: ProРелиз состоялся: 07.02.2025Разработчик: Atlas ProfitПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16140BFDD15B1C6852C16541B3C16EB562ACFDA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778220   (28258) от 08.02.2025
+
+Карта Координаты v5.7.4 Mod by vadj [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Один клик на карте дает вам доступ к мировым координатам. Кроме того, Map Coordinates предлагает полный набор инструментов, таких как измерение расстояния, текущее местоположение GPS, история / любимые места, расположение общего местоположения, поиск местоположения или копирование координат / адреса. Вы можете переключаться между несколькими типами координат, такими (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 05.02.2025Разработчик: Adrian SulumbercheanПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8578C32C6790C2313EAD6F27B22CE794ACD004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778543   (28247) от 08.02.2025
 
 Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by vadj [Ru/Multi]
@@ -6,7 +85,7 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by v
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -34,7 +113,7 @@ Flud v1.11.6.5 Mod by derrin [Ru/En/Ua]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -86,7 +165,7 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -112,7 +191,7 @@ MiHome v10.2.700 Mod by Vevs [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -141,7 +220,7 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -167,7 +246,7 @@ ES File Explorer File Manager v4.4.2.19 Mod Lite by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -219,7 +298,7 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -245,7 +324,7 @@ VN - Video Editor / VN - Видеоредактор v2.4.2 Mod by MustHave [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -271,7 +350,7 @@ Serial Cleaner v1.1.8 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -298,7 +377,7 @@ Grand Mountain Adventure 2 v1.010 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -324,7 +403,7 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -350,7 +429,7 @@ Dragon Quest X Offline v1.0.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -379,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -406,7 +485,7 @@ Figment 2: Creed Valley v1.0.56 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -432,7 +511,7 @@ Grimvalor v1.2.9 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -458,7 +537,7 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -484,7 +563,7 @@ ISOLAND: Pumpkin Town v1.0.14 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -510,7 +589,7 @@ Ninja Turtles: Legends v1.26.5 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -538,7 +617,7 @@ Shogun's Curse v1.1 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -564,7 +643,7 @@ Carmen Sandiego NETFLIX v1.0.1g [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -590,7 +669,7 @@ Bright Memory: Infinite v1.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -601,84 +680,6 @@ Bright Memory: Infinite v1.2 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B7C2B88EFC340301C446DF234A37ADE4F0C2F33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781264   (26825) от 22.02.2025
-
-CamScanner v6.82.0.2502180000 Mod by derrin [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26825.jpg" />
-</div>
-
-
-###  Подробнее
-
-CamScanner - Мощное приложение для сканирования. Оно представляет собой способ сканировать любые документы с максимальным качеством, автоматическим определением границ, программным улучшением изображений и прочими техническими особенностями, что понравятся всем кому необходим данный спектр возможностей. Так же пользователи смогут удобно создавать надписи, комментарии, (   Читать дальше...   )Тип издания: Pro (Mod)Релиз состоялся: 20.02.2025Разработчик: RS Mobile GroupПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781198   (26788) от 22.02.2025
-
-Street Fighter IV CE v1.08.00 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возьмите под свой контроль 32 мировых воина и проверьте свои силы против игроков со всего мира. Street Fighter IV: Champion Edition совершенствует формулу выигрышного геймплея, предлагая самый захватывающий файтинг для мобильных устройств. Давние поклонники Street Fighter могут окунуться в действие и мгновенно освоить управление. Для более казуальных игроков Street (   Читать дальше...   )Тип издания: UnlockedРелиз состоялся: 14 февр. 2025 г.Разработчик: CAPCOM CO., LTD.Поддерживаемая ОС: Android 8.0+ (arm64-v8a)Жанр: ActionЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963E3CA3B21474191189F0896D761BB9DEDB0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781201   (26762) от 22.02.2025
-
-Legacy - Reawakening v1.0.7.3 [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шагните в Legacy - Reawakening, совершенно новое приключение во вселенной Legacy. Глубоко под землей лежит забытый мир — место, наполненное древними сооружениями, скрытыми технологиями и тайной, которая ждет своего часа. Как опытный археолог, вы были выбраны, чтобы раскрыть его секреты. Но не все так легко раскроется.Тип издания: PaidРелиз состоялся: 17 февр. 2025 г.Разработчик: No Signal ProductionsПоддерживаемая ОС: Android 6.0+ (arm64-v8a)Жанр: PuzzleЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD84FE1C5440F8FDFC24DD6C7496739D1F477D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

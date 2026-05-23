@@ -1,3 +1,108 @@
+###  Публикация: 1812833   (7501) от 16.08.2025
+
+Черный город (2010) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В жизни 40-летнего следователя городской прокуратуры Олега Борина наступила черная полоса. Все началось с дела, возбужденного против студента, изнасиловавшего девушку. Подозреваемый оказался сыном влиятельного чиновника. Тот воспользовался своими связями, и Борина сначала просто отстранили, а после и вовсе выгнали со службы. Жена ушла, забрав ребенка. Вскоре раздался (   Читать дальше...   )Производство: Россия | «Триикс Медиа»Жанр: КриминалРежиссер: Виктор ТатарскийАктеры: Дмитрий Марьянов, Александр Барановский, Екатерина Новикова, Алексей Федькин, Денис Синявский, Константин Дунаевский, Сергей Гамов, Лариса Луста, Марианна Коробейникова, Александр Стёпин и др.Субтитры: РусскиеПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D386D956473C17FFE763ACA68ACE21CB22F043DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 15866   (7407) от 17.08.2025
+
+Дни затмения (1988) DVDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Борис Стругацкий. Автор повести "За миллиард лет до конца света" (из радиоинтервью):
+"…Любители фантастики Стругацких, как и в случае со "Сталкером" Тарковского, должны будут примириться, что увидят не экранизацию повести, а совершенно самостоятельное кинопроизведение, обладающее самостоятельной ценностью. Надо сказать, что основная идея (   Читать дальше...   )Производство: Ленфильм /СССР/Жанр: "Драма / Мистика / Философская Притча"Режиссер: Александр СокуровВ ролях: Алексей Ананишнов, Эскендер Умаров, Ирина СоколоваФормат: MKVКачество: DVDRipПродолжительность: "01:05:27 + 01:05:48"
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F83E2FEFB2E4DD738BE00D6324F9271AC2253D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813025   (7285) от 17.08.2025
+
+Муж по вызову (2015) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Застав своего мужа с любовницей, 40-летняя Инна выставила неверного супруга за дверь. В это же время к ее соседке Римме, живущей этажом выше, из деревни приехала сестра Алевтина. Она твердо намерена найти себе в городе мужа. Римма подает идею вызвать мужчину из службы «Муж на час» и специально ломает кран у себя на кухне. К счастью, слесарь по имени Андрей приезжает (   Читать дальше...   )Производство: Россия / Компания „Пирамида“Жанр: комедия, мелодрамаРежиссер: Сергей КрутинАктеры: Дмитрий Марьянов, Мария Шукшина, Валерий Николаев, Екатерина Волкова, Александр Наумов, Кристина Бабушкина, Юлия Галкина, Филипп Бледный, Максим ЛитовченкоСубтитры: русскиеПродолжительность: 01:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA21DBD41B54E78199B6E3D66F07FAC10ADC77AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813011   (7274) от 17.08.2025
+
+Убей меня! Ну, пожалуйста (2004) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Лера - Олимпийская чемпионка по стрельбе. Когда ее неоправданно дисквалифицировали, обвинив в употреблении допинга, она в одночасье стала никому не нужна. Во время ее блистательной карьеры американские специалисты предложили сделать бесплатную операцию ее тяжело больной маме, а когда случился скандал с дисквалификацией - у Леры потребовали полного расчета. И отчаявшаяся (   Читать дальше...   )Производство: Россия, Украина / Глобал ТВЖанр: мелодрама, комедия, детективРежиссер: Оксана БайракАктеры: Дмитрий Харатьян, Ольга Погодина, Арнис Лицитис, Алексей Кравченко, Олег Масленников, Римма Зюбина, Анатолий Дьяченко, Андрей Саминин, Алла МасленниковаПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7426405227B7A99E8DEC22A8E73FFC8E0C7A6DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813224   (7101) от 18.08.2025
 
 Когда я брошу пить (2017) WEBRip [H.264/1080p] (серии 1-2 из 2)
@@ -6,7 +111,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7097.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6386.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6308.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6238.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6178.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58C7CB398A3159342A0C579EA7442A75EC49C692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815083   (5535) от 28.08.2025
-
-Фрилансер (2023) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марк — молодой фрилансер, несколько лет назад ушедший из компании и пытающийся работать на себя. Из раза в раз он идет навстречу клиентам и сталкивается с тем, что ему задерживают оплату за выполненные проекты под разными уловками. В какой-то момент два крупных клиента ему снова не платят. Из-за этого он ругается с женой. Она забирает дочь и уходит от него. Марк (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драма, криминалРежиссер: Илья ДенисовАктеры: Сергей Евдокимов, Ольга Горяная, Николай Иванов, Олег Коваленко, Валерий ЛаппоПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B844564AF6E64DF442C3239939723033150DB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815051   (5532) от 28.08.2025
-
-Изгнание (2007) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семья с двумя детьми приезжает отдохнуть в родную деревню главы семейства. Вечером после ужина, когда дети легли спать, и взрослые остались одни, жена сообщает мужу, что беременна, и ребёнок не его.Производство: Россия / Рен-ТВЖанр: драма, мелодрамаРежиссер: Андрей ЗвягинцевАктеры: Константин Лавроненко, Мария Бонневи, Александр Балуев, Максим Шибаев, Екатерина Кулкина, Елена Лядова, Андрей Шибаршин, Дмитрий Ульянов, Алексей Вертков и др.Продолжительность: 02:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE7E69651AA9F3C1BA9948F683FDAA679425F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815367   (5410) от 29.08.2025
-
-Нуучча (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выжить в конце XIX века в якутской тайге непросто. Сельская пара готовится к суровой голодной зиме. Поневоле они принимают к себе русского каторжника, с которым вынуждены теперь делить все: и еду, и свой дом. Загнанные в ловушку обстоятельствами, они начинают постепенно понимать, что он возможно не тот, за кого себя выдает.Производство: Россия / ЛУКФИЛЬМ / LOOKFILM, Место cилы, R-mediaЖанр: драмаРежиссер: Владимир МункуевАктеры: Сергей Гилев, Павел Колесов, Ирина Михайлова, Иннокентий Луковцев, Данил Осипов, Зоя Багынанова, Николай Протасов, Нюргуяна ШадринаСубтитры: русские (на непереведённые места с якутской речью)Продолжительность: 01:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BAD581637238B2CCC47E5392118BE14C14BF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815276   (5408) от 29.08.2025
-
-Лифтёр. Покаяние (2021) WEBRip [H.264/1080p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5408.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Магнитогорске орудует преступник, убивающий девушек в лифтах и подъездах домов. Информация о преступлениях доходит до Кремля, правительство и руководство МВД требует в кратчайшие сроки найти и обезвредить убийцу. Чтобы помочь местному отделу полиции, в Магнитогорск приезжает сотрудница уголовного розыска Лилия.Производство: Россия / Творческое объединение Андрея Рябцева, MEDIA TVЖанр: драма, триллерРежиссер: Георгий ПоздняковАктеры: Игорь Филиппов, Лилия Мусина, Иван Погорелов, Данила Сочков, Лиона Филь, Гордей Батаршев, Надежда Лаврова, Владимир Богданов, Андрей Коровниченко, Игорь ПановПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1385BDA5708E80B41312ECD6820A88E09EA8566B
 ```
 
 https://mybot314.ru/tekegram_catalog/

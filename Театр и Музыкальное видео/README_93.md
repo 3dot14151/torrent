@@ -1,3 +1,176 @@
+###  Публикация: 1326854   (380505) от 22.09.2019
+
+Сборник клипов - Золотой хит от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от отечественных музыкантов, с 2000 по 2016 год. Ремастеринг видео и звука. Это 2я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Золотой хит 2 — Вступление
+01. Валерий Меладзе — Иностранец
+02. Ани Лорак — Обними меня
+03. Dino MC47 & Иракли — Сделай шаг(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DB169C35F95EE3C0D301CB8A280DA07AF597DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573508   (380428) от 10.11.2012
+
+Наталка Полтавка (1936) DVD5[ukr]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+По пьесе И.Котляревского. Украинская девушка Наталка, дочь бедной вдовы Терпелихи, скучает по своему любимому Петру, который ищет для себя и Наталки счастливую судьбу на чужбине. Однажды в дом Терпелихи приходит Выборный, чтобы просватать девушку за местного пана Возного. Престарелый барин противен Наталке, а Петро, будто чувствуя, что опаздывает, спешит в родные края...Жанр: Мелодрама, МьюзиклРежиссер: Иван КавалеридзеАктеры: Е.Осмяловская, С.Шкурат, Ю.Шестаковская,М.Литвиненко-Вольгемут, И.Паторжинский, М.Платонов, Г.МанькоПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573284   (379956) от 10.11.2012
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) Blu-ray [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+• 27 июля 1986г. Queen дали крупнейший концерт из когда-либо проходивших на Nepstadium в Будапеште перед лицом восьмидесятитысячной толпы ликующих фанатов. Венгрия всё ещё оставалась за «железным занавесом», до падения Берлинской стены оставалось три года, и концерт имел настолько большое значение для руководства страны, что была собрана группа из лучших венгерских (   Читать дальше...   )01. One Vision
+02. Tie Your Mother Down
+03. In the Lap of the Gods. . .Revisited
+04. Seven Seas of Rhye(   Читать дальше...   )Производство: Венгрия, Канада, США | Eagle Rock EntertainmentЖанр: RockСубтитры: Английские, Французские, Немецкий, Испанские, Итальянский, Португальский
+
+За предоставленный материал большое спасибоПродолжительность: 01:31:08 + 00:26:53 (Бонусы)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 152805   (379910) от 14.11.2009
+
+Nirvana - Live At Reading Festival [1992] (2009) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Breed
+3. Drain You
+4. Aneurysm(   Читать дальше...   )Жанр: GrungeПеревод: ОригинальныйПродолжительность: 01:37:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 404651   (379775) от 30.10.2011
+
+Шоу Аниты Цой - Твоя А (2011.10.29) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+30 сентября в Государственном Кремлёвском дворце состоялась премьера грандиозного проекта, уникального шоу, над созданием которого трудились лучшие творческие силы России, а также специалисты из Венгрии, Голландии, Германии и Украины. Всего над концертом работали более 300 человек. В основу программы легла глубокая, прекрасная музыка - мелодический поп-рок из нового (   Читать дальше...   )01. Живущая в сети
+02. Ну и пусть
+03. Убегай, беги
+04. Разбитая любовь(   Читать дальше...   )Жанр: Концерт, Музыкальное шоуПродолжительность: ~ 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914F6E61AE31B26C949853DD93B4829482449880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948795   (379375) от 22.10.2015
+
+Муслим Магомаев. Записи 1963-1973 годов (2007) DVDRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Время
+02. Три минуты молчания
+03. В этот день
+04. Вдоль по Питерской(   Читать дальше...   )Производство: РоссияЖанр: МузыкальныйАктеры: М.МагомаевПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAE2F822B125EB2500F68DD7DE84C96887AD1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949194   (379359) от 22.10.2015
 
 Червона рута / Красная рута (1971) TVRip [H.264] [hand made colored]
@@ -6,7 +179,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +205,7 @@ Rammstein - Bizarre Festival (1996) VHSRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +234,7 @@ Rammstein - Bizarre Festival (1997) VHSRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379301.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -90,7 +263,7 @@ Rihanna - Bitch Better Have My Money (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +289,7 @@ U2-Концерт/Чикаго (2015) WEBRip[H.264/2160p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -174,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -203,7 +376,7 @@ LG Karaoke 200 суперхитов ver. 9.0 (2012) DVD9
 >>Караоке
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -232,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -258,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -284,7 +457,7 @@ Dolly Dots - Reunie Concert Ahoy (2007) [H.264, SD] DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -314,7 +487,7 @@ Akcent / Коллекция видео (2002-2010) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -340,7 +513,7 @@ VA - Осенний марафон № 199 / Видеоклипы (Свежие 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -369,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +570,7 @@ Billy Hlapeto And Kristo Feat. Lexus - Are Dai Pak (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -423,7 +596,7 @@ M. O. B feat. Alex T - Make You Scream (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -449,7 +622,7 @@ Madonna: Rebel Heart Tour (2016) BDRemux [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +648,7 @@ Santana - Santana IV: Live at the House of Blues, Las Vegas (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +677,7 @@ Santana - Santana IV Live at the House of Blues (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,180 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE62C85CC2A09E06D07E678E64B28D8E12F8C432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949300   (375107) от 24.10.2015
-
-Tubular Bells II Live (1999) DVDRip [hand made 60fps] H.264
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Олдфилд (Michael Gordon Oldfield) — британский мультиинструменталист и композитор, работающий в самых разнообразных жанрах: прогрессив и арт-рок, электронная музыка, фолк, кельтская музыка. Главным произведением Майка Олдфилда критики считают концептуальный альбом Tubular Bells (кстати, главная тема из фильма Изгоняющий дьявола/The Exorcist), вышедший в 1973 (   Читать дальше...   )01. Introduction
-02. Sentimental
-03. Dark Star
-04. Clear Light(   Читать дальше...   )Жанр: Концерт, Progressive Rock, New Age, Pop/Rock, Electronic, Progressive Pop, Folk Pop, PopПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE88595076F50011B679E8E2B7621489B9353D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 720152   (374410) от 10.11.2013
-
-Сборник клипов - VA - Various Music part. 47 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Agnes - Don't Go Breaking My Heart 720p (3:49)
-2. Ahzee - Born Again 1080p (3:40)
-3. Aircraft & Miss Palmer - Dont Ever Let Go 720p (3:16)
-4. Andreea Balan feat. Sonny Flame - IUBI 1080p (3:20)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796DCD353E5D7DB8FE6B7D0885E7D687E3F49740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949360   (374350) от 24.10.2015
-
-Metallica - Концерт в Москве (2015) WEBRip [1080p/60fps]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metallica в спортивном комплексе “Олимпийский”. Сыграли для москвичей много нового. Так, прежде ещё ни разу в Белокаменной не исполнялись песни “Ride The Lightning”, “King Nothing”, The Unforgiven”, “Frayed ends of naity”, “Lords Of Summer” и “Whiskey in the Jar”.Американцы отыграли 18 песен, из которых три - “на бис” (среди них, конечно, и “Nothing Else Matters”).Концерт (   Читать дальше...   )01.The Ecstasy of Gold
-02. Fuel
-03. For Whom the Bell Tolls
-04. Battery(   Читать дальше...   )Жанр: Heavy Metal, Trash MetalПродолжительность: 02.20.02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ED2478C4AD9F69515D3A5DF87C4BCF0D825F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327326   (374111) от 25.09.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 3 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся сила энергия и мощь понастоящему крутой музыки! Это 3я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 3 — Intro
-01. Cinderella — The More Things Change
-02. Van Halen — Don’t Tell Me
-03. 3 Doors Down — Duck & Run(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89118020E59E4514FAA7891C3A0087EE9FE71267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175540   (374069) от 20.10.2017
-
-Сборник клипов - Reggae от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374069.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые мелодичные клипы мирового рэгги. Эта музыка пропитана ямайским духом и жарким климатом тропиков. Для всех любителей солнечных мелодий и почитателей легендарного Боба Марли. От себя добавлю, Если б я мог превратиться в музыку, то стал бы позитивным ямайским солнечным рэгги! Это 1 часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для (   Читать дальше...   )001 Robert Palmer and UB40 - I`ll Be Your Baby Tonight
-002 Mark Wonder & Sizzla Guiding Light
-003 Mattafix - Cool Down The Pace
-004 Inner Circle - Games People Play(   Читать дальше...   )Жанр: ReggaeПродолжительность: 03:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A669C26E15B7B739B417F3DCDFF7057483FBD483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175701   (373927) от 20.10.2017
-
-VA - Viva Music (1996) VHSRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов легендарного немецкого музыкального телеканалаDJ Hooligan - System Ecstasy
-Rhythm of Sylvia - Rhythm of Sylvia
-CJ Bolland - Camargue
-Der dritte Raum Trommelmaschine(   Читать дальше...   )Производство: Viva MusicЖанр: Музыка,клипыСубтитры: отсутствуютПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D8558D78FB6CEABEFD7328311F451CBA39BA91
 ```
 
 https://mybot314.ru/tekegram_catalog/

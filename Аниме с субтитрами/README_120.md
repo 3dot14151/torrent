@@ -1,3 +1,109 @@
+###  Публикация: 1800094   (66319) от 31.05.2025
+
+Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Как не стоит использовать магию исцеления [ТВ-1] [2024, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Обычное возвращение домой со школы в итоге обернулось для Усато невероятным приключением. Ни с того ни с сего его и двух других учеников затянуло в иной мир. Усато быстро выяснил, что его призвали случайно, но затем оказалось, что он владеет редкой магией исцеления! Теперь юноша обучается на пределе человеческих возможностей, чтобы целительные способности подарили (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Огата ТакахидэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FB25A0BD48185AF2649A957E0AC62B326E4408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800105   (66318) от 31.05.2025
+
+Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком много проигравших героинь! [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Жанр романтики таков, что в нём зачастую есть не только победители, но и проигравшие. И к Кацухико притягивает именно таких героинь, отвергнутых своими избранниками. Будь то образцовая подруга детства Анна, спортсменка Рэмон или стеснительная до невозможности Тика.
+© crunchyrollПроизводство: студия A-1 PicturesЖанр: комедия, романтикаРежиссер: Китамура СётароПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8368AA66EA611BBBB0F93906DE80281B7AC49A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800108   (66317) от 31.05.2025
+
+Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru. | Невероятный новичок [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Рик - администратор гильдии, проработавший на этой должности уже четырнадцать лет. Однако всё это время он не оставлял свою мечту - стать настоящим авантюристом. Говорят, что если хочешь что-то успеть в жизни, надо начинать молодым, но он готов доказать, что это совсем не так. В этом ему поможет "Орихалковый кулак", группа самых сильных авантюристов континента. (   Читать дальше...   )Производство: студия Yumeta Company / ゆめ太カンパニーЖанр: приключения, комедия, фэнтезиРежиссер: Катагай СинПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95F48E6A767B711A6EFD04743C299D1EE3E53F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800097   (66316) от 31.05.2025
+
+Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12 эп. + 3 OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Герой побеждает повелителя демонов, отдав ради этого все свои силы. Что же делать дальше? Блэйд решает, что самое время наверстать упущенное из-за битв со злом время и поступает в академию Розвуд, где обучаются молодые герои. Его цель - завести сто друзей. Впереди юношу ждут эпические приключения и прекрасные девы.
+© crunchyrollЖанр: комедия, фэнтезиРежиссер: Кавагути КэйитироПеревод: CrunchyRoll (ТВ 01-12)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. + 3 OVA по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A86505EF6123F0B9EA6FEF879B144446ABDACC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800635   (66281) от 04.06.2025
 
 Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seikatsu o Mankitsu Suru | Седьмая беззаботная жизнь [2024, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +112,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +167,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +194,7 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -116,7 +222,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +250,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -170,7 +276,7 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -197,7 +303,7 @@ Meiji Gekken: 1874 | Самураи эпохи Мэйдзи: 1874 [2024, TV, 10 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62686.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -223,7 +329,7 @@ Hikari no Ou | The Fire Hunter | Пожинатель огня [2023, TV, 20 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +355,7 @@ Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer | Нежеланн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -277,7 +383,7 @@ Sasaki to P-chan / Sasaki and Peeps / Сасаки и Пи-тян [2024, TV, 12]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -303,7 +409,7 @@ Momochi-san Chi no Ayakashi Ouji | The Demon Prince of Momochi House | Прин�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -330,7 +436,7 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -356,7 +462,7 @@ Saikyou Tank no Meikyuu Kouryaku / The Strongest Tank's Labyrinth Raids / Сил
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -382,7 +488,7 @@ Yubisaki to Renren | A Sign of Affection | Любовь с кончиков па
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +514,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61980.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -434,7 +540,7 @@ Ao no Exorcist: Shimane Illuminati Hen | Blue Exorcist: Shimane Illuminati Saga 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +567,7 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +595,7 @@ Dosanko Gal wa Namara Menkoi / Hokkaido Gals Are Super Adorable! / Досанк�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -515,7 +621,7 @@ Hime-sama Goumon no Jikan Desu | Tis Time for Torture, Princess | Время "п
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -542,7 +648,7 @@ Jaku Chara Tomozaki-kun 2nd Stage / Bottom-tier Character Tomozaki 2nd Stage / �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -571,7 +677,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3nd / Classroom of the Elite III
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61655.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -585,111 +691,6 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e 3nd / Classroom of the Elite III
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F6AFE04158F34F88769E4B61BB1B3F01BC1BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691766   (61630) от 27.03.2024
-
-Gekai Elise | Doctor Elise: The Royal Lady with the Lamp | Королева со скальпелем [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Злaя импepaтpицa Элизe былa кaзнeнa. Oнa пepepoдилacь, в дpyгoй жизни cтaлa тaлaнтливым xиpypгoм и cтapaлacь иcкyпить винy зa пpoшлoe, пoмoгaя людям. Пoгибнyв в aвиaкaтacтpoфe, oнa cнoвa пepepoдилacь и вepнyлacь в cвoю пepвyю жизнь, нo зa 10 лeт дo кaзни. Coxpaняя вocпoминaния o cвoиx пpeдыдyщиx жизняx, Элизe нe xoчeт cтaнoвитьcя пpeжнeй злoй coбoй и пoвтopять oшибки (   Читать дальше...   )Производство: студия Maho FilmЖанр: комедия, романтика, фэнтезиРежиссер: Хабара КумикоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Multi-SubПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED3EF3251AB35FA1E42189CE19AEC4FF687D817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693716   (61537) от 28.03.2024
-
-Gekkan Mousou Kagaku | Delusional Monthly Magazine | Псевдонаучный ежемесячник [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61537.jpg" />
-</div>
-
-
-###  Подробнее
-
-В городе Мост, на втором этаже ветхого здания находится одна редакция. Она выпускает ежемесячный журнал о таких феноменах, которые кажутся невозможными даже учёным. Главному редактору, красавчику Таро, помогают школьник Дзиро и пёс Сабуро. Новая удивительная история закручивается, когда к ним за помощью обращается учёный Горо Сато.
-© crunchyrollПроизводство: студия OLM / オー・エル・エムЖанр: повседневностьРежиссер: Мияваки ТидзуруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; Русские; Mutli-SubПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D780C7C6D012A6C963B9D7C930E616B5F286EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691291   (61472) от 29.03.2024
-
-Mahou Shoujo ni Akogarete / Gushing over Magical Girls / Восхищаясь девушками-волшебницами [2024, TV, 13] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утэнa Xиpaги вceгдa вocxищaлacь дeвyшкaми-вoлшeбницaми и мeчтaлa cтaть кpyтoй гepoинeй, кoтopaя бopeтcя co злoм. Пoэтoмy кoгдa oнa вcтpeчaeт cyщecтвo, yтвepждaющee, чтo y Утэны ecть cкpытaя мaгичecкaя cилa, тyт жe peшaeт, чтo eё мeчтa cбылacь. Ho вcё pyшитcя из-зa внeзaпнoгo пoвopoтa coбытий: oнa пpeвpaщaeтcя в злoдeйкy! He зaинтepecoвaннaя в coюзe c cилaми злa, (   Читать дальше...   )Жанр: комедия, этти, фэнтези, юри, махо-сёдзё.Режиссер: Оцуки АцусиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE962C4BD95F8A830130E9EA46E3E30DAB9912A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646159   (61467) от 29.03.2024
-
-Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61467.jpg" />
-</div>
-
-
-###  Подробнее
-
-2222 год. Год назад на Землю пролились «Слёзы Новой Луны» — загадочный ядовитый ливень, который стёр с лица планеты почти всё человечество. Зато он породил отвратительных монстров-людоедов, и выжившим пришлось спасаться бегством. Они построили подземное убежище и назвали его Амазия. Однако там они столкнулись с новыми трудностями: необходимостью уживаться с искусственным (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: фантастикаРежиссер: Ямамото ЮсукэПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D468F040F96329ECD6395C867073A1E6E298C455
 ```
 
 https://mybot314.ru/tekegram_catalog/

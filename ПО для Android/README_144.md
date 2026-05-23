@@ -1,3 +1,81 @@
+###  Публикация: 1796612   (18674) от 11.05.2025
+
+Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в царство отдыха, превратив свой телевизор в прекрасный камин! Идеально подходит для успокоения перед сном или для расслабления в гостиной! Blaze предоставляет 6 тщательно отобранных каминов с красивой графикой и профессионально проработанным звуком. Камины могут быть представлены в формате HD или Ultra HD, в зависимости от вашего телевизора. С каминами (   Читать дальше...   )Тип издания: FullРелиз состоялся: 10.05.2025Разработчик: PirinelПоддерживаемая ОС: Android 5.0+, Android TVЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796261   (18652) от 11.05.2025
+
+TickTick: Список дел и задачи v7.6.6.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+TickTick — это ваш личный мощный инструмент продуктивности, разработанный для упрощения вашей жизни и повышения вашей эффективности. Этот многомерный менеджер задач объединяет все ваши дела, расписания и напоминания в одном интуитивно понятном пространстве, позволяя управлять временем и задачами без проблем, будь то дома, на работе или в пути. Откройте для себя эффективный (   Читать дальше...   )Тип издания: ProРелиз состоялся: 11.05.2025Разработчик: TickTick LimitedПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D28F1B5FA3D728891FEA32D089F5C12D94AB444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796589   (18604) от 11.05.2025
+
+Все коды регионов. Штрафы ГИБДД v10.00.17 Mod от Alex.Strannik [Ru]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Узнать откуда машина - не проблема! 🚗🚙. По гос.номеру автомобиля вы можете определить из какого региона этот автомобиль, к какому роду войск принадлежит, или за посольством какой страны закреплен. Удобный инструмент для определения региона регистрации автомобиля по индексу в номере. Встроена база по регионам СНГ. Присутствует встроенная игра на запоминание (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 11.05.2025Разработчик: RunIQ SoftПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B288E8CFAC5E892192976DEF993124333E33288C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796593   (18598) от 11.05.2025
 
 Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
@@ -6,7 +84,7 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -87,7 +165,7 @@ Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +192,7 @@ Fitness Online / Фитнес онлайн v2.20.5 Mod by vadj [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +218,7 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -166,7 +244,7 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +271,7 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17477.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -219,7 +297,7 @@ Email Aqua Mail - Fast, Secure v1.55.1 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -246,7 +324,7 @@ AR Plan 3D: Линейка, Рулетка v4.10.0 Mod by srajawwal09 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -328,7 +406,7 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +432,7 @@ English Galaxy v2.2.5 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +458,7 @@ Pencil Photo Sketch : Drawing v2.2.35 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -406,7 +484,7 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -432,7 +510,7 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -459,7 +537,7 @@ CalcKit: All-In-One Calculator / Всё-в-одном Калькулятор v7.
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -485,7 +563,7 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -511,7 +589,7 @@ ToonApp v3.1.6 Mod by youarefinished [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15939.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +615,7 @@ Translate AI - Camera & Voice v2.0.6 Mod by papasha55 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -566,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15753.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -592,7 +670,7 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -603,85 +681,6 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800445   (15745) от 03.06.2025
-
-AR Ruler App: Линейка Рулетка v3.0.9 Mod by srajawwal09 [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15745.jpg" />
-</div>
-
-
-###  Подробнее
-
-ARuler - лучшее и бесплатное приложение на Android для измерений, использующее технологию дополненной реальности (Augmented reality или кратко AR)! Приложение AR Ruler использует технологию дополненной реальности (AR) для измерения различных предметов с помощью камеры вашего смартфона. Просто нацельтесь на обнаруженную горизонтальную плоскость и начните измерять!Тип издания: ProРелиз состоялся: 03.06.2025Разработчик: GrymalaПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE8345D00C1FA25792D30ABC20A8C53833CA8DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800609   (15680) от 04.06.2025
-
-Мобильный электрик v5.4 Pro Paid [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для электрических расчетов, которые используются в работе электрика и домашних мастеров. Возможность сохранения результата расчета сечения в текстовом формате,с последующим просмотром.
-По каждому расчету (кроме законов Ома) дана отдельная справка.Тип издания: Pro (с Маркета)Релиз состоялся: 02.06.2025Разработчик: Анатолий ТарасенкоПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800984   (15433) от 07.06.2025
-
-Proton VPN 5.11.39 Mod [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Proton VPN — это единственное в мире бесплатное приложение VPN, которое безопасно в использовании и уважает вашу конфиденциальность. Наш быстрый VPN предлагает безопасный, конфиденциальный, зашифрованный и неограниченный доступ в интернет с дополнительными функциями конфиденциальности и безопасности. Proton VPN также разблокирует доступ к популярным веб-сайтам и (   Читать дальше...   )Тип издания: ModПоддерживаемая ОС: Android 8.0 и вышеЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 ```
 
 https://mybot314.ru/tekegram_catalog/

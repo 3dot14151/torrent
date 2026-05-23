@@ -1,3 +1,107 @@
+###  Публикация: 784335   (153001) от 27.12.2014
+
+Outlast (2013) [Ru/Multi] (1.0.12046.0/dlc) SteamRip Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В далеких горах Колорадо, ужасы творятся в лечебнице Маунт Мэссив. Учреждение было давно заброшено, но недавно восстановлено под программой «исследования и благотворительность» транснациональной корпорации Муркофф. До сих пор все в лечебнице проходило в полной секретности... Действуя по наводке от внутреннего источника, независимый журналист Майлс Апшур проникает (   Читать дальше...   )Тип издания: SteamRipРазработчик: Red BarrelsЖанр: Action (Survival horror) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Бразильский, Португальский, ПольскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Венгерский, Бразильский, Португальский, Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4650FA79C3E6AF9C0DA14B907B39C4F284E36E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135495   (152690) от 26.12.2017
+
+Life Is Strange: Complete Season (2015) [Ru/Multi] (1.0.0.397609) Repack Other s [Episode 1-5]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время. Но еще неясно, как это точно работает и к чему может привести. Все начнется со спасения подружки (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD Entertainment, Feral Interactive (Mac), Feral Interactive (Linux)Жанр: Adventure, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94773A71926215CFA6ED1A47E6AF5D3A88E0665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825716   (151870) от 17.11.2025
+
+Bad Cheese (2025) [Ru/Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Bad Cheese - это психологический хоррор, вдохновленный мрачным очарованием анимации 1920-х годов. Мама куда-то ушла, и крошечному мышонку придется провести выходные дома в компании неадекватного отца. Ему нужно вести себя хорошо, иначе папа разозлится.Тип издания: LicenseРазработчик: Simon LukasikЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83E58914BF978DF6DC40098737097B2DFD9F1AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677080   (151737) от 16.11.2023
+
+American Arcadia (2023) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+American Arcadia - увлекательная кинематографическая головоломка, в которой органично сочетаются элементы 2,5D-платформера и геймплея от первого лица, погружающая игроков в захватывающее повествование о побеге из опасной ситуации. В центре сюжета - Тревор, ничем не примечательный человек, оказавшийся в центре событий самого известного в мире реалити-шоу. Действие (   Читать дальше...   )Тип издания: SceneРазработчик: Out of the Blue GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481BAD31B1CE1E541544CADE36E76E5BFBEE1A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086300   (151256) от 24.12.2016
 
 The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механики [Episodes 1-3]
@@ -6,7 +110,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Disney Infinity 1.0 (2016) [Multi] (1.0.1/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Disney Infinity 2.0 (2016) [Ru/Multi] (1.0.2/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151005.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Disney Infinity 3.0 (2016) [Multi] (1.0.3/upd1) License PLAZA [Gold Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Cleo a pirate's tale (2021) [Multi] (1.1.5) License GOG [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Leviathan: The Last Day of the Decade / Левиафан: Последний д�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Scarf (2021) [Ru/Multi] (1.0.1) License FAIRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Memoria (2013) [Ru/En] (1.2.3.0341) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ DREDGE (2023) [Ru/Multi] (1.4.0/dlc) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146594.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Broken Sword 2: The Smoking Mirror (2011) [Multi] (3.4.3) License GOG [Remastere
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Broken Sword: Shadow of the Templars (2010) [Multi] (1.0.744/1.6.0) License GOG 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Still There (2019) [Ru/Multi] (1.05) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Deadlight (2016) [Multi] (1.0) License GOG [Director's Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ KURSK (2018) [Ru/En] (2.1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Death Stranding (2020) [Ru/Multi] (1.06hf/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ First Date: Late To Date (2022) [Ru/Multi] (Build 9491049/0.3.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) License GOG [Episodes 1-3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D808470C123E70B48CA68491EA5AEC9E2E43151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087700   (143815) от 28.12.2016
-
-Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел смерти (2006) [Ru/Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143815.jpg" />
-</div>
-
-
-###  Подробнее
-
-После утомительных битв с драконами и древними богами майя Джордж Стоббарт, ставший Рыцарем давно забытого Святого Ордена, наконец-то смог насладится обычными буднями офисного работника. Но кто мог подумать, что однажды в его жизни появится таинственная и прекрасная незнакомка, девушка, чье внезапное исчезновение заставит Джорджа пуститься в отчаянные поиски зловещего (   Читать дальше...   )Тип издания: LicenseРазработчик: Revolution Software и Sumo DigitalЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D5DB435FCAE85F7366904A2F63EDE67785F0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678664   (143059) от 22.11.2023
-
-Father's Day (2022) [Ru/En] (1.6.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143059.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Father’s Day» - психологический триллер, который является спин-оффом и приквелом к игре “Find Yourself”. Мечта жить долго и счастливо разрушилась, после того, как Фил потерял жену и сына. Одержимый желанием их вернуть он разрабатывает план, о котором никому не рассказывает. Под управлением игрока находятся три персонажа, которые сменяются попеременно – сержант полиции (   Читать дальше...   )Тип издания: RepackРазработчик: EMIKA_GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F297DB1FC17F732EE2465FC216DE936FA181B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387322   (142931) от 27.12.2021
-
-Nerved (2020) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nerved – игровой проект, представленный в стиле хоррора, в котором все действия происходят с видом от первого лица. Познакомься сразу с двумя главными героями – следователями, которые отправляются в глубины леса, чтобы разгадать мрачную тайну. Как только вы прибываете на место действия то понимаете, что оказались в настоящей ловушке и именно с этого момента начинается (   Читать дальше...   )Тип издания: LicenseРазработчик: PlaystigeЖанр: Экшены, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EA8B1F30CA6F12722E91B032597E14A657BC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491961   (142673) от 27.12.2021
-
-Tormented Souls (2021) [Ru/Multi] (Build 7622656) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tormented Souls — это классическая хоррор-игра. Каролина Уолкер расследует исчезновение девочек-близнецов, и в процессе с ней происходит кое-что ужасное. Она очнулась посреди ночи в ванне, голая и подключенная к древним медицинским приборам. Теперь Каролине нужно сражаться за свою жизнь, исследуя коридоры заброшенного особняка.Тип издания: RepackРазработчик: Dual Effect, Abstract DigitalЖанр: Adventure (Horror), Puzzle, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539853599ADA568514321F3A35220A1E74247C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

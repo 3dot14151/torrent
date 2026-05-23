@@ -1,3 +1,107 @@
+###  Публикация: 1149903   (597717) от 12.07.2017
+
+ArmA: Armed Assault (2007) [En] (1.18/dlc) License GOG [Gold Edition]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Armed Assault - это стопроцентное продолжение Operation Flashpoint. Например, камера демонстрирует заход на посадку двух UH-60. Вокруг до боли знакомый серо-зеленый ландшафт: горы, несколько небольших лесков, долина, по которой пролегает дорога, уютно выглядящий городок. Можно даже зажмуриться от удовольствия, а воспоминания все равно продолжат врываться в голову. (   Читать дальше...   )Тип издания: LicenseРазработчик: Bohemia Interactive StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BB750EC6423048E27FE0F4893C363D385E4FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526518   (596704) от 24.07.2012
+
+Crysis 2 Maximum Edition [Ru/En/Multi9] (Steam-Rip/1.9) 2011 | R.G. Кинозал
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мир потрясла серия экологических катастроф, и человечество находится на грани вымирания. Инопланетяне вернулись с твердым намерением стереть людей с лица земли и начали при этом с одного из самых культовых земных городов. Улицы Нью-Йорка наводнили инопланетные захватчики, и волна оживших кошмаров постепенно захлестывает город и его жителей. Городские коммуникационные системы разрушены, здания лежат в руинах. Такого Нью-Йорка Вы еще не видели. Ни правоохранительные организации, ни военная машина США не могут справиться с захватчиками, и все, кто не успел вовремя убежать, уже мертвы. Чтобы выжить в этом хаосе, Вам понадобятся технологии, о которых ни один земной солдат еще и понятия не имеет. Один человек унаследует то, что поможет ему выжить. Один суперсолдат, вооруженный и экипированный по последнему слову технологий будущего в Nanosuit 2, предпримет отчаянную попытку спасти человечество на улицах Нью-Йорка.(   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Разработчик: CrytekЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Английский, Русский, Multi9
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70BFB13C4E6CB5AC053BA57249FA641D02189E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039539   (595546) от 01.08.2016
+
+Whispers (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Whispers — это шутер от первого лица. Вы играете за смотрителя загородных домов, в отсутствие хозяев. Вам предстоит следить за домом друга. Дом находится посреди поля, вдали от цивилизации. Он оставил инструкции для вас. Ничего сложного, просто следить за чистотой дома. Но что-то с этим домом не так, это вам и предстоит узнать.Тип издания: RepackРазработчик: PeaceЖанр: Adventure, Action, 3D, 1st Person, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC3D4F6E6F985D1ED2B326CB770CB0042112284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150387   (594669) от 14.07.2017
+
+Crysis 3 (2013) [Ru] (1.3/dlc) Rip Other s [Digital Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Crysis 3 продолжает знаменитую серию шутеров от Crytek. Действие игры разворачивается в 2047 году, а вам предстоит выступить в роли Пророка. Он возвращается в Нью-Йорк, где узнает о том, что город находится под куполом Nanodome, который был создан корпорацией C.E.L.L. Жителям сообщают, что Nanodome необходим для их защиты и очистки метрополисов от последних цефов, (   Читать дальше...   )Тип издания: RipРазработчик: CrytekЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4A21A1F771C532C3BF778E3CB7620B79F46CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962940   (593723) от 15.07.2017
 
 Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
@@ -6,7 +110,7 @@ Sublevel Zero Redux (2015) [Ru/Multi] (1.2.9875/13429) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +188,7 @@ The Solus Project (2016) [Ru/Multi] (1.021) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (1.009/2.070/dlc) Repack/Mo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579697.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576633.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ The Hunt / Черная метка [Ru] (RePack) 2008 | R.G. Packers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Titanfall 2 (2016) [Ru/En] (2.0.6.1) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +399,7 @@ INVITATION (2019) [En/Ko] (1.0/upd3) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570498.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) RePack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -348,7 +452,7 @@ Blood Feed (2017) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +478,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +504,7 @@ Enemy Front (2014) [Ru/Multi] (3.4.4.6290 Upd4/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +532,7 @@ Aliens versus Predator Classic 2000 (2000) [En] (20160330) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +558,7 @@ Nether: Resurrected (2014) [Ru/En] (2016 April) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +585,7 @@ Painkiller: Resurrection / Painkiller: Воскрешение (2010) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +611,7 @@ Far Cry 2: The Fortune’s Pack [Ru] (RePack/1.3) 2008 l UltraISO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +638,7 @@ Alien: Isolation (2014) [Ru/Multi] (1.0.4/dlc) License GOG [The Collection]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +664,7 @@ Evolve (2015) [Ru/En] (1.0) RePack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,111 +675,6 @@ Evolve (2015) [Ru/En] (1.0) RePack =nemos=
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E09F1E50ECF887E2A45B7D6DEE9B94FE1568737D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045707   (557490) от 24.08.2016
-
-Conclusion (2016) [Ru/En] (1.0.2) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил - белая ворона в своём окружении. Его особенности чинят ему всю жизнь препятствия и проблемы. И главные из них на повестке дня - он оказался неизвестно где и непонятно как. Но почему эта дорога рядом с ним кажется такой знакомой? Дать ответ на этот и все остальные вопросы сможете только Вы.
-Conclusion - это адвенчура с элементами детектива. Вам придётся распутывать (   Читать дальше...   )Тип издания: LicenseРазработчик: TomadeiraЖанр: Adventure, Casual, IndieЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9ACE434562BFC5E9C92DC62C1163A31C87FD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924690   (557269) от 04.08.2015
-
-Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно известно: только настоящие мужчины могут быстро расправиться с врагом, уничтожить секретное оружие, спасти множество невинных душ и, конечно, выиграть войну! И вот настоящие мужчины, такие как, боец Степан и его друг товарищ Пушкин, капитан танковой бригады, вступают в схватку с фашистами! Бескомпромиссная борьба со злом в лице генерала фон Шпрота просто не (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Mirage SoftwareЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский , АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2960F2019029BF03ECE8A2163913332EF110C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556853   (556854) от 11.06.2022
-
-POSTAL: Brain Damaged (2022) [Multi] (1.0 Build 8904334) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556854.jpg" />
-</div>
-
-
-###  Подробнее
-
-POSTAL: Brain Damaged — это новая интерпретация культовой серии от Running With Scissors с ретро графикой и динамичным современным геймплеем. Совершите дикую прогулку по запутанной стране чудес, заключенной в безумном разуме Чувака.Тип издания: RepackРазработчик: Hyperstrange, CreativeForge GamesЖанр: Action, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ПольскийЯзык интерфейса: Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BB49ADA80FA9E97730280EA8BD81887A85DD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087737   (556483) от 14.07.2018
-
-SUPERHOT (2016) [Ru/Multi] (13.07.18) Repack R.G. Механики
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что вы врываетесь в наполненный врагами зал... через стеклянный потолок. Повсюду осколки стекла, враги стреляют в вас. Пока вы падаете, все движется быстро, но после приземления время замедляется. При каждом вашем движении время снова ускоряется. Со всех сторон в вас летят пули, и вам нужно стильно выбраться из этой ситуации. Сами авторы проекта называют (   Читать дальше...   )Тип издания: RepackРазработчик: SuperHot TeamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD6F736E98E0A4BA1104AC60C14ADD56C1BFF77
 ```
 
 https://mybot314.ru/tekegram_catalog/

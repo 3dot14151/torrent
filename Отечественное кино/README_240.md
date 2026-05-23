@@ -1,3 +1,107 @@
+###  Публикация: 1691502   (123341) от 12.01.2024
+
+Ивановы-Ивановы. Новогодние каникулы (2023) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ивановы готовятся встретить Новый год в Египте. Но на борту самолёта сталкиваются с грабителями, которые пытаются вывезти за границу кольцо, украденное из музея. В полёте завязывается драка, из-за чего самолёт экстренно садится в Ереване. На носу Новый год, гостиницы заняты, но всех выручает брат Гамлета — Давид. Казалось бы, теперь можно спокойно отметить праздник, (   Читать дальше...   )Производство: Россия / Pick Up Films, Телеканал СТСЖанр: комедия, семейныйРежиссер: Антон Федотов, Сергей ЗнаменскийАктеры: Михаил Трухин, Станислав Дужников, Анна Уколова, Алексей Лукин, Светлана Колпакова, Юлия Сорокина, Юрий Ицков, Ашот Кещян, Андрей Крыжний, Олеся ГрибокСубтитры: отсутствуютПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3427BAF2CCE427D054CABF6F5C2D7A2A023B9C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691354   (123305) от 12.01.2024
+
+Исповедь содержанки (1992) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вадима, преуспевающего бизнесмена, пользующегося огромным успехом у женского пола, похищают бандиты с целью получения выкупа. Собрать внушительную сумму денег для рэкетиров Вадим поручает своей сексапильной любовнице Марии. Подполковник милиции Шмельков с группой захвата организует засаду и готовится к встрече непрошеных визитеров на квартире у Марии.Производство: Россия, Нидерланды / ТерраЖанр: мелодрама, криминалРежиссер: Борис ГригорьевАктеры: Марина Зудина, Михаил Жигалов, Людмила Нильская, Всеволод Ларионов, Игорь Янковский, Игорь Дмитриев, Игорь Кашинцев, Виктор Косых,Игорь Шаповалов, Владимир МосиенкоСубтитры: отсутствуютПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD18FE48106AD905B3AD65B76A064A6CD64E804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691477   (123304) от 12.01.2024
+
+Серые волки (1993) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Фильм интерпретирует факты и события смещения Н.С. Хрущева. Параллельно с исторической хроникой развивается драматическая история человека, попытавшегося раскрыть тайну заговора и остановить развитие событий.Производство: Россия | МосфильмЖанр: боевик, биография, историяРежиссер: Игорь ГостевАктеры: Ролан Быков, Александр Белявский, Лев Дуров, Богдан Ступка, Александр Мохов, Александра Захарова, Александр Потапов, Геннадий Сайфулин, Владимир Трошин, Евгений ЖариковСубтитры: отсутствуютПродолжительность: 01:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2160D30EDBD5B7224F039163FECB71CE00BF8C0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691717   (123223) от 13.01.2024
+
+Метанойя.Исповедь бродяги (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эта история падения и взлета, история от смерти к жизни, от тьмы к свету, от неверия к вере. Одним словом эта история – Покаяния!Производство: РоссияЖанр: драмаРежиссер: Роман ПоловиковАктеры: Артем Храмов, Борис Яковишин, Роман ЖирновПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871D14C7F615D76FFA2552945A8A9F6711E2CFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691754   (123211) от 13.01.2024
 
 Цена доверия (2023) WEBRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123211.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123027.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122846.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A84D1E005E3A138313AED3F14446CD722CE06D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692370   (122645) от 16.01.2024
-
-Мужчина к Новому году (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лера успешна, красива и умна, но одинока. В отношениях с мужчинами она предпочитает руководствоваться советами подруг. Поэтому, разорвав очередные «зависшие» взаимоотношения, Лера спорит, что сможет найти мужчину мечты к Новому году. Есть лишь одно но: до праздника осталась неделя.Производство: Россия / Творческий центр Андрея НосковаЖанр: комедия, мелодрамаРежиссер: Андрей НосковАктеры: Кира Кауфман, Кристина Кузьмина, Илья Носков, Андрей Носков, Сергей Перегудов, Ангелина Дебор, Роберто Флейтес, Алексей ВоскресенскийСубтитры: отсутствуютПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666D783917AF0AC0717D8FB935900FA1B565C6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692363   (122639) от 16.01.2024
-
-Мужчина к Новому году (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лера успешна, красива и умна, но одинока. В отношениях с мужчинами она предпочитает руководствоваться советами подруг. Поэтому, разорвав очередные «зависшие» взаимоотношения, Лера спорит, что сможет найти мужчину мечты к Новому году. Есть лишь одно но: до праздника осталась неделя.Производство: Россия / Творческий центр Андрея НосковаЖанр: комедия, мелодрамаРежиссер: Андрей НосковАктеры: Кира Кауфман, Кристина Кузьмина, Илья Носков, Андрей Носков, Сергей Перегудов, Ангелина Дебор, Роберто Флейтес, Алексей ВоскресенскийСубтитры: отсутствуютПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC721A71677E3D850469CE46D653DA8C04B2B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692499   (122601) от 16.01.2024
-
-Ф.О.Т.О.Г.Р.А.Ф. (2018) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент миротворческих сил по прозвищу Фотограф прибывает в Зону отчуждения, чтобы предотвратить катастрофу глобального масштаба. По мотивам компьютерной игры "S.T.A.L.K.E.R."Производство: Россия / Omut FilmsЖанр: короткометражный, боевик, драма, фантастикаРежиссер: Максим ФащенкоАктеры: Александр Родин, Юрий Херувимов, Вячеслав ЗгурскийСубтитры: ОтсутствуютПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE9C49DB298F16932A99EA54BABBE8CEEB2328B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692305   (122599) от 16.01.2024
-
-Кадриль (1999) HDTVRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кадриль - танец с переменой партнеров… Русский народный вариант «любви вчетвером». В далекой прибайкальской деревушке живут две семьи: Коля Звягинцев с женой Лидой и его сосед Саня Арефьев с женой Валей. Две соседки решили в сердцах «махнуться» своими непутевыми, подвыпившими мужиками...Производство: Россия / МосфильмЖанр: комедияРежиссер: Виктор ТитовАктеры: Станислав Любшин, Любовь Полищук, Олег Табаков, Валентина Теличкина, Нина УсатоваСубтитры: отсутствуютПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B4387F820A7DF7CB7748CC7DBA2A224612C382
 ```
 
 https://mybot314.ru/tekegram_catalog/

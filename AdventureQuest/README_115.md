@@ -1,3 +1,107 @@
+###  Публикация: 1814241   (6184) от 24.08.2025
+
+Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Bendy: Lone Wolf играешь за мультяшного волка Бориса, который бродит по старой анимационной студии. Студия эта, кстати, каждый раз по-новому выстраивается, так что никогда не знаешь, что за следующим поворотом. А ещё по всей студии разбросаны всякие полезные штуки и оружие, которые помогают выживать.Тип издания: RepackРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE8506652DC97424FA830FED8F9D18DEE7DD33D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814370   (6145) от 24.08.2025
+
+Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В Bendy: Lone Wolf играешь за мультяшного волка Бориса, который бродит по старой анимационной студии. Студия эта, кстати, каждый раз по-новому выстраивается, так что никогда не знаешь, что за следующим поворотом. А ещё по всей студии разбросаны всякие полезные штуки и оружие, которые помогают выживать.Тип издания: LicenseРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679256   (6052) от 25.08.2025
+
+Dave the Diver (2023) [Ru/Multi] (1.0.5.1674/dlc) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dave the Diver - это казуальная приключенческая RPG для одного игрока, в которой днем проводятся глубоководные исследования и рыбалка, а ночью - управление суши-рестораном. Присоединяйтесь к Дэйву и его причудливым друзьям, которые стремятся раскрыть секреты таинственной Голубой бездны. Исследуйте и разгадывайте тайны в глубинах Голубой бездны днем и управляйте успешным (   Читать дальше...   )Тип издания: SceneРазработчик: MINTROCKETЖанр: Adventure, CasualЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2AF3B4D2DAE4F4DCDE7E53763D5B5451E96D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814439   (6042) от 25.08.2025
+
+Skully (2020) [Ru/Multi] (1.0.161.6416) Repack Wanterlude
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Skully наделён силой волшебной глины и должен пройти через далёкий райский остров, чтобы помочь загадочному божеству положить конец угрожающей острову вражде. На далёком таинственном острове на берег выбросило череп, и местное божество пробудило его. Череп получил имя Skully, и теперь он должен остановить войну между тремя родственниками божества, потому что она (   Читать дальше...   )Тип издания: RepackРазработчик: Finish Line GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82B1E26B1688ABDA2CC51CB113C64910C9FBE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814616   (6018) от 25.08.2025
 
 The Garden Path (2024) [Multi] (1.0) Scene Skidrow
@@ -6,7 +110,7 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Herdling (2025) [Ru/Multi] (1.1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Herdling (2025) [Ru/Multi] (1.2.3.p) Repack Let'sРlay [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Caput Mortum (2025) [Ru/Multi] (1.1.0.0) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ SkullX: Aibohphobia (2025) [En] (1.0.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ NODE: The Last Favor of the Antarii / NODE: последняя услуга Ан
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Veil of the Skies (2025) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Dave the Diver (2023) [Ru/Multi] (1.0.5.1702/dlc) Repack Let'sРlay [Deluxe Edit
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ REPOSE (2025) [Multi] (1.1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ A Shelter Full of Cats (2024) [Ru/Multi] (1.0.5c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.15.1.0/dlc) Repack Let'sРlay [Backstage
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Gems of War - Puzzle RPG (2014) [Ru/Multi] (8.8.0r75951/dlc) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Deliver At All Costs (2025) [Ru/Multi] (250331-132937) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Deliver At All Costs – захватывающий экшен, где разр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD8D127B10B224608EAF3F4D18981120E0024CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816111   (4537) от 03.09.2025
-
-BROK The InvestiGator (2022) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжетная приключенческая игра, сочетающая в себе экшен и расследования так, как никогда ранее. Используешь ли ты свой острый ум или кулаки? В футуристичном мире, где животные заняли место людей, привилегированные горожане живут под Куполом, защищающим их от загрязненной окружающей среды, в то время как остальные изо всех сил борются за выживание.Тип издания: RepackРазработчик: COWCATЖанр: Приключение, Квест, ФайтингЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048081641416B2139763294B950120FC57CDA56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816181   (4532) от 03.09.2025
-
-Summer Pockets: Reflection Blue (2025) [Multi] (1.2.0.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Summer Pockets: Reflection Blue начинается с того, что протагонист, Такахара Хаири, отправляется на отдаленный остров Торисиродзима, чтобы во время летних каникул разобраться с личными вещами своей покойной бабушки. Молодой человек осваивается с жизнью в окружении пышной природы, которая резко контрастирует с покинутым им городом.Тип издания: SceneРазработчик: VISUAL ARTSЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный)Язык интерфейса: Английский, Японский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C239001A793E016E279B6922A0B0A3598FACEEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807665   (4515) от 04.09.2025
-
-The Drifter (2025) [Multi] (1.0.9) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мик Картер уже давно дрейфует: переходит с одной работы на другую, никогда не задерживаясь на одном месте. Сев в крытый вагон, он становится свидетелем жестокого убийства, его преследуют высокотехнологичные солдаты, бросают в водохранилище и топят. И это только начало проблем Мика. Его сознание вырвано, за несколько секунд до смерти он возвращается в собственное (   Читать дальше...   )Тип издания: LicenseРазработчик: Powerhoof, Dave LloydЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F267578602F5EFA2BA5CAEC08E514FC207225C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816293   (4480) от 04.09.2025
-
-The Hundred Line: Last Defense Academy (2025) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4480.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре повествования этой видеоигры находится Такуми Сумино, обычный токийский подросток, чья размеренная жизнь в одночасье переворачивается с ног на голову. Тихие улицы мегаполиса внезапно наполняются хаосом, когда на город обрушивается нашествие загадочных монстров. В этот критический момент перед Такуми предстаёт странное существо по имени Сирей, предлагая юноше (   Читать дальше...   )Тип издания: RepackРазработчик: Too Kyo Games, Media.Vision Inc.Жанр: Приключенческие игры, СимуляторыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Японский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948AF9D5037A9847D7FA110A0344A6CE336C537A
 ```
 
 https://mybot314.ru/tekegram_catalog/

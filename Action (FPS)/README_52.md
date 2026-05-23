@@ -1,3 +1,107 @@
+###  Публикация: 1781560   (26649) от 24.02.2025
+
+Far Cry 3 (2012) [Ru] (1.05/dlc) Repack EXROW [Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой игры Far Cry 3, Джейсон Броуди, отправляется с друзьями в отпуск на необычайно красивый тропический остров. И тут же оказывается в заложниках у банды пиратов под предводительством безумного убийцы Вааса. Начиная с этого момента, ваша задача – выжить любой ценой.Джейсон будет втянут в кровопролитную войну между пиратами и местными повстанцами, в которой (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Massive Entertainment, Ubisoft ShanghaiЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6209DFC8D305BE7490826EB3C549BD49EBDF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693613   (26540) от 25.02.2025
+
+Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кровавая битва человечества с инопланетной расой Строггов продолжается. Земляне отчаянно сопротивляются натиску безжалостных пришельцев, но лишь став одним из них, ты сможешь победить... Возглавив элитный отряд десантников, использующих самое современное боевое снаряжение, ты отправляешься на родную планету Строггов. Ты - единственная надежда землян на победу в этой (   Читать дальше...   )Тип издания: RepackРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08E3D742B1C01F1FCF7D50A11F24684E5BF7C69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746658   (26527) от 25.02.2025
+
+Hands of Necromancy (2022) [Ru/Multi] (18.2.25) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Hands of Necromancy – это шутер с видом от первого лица и элементами метроидвании. Он предлагает геймплей старой школы в духе экшенов из 90-х. В нём вместо огнестрельного оружия используются посохи и применяются заклинания. В ближнем бою антигерой дерется магическим мечом. Также он может метать нечестивую ручную гранату. Среди доступных ему спеллов есть замораживающее (   Читать дальше...   )Тип издания: LicenseРазработчик: HON TeamЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F6FEB59E7C7E80C0F969706ED9EED52BB65CF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749971   (26514) от 25.02.2025
+
+Hands of Necromancy II (2) (2024) [Ru/Multi] (18.2.25) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Примерите ли вы вновь на себя мантию некроманта из первой игры и докажете его превосходство, либо выберете нового персонажа в серии - ведьму, которая появилась, чтобы показать миру истинное значение силы? Каждый персонаж индивидуален по своему и отличается собственным оружием, заклинаниями, способностями к трансформации!Тип издания: LicenseРазработчик: HON TeamЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307CE52329596124907CA10AD76D50A1AD5F4454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765396   (26513) от 25.02.2025
 
 Generation Zero (2019) [Ru/Multi] (2925040/dlc) Repack Let'sРlay [Ultimate Bundle]
@@ -6,7 +110,7 @@ Generation Zero (2019) [Ru/Multi] (2925040/dlc) Repack Let'sРlay [Ultimate Bund
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Far Cry 3: Blood Dragon (2013) [Ru] (1.02) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Slime Rancher (2017) [Ru/Multi] (1.4.4) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Jack Holmes: Master of Puppets (2024) [Ru/Multi] (1.2.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Isla de la Muerte (2025) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Devilated (2021) [Multi] (1.01) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Borderlands 3 (2019) [Ru/Multi] (Build 15245523/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25072.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.7/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sons of the Forest (2023) [Ru/Multi] (53951) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.39.113250.0/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Chernobylite Complete Edition (2019) [Ru/Multi] (50563/dlc) Repack Let'sРlay [P
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_24225.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Heretic: Shadow of the Serpent Riders (1994) [En] (1.3/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Hexen: Deathkings of the Dark Citadel (1996) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -474,7 +578,7 @@ HeXen II (2) (1997) [En] (1.11 music fix) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -500,7 +604,7 @@ The Original Strife (1996) [En] (1.1.2b) License GOG [Veteran Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23871.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71765E9B5B540DF7C78E5EA539F824115D456FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786984   (23785) от 23.03.2025
-
-Battlefield 4 (2013) [Ru/Multi] (1.8.2.48475) Repack dixen18
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bаttlеfіеld 4 – это определяющий для жанра, полный экшена боевик, известный своей разрушаемостью, равных которой нет. Основанный на мощной и надежной графической технологии Frоstbіtе 3, Bаttlеfіеld 4 предлагает погрузиться в игровую среду, поражающую своей реалистичностью. Только в Bаttlеfіеld вы сможете разрушать здания, в которых скрывается противник. Только в (   Читать дальше...   )Тип издания: RepackРазработчик: EA Digital Illusions CEЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E463833E645C25D4C1C91ECB9E7161C6AD6E2DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786973   (23767) от 23.03.2025
-
-Bears In Space (2024) [Ru/Multi] (1.0) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bears In Space - это динамичный шутер от первого лица, в котором ты окунешься в захватывающий мир опасностей, битв и приключений. Ты будешь играть за Максвелла Атомса - солдата Солнечной Армии, оказавшегося на чужой планете после неудачного эксперимента. Единственное, что у тебя есть - это острые рефлексы, несколько вооружений и твои медвежьи способности. Роботы-враги (   Читать дальше...   )Тип издания: LicenseРазработчик: Broadside GamesЖанр: Action, Shooter, First-person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E7557A4BCF57DDF55CFEB64A43D9362511624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787268   (23673) от 24.03.2025
-
-Easy Red 2: All Fronts (2020) [Ru/Multi] (1.5.0/dlc) Repack seleZen
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy Red 2 - шутер от первого лица с элементами стратегии, погружающий в аутентичную атмосферу Второй мировой войны. Игровой процесс позволяют окунуться в напряженные и жестокие бои, где главное - это планирование и тактика. Геймплей опирается на реализм. Пробивайтесь сквозь танки и огромную армию врага. Не попадайтесь в зону действия взрывов и ищите способы выжить (   Читать дальше...   )Тип издания: RepackРазработчик: Marco AmadeiЖанр: Экшены, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C565DDCE3189687C29D419A30D79ED376ECF05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725959   (23603) от 25.03.2025
-
-ROBOBEAT (2024) [Ru/Multi] (1.3.10) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - Ас, знаменитый охотник за головами, которому предстоит поймать эксцентричного робота-снеговика Фраззера. Если вы хотите пройти через его безумную игровую техно-площадку, вам придется научиться мастерски стрелять, бегать по стенам, выполнять подкаты и прыгать - под музыку! Приготовьтесь танцевать до упаду, а затем ждите ремикса в ROBOBEAT, ритм-шутере с элементами (   Читать дальше...   )Тип издания: RepackРазработчик: Simon FredholmЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B862F0E1FAC44AE9E925779AC13F72427CDD46A
 ```
 
 https://mybot314.ru/tekegram_catalog/

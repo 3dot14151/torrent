@@ -1,3 +1,87 @@
+###  Публикация: 1632975   (198526) от 12.05.2023
+
+Ким Воронин | Изнанка дизайна 2.0 (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Что за проект:
+Презентация для выступления в Торговой палате
+
+− Покажу все созвоны с клиентом(   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 06:54:40Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5002A9A82A434D48A757C627314E0BFC38C3B86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633002   (198520) от 12.05.2023
+
+Сергей Гуров | Серия интенсивов «Игра в типографику» (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Серия интенсивов «Игра в типографику» была задумана с прицелом на работу с референсам. Эти референсы мы берем из смежных областей дизайна (таких как печатный дизайн, айдентика, моушен, живопись или графика) и используем их как материал для сборки нестандартных решений в проектировании веб-страниц (интерактивный формат).
+
+В этот раз «Игра» будет посвящена Истории (   Читать дальше...   )Жанр: ДизайнЯзык озвучки: РусскийПродолжительность: 24:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4DE7CCA66B086AC73F97742DE7BEE378B29D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633131   (198444) от 13.05.2023
+
+Udemy, Alex Cordebard | The Ultimate Blender 3D Geometry Nodes Course (2023) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели изучить геометрические ноды, но не знали, с чего начать, или были ошеломлены ими? Мы рассмотрим ВСЕ геометрические ноды и ВСЕ их опции и попутно создадим несколько потрясающих сцен!
+Этот курс структурирован таким образом, что каждое видео знакомит с новым геометрическим нодом. С каждым новым нодом, который мы изучим, мы будем опираться на предыдущие (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, Geometry NodesЯзык озвучки: АнглийскийПродолжительность: 42:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F1AA8043CCE6691B55E57E3B11579ADFCF7C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633555   (198442) от 15.05.2023
 
 Юлия Мавлянова | Fashion Illustration (2023) WEB-DL [RU]
@@ -6,7 +90,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -35,7 +119,7 @@ FXPHD, Charles Chorein | HOU115 – Height Fields in Houdini, Part 1 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -61,7 +145,7 @@ Kalacheva School, Вероника Калачева | Акварель Про 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -90,7 +174,7 @@ FXPHD, Charles Chorein | HOU116 – Height Fields in Houdini, Part 2 (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -116,7 +200,7 @@ Watermedia, Татьяна Ширбидова | Базы акварели Сту
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -144,7 +228,7 @@ LavandaSchool, Анастасия Чиркова | Цифровой портре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -173,7 +257,7 @@ Bengala.art, Ирина Глушкова | Мини-курс NFT (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -202,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -228,7 +312,7 @@ Enterclass, Павел Шевелев | Вид из окна (2023) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -256,7 +340,7 @@ Enterclass, Сергей Курбатов | Марафон. Тропинками
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -282,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198235.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -308,7 +392,7 @@ Lumos, Олег Грознов | Как правильно читать карт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -334,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198221.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -361,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -387,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -415,7 +499,7 @@ The Gnomon Workshop, Alessandro Cangelosi | Natural Environment Creation Techniq
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -441,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -469,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -498,7 +582,7 @@ Learn Squared, Arsen Asyrankulov | Organic Sculpting (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -524,7 +608,7 @@ Wingfox, Virendra Kumar | Blender Anime - NPR Environment Course (2023) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -551,7 +635,7 @@ Kalacheva School, Рузанна Айрапетян | Карандашный р�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -580,7 +664,7 @@ Myrevitschool | My Revit - оформление 3Д видов (2023) WEB-DL [AD
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -608,7 +692,7 @@ Proko, Ahmed Aldoori | Med's Map - Your Guide to Digital Painting Mastery (2021)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197234.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -619,88 +703,6 @@ Proko, Ahmed Aldoori | Med's Map - Your Guide to Digital Painting Mastery (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7811CBC35C666C909C6587F6694F53F77F35BDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639251   (197101) от 12.06.2023
-
-Wingfox, Jose Moreno | Stylized Texturing for Video Games with Blender (2023) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197101.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы изучите полный рабочий процесс создания стилизованных материалов и текстур для ваших моделей с помощью инструментов Blender.
-Это включает в себя: базовое моделирование, UV развертку, запекание карт, ручную раскраску и процедурное текстурирование, создание PBR-материала, окончательное запекание карт и рендеринг.
-Мы собираемся рассмотреть все эти темы (   Читать дальше...   )Производство: WingfoxЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 10:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA041E30009FD1919BFCF4FCB2BA5D850F7A446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639427   (197087) от 13.06.2023
-
-Udemy, Yassine Larayedh | Create Realistic Highlands in Blender (2023) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197087.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы узнаете, как создавать реалистично выглядящие возвышенности в Blender.
-К концу курса вы научитесь создавать текстуры, освещать сцену и создавать реалистичное окружение. Также в узнаете множество техник, советов и рабочих процессов, которые поднимут ваши навыки работы с 3D на новый уровень.Производство: UdemyЖанр: 3D моделирование, ОкружениеЯзык озвучки: АнглийскийПродолжительность: 03:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DA08F31A6FF4874F1198A663B106A61B390C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639426   (197084) от 13.06.2023
-
-Wingfox, Pierre Schiller | Stylized 2D Toon Shader in Blender (2021) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс будет сосредоточен на изучении принципов создания стилизованного 2D-образа с использованием 3D-моделей и материалов, которые будут отображаться в окне просмотра в режиме реального времени в Blender EEVEE, ссылаясь на рабочие процессы Guilty Gear для разработки персонажа.
-Используя методы, описанные в этом учебном курсе, вы сможете изучить и разработать свои (   Читать дальше...   )Производство: WingfoxЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22B77D64D56BA692E953BADC944EB28BA9FF3FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

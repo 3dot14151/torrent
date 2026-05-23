@@ -1,3 +1,55 @@
+###  Публикация: 1180271   (138328) от 30.12.2018
+
+Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.10.f) Repack R.G. Catalyst
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Shadow Tactics: Blades of the Shogun, основанная на скрытности игра, в которой вам предстоит выполнять нелегкие поручения во главе отряда наемных убийц. Shadow Tactics – изометрическая тактическая стратегия, в которой вам предстоит провести свой отряд по Японии начала XVII века, выискивая самые изощренные способы убийства высокопоставленных жертв.Тип издания: RepackРазработчик: Mimimi ProductionsЖанр: Strategy (Real-time, Tactical), 3D, Isometric, StealthЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196079   (137521) от 31.12.2017
+
+Helldorado (2009) [Multi] (2.00) License GOG
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+1883 год, Санта-Фе. Покой городка нарушен шокирующим похищением. Соберите своих людей и выполните ряд сложных заданий, чтобы остановить вероломных преступников в этой истории, полной шантажа и мести. Захватывайте поезда с трофеями, участвуйте в салунных потасовках, совершайте побеги из тюрем и побеждайте в перестрелках! Все готово к приключению на Диком Западе.Тип издания: LicenseРазработчик: Spellbound Entertainment AGЖанр: Стратегия, В реальном времени, ТактическаяЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский, ИспанскийЯзык интерфейса: Английский, Немецкий, Французский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DEABBCDFDFE1D3816437CE0E4F42B8A35B8DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680526   (133999) от 29.11.2023
 
 Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
@@ -6,7 +58,7 @@ Last Train Home (2023) [Ru/Multi] (1.0.1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Repack Decepticon
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Field of Glory II (2) (2017) [Multi] (1.6.10/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121972.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Cliff Empire (2019) [Ru/Multi] (1.34) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118200.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Europa Universalis IV (4) (2013) [Multi] (1.36.2/dlc) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117321.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (13371529) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) Repack Decepti
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Solium Infernum (2024) [Ru/Multi] (1.0) Scene SKIDROW
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +396,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115909.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Scene Tenoke
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +474,7 @@ Ruff Ghanor (2024) [Multi] (1.0.0.1) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +500,7 @@ Classified: France '44 (2024) [Multi] (1.0/dlc) Repack FitGirl
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +552,7 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Cannon Fodder 3 [Ru] (RePack) 2012 l Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -580,7 +632,7 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -607,7 +659,7 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,58 +672,6 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474656   (85038) от 28.03.2012
-
-Worms: Reloaded: Game of the Year Edition + 7 DLC [Ru] (RePack/1.0.0.475) 2012 | Naitro
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_85038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя десять лет после выхода Worms™ Armageddon, пошаговое комичное мессиво продолжается в переработанной Worms™ Reloaded, доступной для ПК на Steam. Worms™ Reloaded предлагает вашему вниманию многопользовательскую игру до четырех человек и с компьютером, поддержку голосовой связи, связку новых сумасшедших оружий (и это не считая некоторые самые запоминающиеся оружия из предыдущих частей серии), достижения, таблицу рекордов, новые фоновые темы в высоком разрешении, обширный список замков для нового режима «Замок», новые редактор ландшафта, новые режимы игры, шляпы, костюмы и голосовые наборы червячков. И в завершение всего этого мы чуть не забыли упомянуть интереснейшую одиночную игру, включающую в себя обучение, режим «Бой на смерть», гонки, игры режима «Замок» и паззлы. Вкусите виды нового движка высокой четкости и переработанную физику, в сочетании с которой искусственный интеллект 7 различных типов становится то легким, то бесшабашным, а то настоящим почти что неуязвимым монстром, способным растерзать любого опытного игрока в клочья.Кроме того, в игре вы найдете кучу возможностей ее настройки, начиная с тысячи вариантов оформления своей команды червячков и заканчивая уникальными, созданными вами уровнями, которые позволят вам играть так, как вы этого захотите!В издании Game of the Year Edition игра содержит в себе весь вышедщий загружаемый контент!(   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Strategy (Turn-based)Язык озвучки: Русский, АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F37E741DCE4516ED9B65C9AFF3172058F2354F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785015   (69455) от 14.03.2025
-
-Combat Mission: Red Thunder (2023) [En] (2.13/dlc) License GOG
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Combat Mission: Red Thunder переносит в жестокие сражения на Восточном фронте летом 1944 года, охватывая такие значимые события, как Багратион и наступление на Польшу. Действие разворачивается в болотах Беларуси и на окраинах Варшавы, а основное внимание уделяется тактике ведения боевых действий. Юзер может командовать как советскими, так и немецкими войсками, воочию (   Читать дальше...   )Тип издания: LicenseРазработчик: BattlefrontЖанр: СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32145C16B3FACBB4AE8579CF63C1E1A8FD3B2AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

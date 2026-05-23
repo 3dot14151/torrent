@@ -1,3 +1,55 @@
+###  Публикация: 1508992   (795294) от 11.11.2021
+
+King's Bounty: Armored Princess / King's Bounty: Принцесса в доспехах (2009) [Ru] (1.2) License
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В роли принцессы Амели игроку предстоит отправиться в странствие по Теане, чтобы отыскать прославленного рыцаря и наставника принцессы Билла Гилберта. При этом, чтобы найти героя, героиня должна отыскать все 8 Камней Богов Теаны. На пути героини станут армии ужасных монстров, огромные чудовища и раса кровожадных ящеров. Но у игрока найдется, что противопоставить (   Читать дальше...   )Тип издания: LicenseРазработчик: Katauri InteractiveЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB81A68CA1E73611B287D5CB6C58D6912E4EA392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200942   (794586) от 22.01.2018
+
+Carmageddon Max Pack (1997) [En] (1.0/dlc) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Садитесь за руль и крушите машины неудачников, оказавшихся, на вашем пути. Вместо саундтрека вы услышите скрежет металла, брызги машинного масла о лобовое стекло и визг покрышек на поворотах. Крепче держитесь за руль, ведь перед вами на выбор 23 крэшмобиля (от жуткого монстр-трака до сверхскоростного дрэгстера) и более 30 уровней, полных адовой ярости и ужаса на (   Читать дальше...   )Тип издания: LicenseРазработчик: Stainless SoftwareЖанр: Экшн, Сражения, РаллиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8A557E81319DCA3C122230109DC182089B91F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121182   (794201) от 05.04.2017
 
 Ultra Fighters (1998) [En] (1.1) License
@@ -6,7 +58,7 @@ Ultra Fighters (1998) [En] (1.1) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Pray for Death (1996) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Anachronox (2001) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Titan Quest (2006) [Ru] (1.20) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Tomb Raider 4: The Last Revelation / Tomb Raider: Последнее откро�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Carmageddon 2: Carpocalypse Now (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.21.2.1256) License CODEX
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ Alpine Skiing 2005 (2004) [En/Ge] (1.88) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ Salt Lake 2002 (2002) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787566.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ Peter Jackson's King Kong: The Official Game of the Movie (2005) [Ru/Multi] (1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -604,7 +656,7 @@ The Guild (2002) [Ru] (1.0) Repack Other s [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -615,58 +667,6 @@ The Guild Gold Edition — вероятно, одна из самых необы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC096E9937C2E987FBA63DC67620D36B841835E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205376   (783731) от 09.02.2018
-
-Lighthouse: The Dark Being (1996) [En] (2.0a) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783731.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой прекрасной игре собрано очень много: неизвестные злобные существа, механические люди и птицы, непонятные приспособления и механизмы. Игра прекрасно выполнена графически. Преследуя похитителя ребенка, вам придется летать на самолете, плавать на подводной лодке, опускаться на морское дно на батискафе. Вас ждет огромное количество загадок и головоломок. Будьте (   Читать дальше...   )Тип издания: LicenseРазработчик: Sierra On-LineЖанр: Приключение, От первого лица, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811A3550AC16181774A40694FCC9E124CA7A3706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206977   (781170) от 16.02.2018
-
-Outlaws (1997) [En] (2.0/dlc) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать домой, старина! Мы ждали тебя здесь, в городе Санкчери. Разувайся и присаживайся. Бывший шериф Джеймс Андерсон жил тихой семейной жизнью на ферме с женой и дочерью. Пока в один мрачный день эта жизнь не была разрушена жадным земельным магнатом, решившим проложить через землю Джеймса свою железную дорогу. Теперь Андерсон жаждет мести и готов осыпать (   Читать дальше...   )Тип издания: LicenseРазработчик: LucasfilmЖанр: Шутер, Приключение, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473A8E9D82F1165102CB02B2BC8D7E20316D1FC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

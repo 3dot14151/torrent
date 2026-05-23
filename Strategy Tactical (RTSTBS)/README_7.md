@@ -1,3 +1,55 @@
+###  Публикация: 1136836   (670419) от 24.05.2017
+
+Steel Division: Normandy 44 (2017) [Ru/Multi] (300080502/dlc) SteamRip Let'sPlay [Deluxe Edition]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Steel Division: Normandy 44 — это тактическая стратегия в реальном времени (RTS) , разработанная студией Eugen Systems, создавшей серию Wargame и стратегию R.U.S.E. Эта новая игра предоставляет под ваше командование детально прорисованные и исторически точно воспроизведенные танки, пехотные войска и прочую боевую технику на полях сражений второй мировой войны.Тип издания: SteamRipРазработчик: Eugen SystemsЖанр: Strategy (RTS), Tactics, Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5E919CF8CD36ECC697CC43E6E27B0CE4E567C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137403   (667569) от 26.05.2017
+
+Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Орда инопланетных танков заполнила улицы, повсюду сея хаос и террор, в ваших руках судьба человечества! Исследуйте мир танковых боёв будущего в новой стратегии в реальном времени. 2152 год. Времена Прокси-войн, когда автономные танки и роботы, удалённо контролируемые пилотами, сражались друг с другом, наконец окончены.Тип издания: LicenseРазработчик: VR FeaturesЖанр: Strategy Tactical (RTS, TBS)Язык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B695085A9376056A9D60E9243474ED87E218DCD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224928   (663588) от 12.05.2018
 
 Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.2.f) Repack xatab
@@ -6,7 +58,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.2.f) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Ancestors Legacy (2018) [Ru/Multi] (47903) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Halo Wars (2017) [Ru/En] (20170605) Repack R.G. Механики [Definitive Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ Satellite Reign (2015) [Ru/Multi] (1.13.02) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ Panzer Tactics HD (2014) [Ru/Multi] (1.0.2) Repack xGhost
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0.5) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ Skulls of the Shogun (2013) [Ru/Multi] License FANiSO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (1.0) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ Steam Squad (2016) [Ru/En] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ Steam Squad (2016) [Ru/En] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ Halo Wars 2 (2017) [Ru/Multi] (1.0.1130815) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ Driftland: The Magic Revival (2019) [Ru/Multi] (2.0.112) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -451,7 +503,7 @@ FTL: Faster Than Light (2012) [Ru/Multi] (1.6.12) License GOG [Advanced Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +529,7 @@ Partisans 1941 / Партизаны 1941 (2020) [Ru/Multi] (1.1.02.5/dlc) Licens
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +555,7 @@ Hegemony III: Clash of the Ancients (2015) [En] (3.3.6.4/dlc) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +581,7 @@ The Banner Saga Dilogy (2014-2016) [Ru/Multi] (2.42.50/2.39.03/dlc) Repack R.G. 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +607,7 @@ Ultimate General: Civil War (2017) [Ru/Multi] (1.0.20111) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +633,7 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23166/dlc) Repack =nemos= [Master Coll
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_586884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -607,7 +659,7 @@ Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -618,59 +670,6 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5963C623A12369CF7DD583E108D28B3D8074431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301615   (583887) от 12.05.2019
-
-Fell Seal: Arbiter's Mark (2019) [Ru/Multi] (1.0.3) License CODEX
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fell Seal: Arbiter's Mark – пошаговая тактическая ролевая игра, во главу угла ставящая повествование, действие которой разворачивается в фэнтезийном мире с налетом стимпанка. Вам предстоит сыграть за вершителя Кайри – агента Совета Бессмертных, которая призвана поддерживать мир и порядок на вверенной ей территории, – и провести свой отряд через множество опасных (   Читать дальше...   )Тип издания: LicenseРазработчик: 6 Eyes StudioЖанр: TBS, RPGЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B39CF8BEBFFD811FE8112194D965FC2235D8017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359255   (580498) от 07.07.2011
-
-Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие негодяи [Ru] (RePack) 2011 | Devil666
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580498.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Grotesque Tactics: Настоящие негодяи" - это ироничная фэнтезийная РПГ с интересным сценарием и тактическими элементами. Юный призывник Дрейк проваливается на экзамене в Военную академию, и поэтому ему отказывают в праве сражаться за королевство Глория. Униженный и расстроенный, он ищет способ броситься в пасть беспощадного плотоядного гриба. Но вдруг Дрейк замечает, что он далеко не единственный, кому от разочарования не мила жизнь. Он встречает подавленные остатки войск Глории, которые - с синяками и ранами - только что вернулись с решающей битвы - той самой битвы, в которой Дрейку не разрешили принять участие. Среди выживших есть и самый знаменитый герой всего человечества - Святой Аватар. Прежде чем ужасные новости разойдутся и наведут панику, вам вместе с Дрейком придется как можно быстрее набрать группу, которая сможет противостоять Темной Церкви, уничтожившей почти всю королевскую армию...Тип издания: RePackЖанр: Strategy (Tactical) / RPG / 3D
-__________________________________________________________________________________Язык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDF60381200D6DCAD3F3E1B21481F802890AAFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

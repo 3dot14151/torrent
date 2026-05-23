@@ -1,3 +1,109 @@
+###  Публикация: 1623380   (238386) от 02.04.2023
+
+Сибирская Благозвонница | Вопросы святого Сильвестра и ответы преподобного Антония (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга относится к типично монашескому жанру, сформировавшемуся в византийской литературе в V в. и достигшему своего расцвета в VII–VIII вв. В оригинале книга надписана именем святого Кесария Назианзина, однако действительное ее авторство доподлинно не установлено. Вероятней всего, ее написал монах константинопольского монастыря Акимитон, скрывший свое авторство (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C904B5A3A6609AEBBBDFD0E7C0D65FCB360BF757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629105   (238339) от 26.04.2023
+
+Преподобный Никодим Святогорец | Невидимая брань. Классическое издание с новыми современными пояснениями (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Невидимая брань» – сокровище православной аскетической литературы. Она была создана в XVIII веке афонским монахом Никодимом Святогорцем. По сей день «Невидимая брань» признается важнейшим руководством для духовной жизни не только для монахов, но и для всех мирян.
+
+Для этого издания впервые была проделана работа по составлению специального дополнения к классическому (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2082083EB6C52FC48D84A46EBF4FC601FBF12C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490970   (238312) от 24.08.2021
+
+Тамбов (изд.) | Преподобная Марфа, старица Кирсановская (2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Когда мы слушали или читали рассказы о столь высокой, богоугодной жизни первоначальницы Тихвино-Богородской женской обители в г. Кирсанове блаженной Марфе, так ныне многолюдной, так быстро процветшей и возросшей, - нам тогда невольно приходила на мысль непреложная истинность слов Писания: «семя свято стояние мира» (Исаии 6, 13). Таковая обитель, как Тихвинская в (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3234897B6CC23F3CD65DB946223DEEB0BABD6428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491279   (238304) от 24.08.2021
+
+Митрополит Вениамин Федченков | Отец Иоанн Кронштадтский (2000) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Книга митрополита Вениамина (Федченкова, 1880-1961) — плод его многолетних трудов — представляет собой наиболее полное на сегодняшний день исследование, посвященное жизни, деятельности и учению святого праведного Иоанна Кронштадтского († 1908). Книга включает в себя биографические материалы, воспоминания, систематически изложенное учение Кронштадтского праведника (   Читать дальше...   )Жанр: Православие. МемуарыФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99810D9795E8ECFFE069731489F99127E01D3D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623824   (238227) от 03.04.2023
 
 М. И. Хитров | Святой Алексий, человек Божий (2019) [PDF, FB2, EPUB, MOBI]
@@ -6,7 +112,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -34,7 +140,7 @@ Jiddu Krishnamurti | Nobody Can Teach You About Yourself (2021) [PDF]
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -62,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -116,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -142,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237880.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -168,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -196,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237852.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -222,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237850.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -248,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -276,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -302,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237546.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -328,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -354,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -380,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -406,7 +512,7 @@ Cвятой праведный Иоанн Кронштадтский | О Кре
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -432,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -458,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -512,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -538,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -575,114 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F76E0FEC7672F799A1800B68DA7E4C9BB104633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608784   (236664) от 01.02.2023
-
-Священник Иоанн Бухарев | Жития всех святых (2020) [PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236664.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге священника Иоанна Бухарева «Жития всех святых» в кратких, но самых главных чертах излагаются жизнь и подвиги святых, прославленных в Русской Церкви до 1900 года, а также сказания о всех праздниках Православной Церкви и чудотворных иконах Пресвятой Богородицы.
-
-Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D243AF3673CD3B9964397C5D18BC1E74FCF659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608928   (236549) от 01.02.2023
-
-Преподобный Макарий Великий | Духовный жемчуг (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Макарий достиг такой близости к Богу, что по его молитве Господь воскрешал умерших. Несмотря на такую высоту достигнутого богоподобия, он продолжал сохранять необыкновенное смирение, никогда не переставал плакать, каяться и трудиться.
-
-Кротость, смирение и милосердие преподобного преображали души человеческие. Шестьдесят лет провёл святой Макарий в мёртвой (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4836492304E510FF9799037EE59A6AFC5C2FBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609329   (236366) от 03.02.2023
-
-Артос-Медиа (изд.) | Житие преподобного Никиты Переславльского с приложением акафиста, молитв и других необходимых сведений (2004) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем сердцем приняв монашеские обеты, преподобный Никита проводил дни и ночи в молитве, пении псалмов и чтении житий святых подвижников. По благословению настоятеля он возложил на себя тяжёлые вериги и на местах своих монашеских подвигов ископал два глубоких колодца. Вскоре преподобный усилил свой подвиг — он выкопал глубокую круглую яму и там, возложив на главу (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F539695D0348BE2A12670430819959DEF4FD68AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641643   (236259) от 23.06.2023
-
-Благовест | Заповедь благого Учителя. По творениям блаженного Августина (2011) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту книгу вошли избранные высказывания блаженного Августина – известного епископа, богослова и проповедника IV-V веков, – собранные из его многочисленных творений. В них он говорит о многообразных проявлениях и благодатном воздействии любви Божией на человека и вообще на все Его творение, что и сам блаженный испытал в своей жизни. В своих духовно-нравственных работах (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B1F1B9ACA359DC5E1997DDD8427408553FF9C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

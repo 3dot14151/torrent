@@ -1,3 +1,81 @@
+###  Публикация: 1568281   (464076) от 07.08.2022
+
+Twilight Pro - Фильтр синего света 12.17 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Twilight - заставляет экран адаптироваться под время суток. Он отфильтровывает голубой спектр на Вашем телефоне или планшете после захода солнца и защищает Ваши глаза мягким и приятным красным фильтром. Интенсивность фильтра плавно настраивается относительно солнечного цикла и основывается на времени вашего местного заката и восхода.Тип издания: ProРелиз состоялся: 17.05.2022Разработчик: Urbandroid (Petr Nálevka)Поддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский, Шведский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBD879F677ECE42EFCF443BC927325C42EA3CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568267   (463815) от 07.08.2022
+
+Advanced Download Manager v14.0.13  [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продвинутый менеджер загрузок. Позволит удобно скачивать файлы на Android устройстве. Программа позволит планировать закачки на определенное время, докачивать файлы после обрыва связи, параллельно скачивать файлы, ускорено скачивать файлы в несколько потоков, сохранять различные типы в файлов в разные папки в зависимости от формата. Для удобства предусмотрена функция (   Читать дальше...   )Тип издания: Пиратка (открыт Pro)Релиз состоялся: 03.08.2022Разработчик: AdvancedAppПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A930371C1EFDEE429528D8B2D9ABAB75FFF2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764653   (462663) от 22.08.2019
+
+RAR for Android Premium v5.71 build 74 Final [Ru/Multi]
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+RAR для Android компании RARLAB способен создавать RAR и ZIP и распаковывать RAR, ZIP, TAR, GZ, BZ2, XZ, 7z, ISO, ARJ архивы. Список команд включает восстановление поврежденных ZIP и RAR архивов, функцию измерения производительности, совместимую с аналогичной функцией WinRAR компании RARLAB. Среди прочих возможностей - данные для восстановления, обычные тома и тома (   Читать дальше...   )Тип издания: AD-Free (Premium features unlocked & Without NAG screen)Релиз состоялся: 22.08.2019Разработчик: RARLAB (EugeneRoshal)Поддерживаемая ОС: Android 4.2+Язык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4390935C048EB391A7289DA533218FC50484D6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568534   (461812) от 08.08.2022
 
 Free Ringtone Maker / Создатель Рингтона 1.01.41.0613 Mod by Mixroot [Ru/Multi]
@@ -6,7 +84,7 @@ Free Ringtone Maker / Создатель Рингтона 1.01.41.0613 Mod by Mi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Wombo: Make your selfies sing 3.1.1 Mod by Mixroot [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Anews: все новости и блоги 4.3.15 Mod by SurvivalHorro [Ru/Multi
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Cool Q Launcher 8.5.1 Mod by Oflarm [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +214,7 @@ PrintHand Mobile Print Premium v13.4.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ AirScreen - AirPlay & Cast & Miracast & DLNA v2.2.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +266,7 @@ GymUp v10.17 Pro [Ru/En] - дневник тренировок
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Eternal Calendar (Вечный календарь) 2018.09.10 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Universal Diary / Универсальный дневник v2.29 Unlocked [Ru/E
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458825.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455556.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +423,7 @@ XMusic - Музыкальный плеер 2.8.1.90 Mod by @Mod_AppStore [Ru/Mul
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +449,7 @@ Total Media Player v1.7.7 Pro [Ru/Multi] - многофункциональны�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -397,7 +475,7 @@ Simpler Premium v2.18.210 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +504,7 @@ Squid: Take Notes, Markup PDFs v3.4.4.6-GP  [Ru/Multi] - удобные заме
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Bookari Premium (бывшая Mantano Ebook Reader) v4.2.4 [Ru/Multi] - Чита
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,87 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24359BC46C04B2690B22100BB6196ADE9C5BFF84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410677   (433737) от 22.09.2020
-
-ReGYM v2.5 [Ru/En] - дневник тренировок (фитнес и пауэрлифтинг)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433737.jpg" />
-</div>
-
-
-###  Подробнее
-
-ReGYM - это уникальный подход к ведению дневника тренировок с контролем отдыха после нагрузок различной интенсивности. Создайте для себя индивидуальный план тренировок, который поможет вам идти к своей цели без препятствий! Отслеживайте степень восстановления мышц и планируйте тренировки таким образом, чтобы они были максимально эффективными в тот день, когда ваши (   Читать дальше...   )Тип издания: Пиратка / Unlocked (Full)Релиз состоялся: 11 сентября 2020 г.Разработчик: AppsByBrosПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6124A346ADCE3D1F4531B1A6B0A385B19F304E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945403   (433097) от 10.10.2015
-
-Аура Астрология + v1.10 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Построение астрологических карт, поддерживает разные системы домов.
-Аура Астрология (старое название - "Аура Зодиак")
-==============================================
-В программу включены:(   Читать дальше...   )Тип издания: Пиратка (Paid)Релиз состоялся: 13 января 2015Разработчик: Sinin StudioПоддерживаемая ОС: Android 3.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD08E75DD27B9C684D5BE386DCC5CFDB0F4318A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371802   (431260) от 23.09.2020
-
-Интерактивное ТВ (Zabava) v3.0.13 Mod [Ru] (обновляемая)
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просмотр доступен через 3G и Wi-Fi на планшетах Android версии 4.1 и выше.  Старый Wink с поддержкой Android 4.1+. В моде добавлены все недостающие каналы, разблокированы архивы, подправлен интерфейс. Теперь список полный, как у Wink. Есть ATV-ярлык, но само приложение под тач-экраны, так что понадобится аэромышь / мышка.Тип издания: Пиратка (Mod)Релиз состоялся: 22.09.2020Разработчик: ZABAVAПоддерживаемая ОС: Android 4.1+,Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B3AA06B4C87D9B05B12EA91B49AA6AEFEABCEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

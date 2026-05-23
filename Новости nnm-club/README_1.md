@@ -1,3 +1,136 @@
+###  Публикация: 1854710   (1057797) от 21.02.2026
+
+США готовят портал для обхода интернет-цензуры в Европе и не только
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Влияние интернет-пространства на настроения общества в наши дни настолько велико, что во многих странах мира существует онлайн-цензура, предусматривающая блокировку нежелательного для местных властей контента. Власти США задумались о создании такого портала, который позволит жителям Европы и других стран обходить эти блокировки.О разработке такого онлайн-портала (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854302   (1057488) от 19.02.2026
+
+Европа  может создать собственный серверный CPU — на архитектуре RISC-V и техпроцессе Intel 3
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Снижение импортозависимости имеет значение и для европейских создателей критической инфраструктуры, поэтому представители Суперкомпьютерного центра в Барселоне (BSC-CNS) проверили работоспособность спроектированных ими процессоров TC1 с архитектурой RISC-V, выпущенных по технологии Intel 3.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854281   (1057256) от 18.02.2026
+
+Дешёвые товары на маркетплейсах станут дороже
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Дешёвые товары на маркетплейсах станут сильно дороже — в Госдуме поддержали  введение НДС на зарубежные товары.Сейчас рассматриваются два варианта налогообложения: (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854508   (1057243) от 19.02.2026
+
+Первое достижение: 1000 релизов от adguard
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+ Первое достижение: 1000 релизов от adguard Дорогие друзья и гости клуба...Все мы знаем, как в последние годы вырос спрос на всякого рода репаки и сборки ПО. К сожалению на этом фоне безумства теряются истинные приверженцы оригинального софта.
+И вот когда заходит речь об официальном релизе Операционной Системы Windows, то каждый раз добрым словом вспоминаю нашего (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854004   (1057194) от 17.02.2026
+
+Треки Spotify выложили в открытый доступ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Аудиозаписи, скопированные со Spotify, постепенно становятся открыты всем желающим: Anna's Archive начала опубликовывать миллионы треков, несмотря на «немыслимый судебный иск» в размере $13 трлн от всемирно известного сервиса.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854143   (1057162) от 17.02.2026
 
 Ученый раскрыл, мог ли челябинский метеорит привести к катастрофе
@@ -6,7 +139,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -111,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -137,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1056216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -216,7 +349,7 @@ YouTube включил ИИ-дубляж для всех — в том числ�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -242,7 +375,7 @@ Windows 10 Pro 22H2 19045.6812 x64 by SanLex [Lightweight] [Ru-En] (2026.02.05) 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055673.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -321,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -347,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -374,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -400,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -426,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -452,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -479,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053563.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,148 +665,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
 ###  Подробнее
 
 Рэймонд Чен (Raymond Chen) из Microsoft рассказал, почему зажатая и удерживаемая клавиша Shift при перезагрузке помогала системе Windows 95 запускаться быстрее, чем это было бы при полной перезагрузке компьютера.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849105   (1053264) от 24.01.2026
-
-Zapret GUI 1.60 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа предназначена для обхода DPI-блокировок (госцензуры с блокировкой сайтов) на базе Zapret.
-Используются скрипты от сборки Zapret-discord-youtube by Flowseal, а также других авторов.
-Программа представляет собой графическую оболочку для более удобного запуска скриптов, представляющих собой различные варианты обхода DPI. Графическая оболочка для средства обхода (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3107B5FC9C93C81E7DAD6A3F2EEA2EB5554D84AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848630   (1053214) от 21.01.2026
-
-Micron запустила строительство мегафабрики памяти в Нью-Йорке за $100 млрд — проекта ждали с 2022 года
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053214.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этой неделе Micron заложила фундамент фабрики по производству памяти в штате Нью-Йорк, хотя соответствующие намерения были объявлены впервые ещё в 2022 году.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848308   (1052849) от 19.01.2026
-
-SSD теперь реально дороже золота: твердотельные накопители обогнали драгоценный металл по цене за грамм
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один внимательный пользователь Reddit, подбирая высокоёмкий SSD, внезапно пришёл к неожиданному выводу: на фоне дефицита чипов из-за бумa ИИ NVMe-накопители формата M.2 стали дороже золота… если считать по весу. Обсуждение быстро набрало популярность, после чего энтузиасты решили проверить гипотезу на реальных цифрах — и результаты оказались более чем убедительными.Для (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848160   (1052627) от 17.01.2026
-
-МОК вне политики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пресс‑служба Международного олимпийского комитета (МОК), отвечая на вопрос «Матч ТВ» о действиях США в Венесуэле, заявила, что организация не может напрямую вмешиваться в политические вопросы или конфликты между странами.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847496   (1052597) от 16.01.2026
-
-МЦСТ получила партию из 10 тыс. процессоров «Эльбрус-2С3»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российская частная компания МЦСТ получила в 2025 году от производственного партнёра более 10 тыс. процессоров «Эльбрус-2С3», благодаря чему производство под разбраковку процессоров расширили до нескольких тысяч штук в месяц, сообщил Telegram-канал RuHard со ссылкой на информированные источники.
 (   Читать дальше...   )
 
 ## Скачать торент

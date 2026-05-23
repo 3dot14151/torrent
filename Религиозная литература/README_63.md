@@ -1,3 +1,110 @@
+###  Публикация: 1238948   (542528) от 03.08.2018
+
+В. Зоберн (сост.) | Светозарные гости. Рассказы священников (2014) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге собраны многочисленные рассказы священников о чудесных случаях, в частности — о явлениях гостей из загробного мира, об их помощи и вреде живым людям. Эти истории, имевшие место в действительности, приводят читателя к истине бытия Божия, Творца видимого и невидимого миров. Читая эти истории, невольно понимаешь, что действительно есть безплотные силы — (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF67D95CF615704B3D5682F1CBC24BB72D21E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238917   (542519) от 03.08.2018
+
+Иван Ильин | Поющее сердце. Книга тихих созерцаний (2013) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Поющее сердце» — самое необычное сочинение великого русского мыслителя И.А.Ильина. Эта философская книга по глубине и поэтичности больше похожа на богословское сочинение, в котором автор открывает читателю таинственные уголки своего сердца.
+
+«Она посвящена не богословию, а тихому философскому Богохвалению... Я пытаюсь заткать ткань новой философии, насквозь христианской (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D184E41E21F9A45E51CD0E2E3573CB29AB67D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238918   (542517) от 03.08.2018
+
+Константин Грамматчиков (сост.) | «Православный» сталинизм [Сборник статей] (2017) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Читая эту книгу, невозможно остаться равнодушным: множество фактов красноречиво свидетельствуют, что никакого «православного» сталинизма нет и быть не может.
+Среди авторов сборника — такие авторитетные в православной среде люди, как профессор Александр Дворкин, священники Димитрий Смирнов, Кирилл Каледа и Савва (Мажуко), историки Дмитрий Володихин и Петр Мультатули, (   Читать дальше...   )Жанр: Публицистика, История, РелигияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA92D0A5F8B64FE67D5503ED4C851BE22089295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239139   (542514) от 03.08.2018
+
+Протопресвитер Стефанос Анагностопулос | Беседы о литургической жизни Церкви (2016) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В основу настоящей книги легли 52 проповеди на тему толкования Божественной литургии, прочитанные в 90-х годах XX века отцом Стефаносом Анагностопулосом прихожанам храма святой Варвары в Керацини (Пирей). Опираясь на Священное Писание и труды святых отцов, а также на свой многолетний священнический опыт, о. Стефанос просто и доступно разъясняет современным христианам (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8817D9F7928B0602FEA9772C0D337993EE63EB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310696   (541973) от 29.06.2019
 
 Артос-Медиа (изд.) | Житие святого благоверного великого князя Александра Невского с приложением акафиста, молитв и других необходимых сведений (2009) [PDF, DJVU]
@@ -6,7 +113,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540628.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537144.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535307.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,114 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0613C322D041FC2A5B46505DFE94FA7DA8BD468C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051327   (532794) от 11.09.2016
-
-Л. И. Климович | Праздники и посты Ислама (1941) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ислам, как и всякая религия, играет реакционную роль.
-
-В исламе сохранена «специфически-восточная обрядность», характерное для религий древнего Востока «отделение человека от человека», которое, как указывает Ф. Энгельс, «...было одной из основных причин гибели древнего Востока». «Ислам,—пишет Ф. Энгельс, — сохранив свою специфически-восточную обрядность, тем самым (   Читать дальше...   )Жанр: История, религиоведение, культурологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49CF2A81B5CBE3B2C9389312AEDABE14C4DA7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155628   (531579) от 04.08.2017
-
-Митрополит Трифон (Туркестанов) | Акафист Слава Богу за всё (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот удивительный акафист стал духовным завещанием владыки Трифона, и написан им незадолго до собственной кончины. «Слава Богу за всё» - в этих словах явлен главный духовный смысл Русской Православной Церкви, ея служителей и всех православных христиан, которые во время самых жестоких гонений, когда-либо в истории переносимых Церковью Христовой - благодарили Бога (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814089A83CBFEA128750FA5E0D9D0CCE07946AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051489   (530583) от 12.09.2016
-
-Д. Е. Хайтун | Тотемизм, его сущность и происхождение (1958) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великие географические открытия привели европейцев в соприкосновение с новым огромным миром, населенным разнообразными племенами, социальная организация, нравы, обычаи и религиозные верования которых столь резко отличались от того, к чему привык европейский человек, что не могли не поразить путешественников и конкистадоров, купцов и кондотьеров, хлынувших в новооткрытые (   Читать дальше...   )Жанр: История, религиоведение, этнографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9680AB514E23ECE9FE46782A49248FC2805299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819142   (530394) от 09.09.2014
-
-Махатеро Анандамайтрея | Раскрывая Дхарму (2014) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достопочтенный Балангода Анандамайтрея (1896-1998) - один из самых известных буддийских учителей XX в., ученый, знаток канонических писаний, снискавший славу великого практика, реализовавшего все ступени буддийской медитации.
-Книга "Раскрывая Дхарму" знакомит читателей с различными аспектами первоначального буддизма школы Тхеравада, а также с уникальным духовным опытом мастера медитации Махатеро Анандамайтреи.
-В первую часть книги вошли материалы из лондонского архива Фонда Анандамайтреи, которые никогда (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE06608E3A47691CFCFA520A9806D256166EB56F
 ```
 
 https://mybot314.ru/tekegram_catalog/

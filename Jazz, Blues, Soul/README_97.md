@@ -1,3 +1,350 @@
+###  Публикация: 998254   (870399) от 19.03.2016
+
+Wayman Tisdale - The Wayman Tisdale Story (2011) Mack Avenue Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Tell It Like It TIS (feat G. Duke) [04:53]
+ 02.The Introduction [03:23]
+ 03.Rebound (feat Dave Koz) [04:22]
+ 04.It't Alright [03:31](   Читать дальше...   )Жанр: Smooth Jazz, Pop-JazzПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443377C07E2F08925D7357B6F781B141BBFC47D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998329   (870396) от 19.03.2016
+
+Kelly Richey - Shakedown Soul (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Fading
+02. You Wanna Rock
+03. Lies
+04. The Artist In Me(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FC78C7D784D61E93DC5963348D21CB4D7CA57D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998282   (870394) от 19.03.2016
+
+Big Boy Bloater & The Limits - Luxury Hobo (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Devils Not Angels (03:58)
+02. It Came Out Of The Swamp (05:07)
+03. I Love You (But I Can't Stand Your Friends) (04:08)
+04. The Devils Tail (04:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0CD379F3C195A70C3003729421CA0009C72063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107121   (870162) от 21.02.2017
+
+Mike Mainieri - An American Diary (1995) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere
+02. King Kong
+03. Piano Sonata (Vivace)
+04. Piano Sonata No. 1(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:67:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F60022936EE2404DF19BB73BF6F20E3F55FA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107008   (870154) от 21.02.2017
+
+Cyrus Chestnut - Natural Essence (2016) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Mamacita [05:34]
+ 02.It Could Happen To You [07:13]
+ 03.Faith Amongst The Unknown [06:16]
+ 04.I Cover The Waterfront [06:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD1ED7DCDFAC8DCAB2A26CD998A0F978AC591FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107103   (870148) от 21.02.2017
+
+Teddy Wilson Trio & Gerry Mulligan Quartet - At Newport (1957) Remaster, 2016, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01.Stompin' At The Savoy [04:37]
+ 02.Airmail Special [03:48]
+ 03.Basin Street Blues [05:08]
+ 04.I Got Rhythm [04:25](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0B2F052C56881F251F1BA036DFFB8B8B53E232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107177   (870146) от 21.02.2017
+
+Monster Mike Welch - Cryin' Hey! (2005) [FLAC|Lossless|tracks] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01|  All The Love In The World  (07:16) 
+02|  Cryin' Hey!  (04:22) 
+03|  A Thrill To Be Alive  (04:33) 
+04|  Joaquin Riley  (04:02) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849AAC00CBACEA8089BFD8B2807BABB7A71B67BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106787   (870145) от 21.02.2017
+
+Vance Kelly - 2 Album (2012, 2014) [FLAC|Lossless|image + .cue] <Electric Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Vance Kelly & His Backstreet Blues Band - Tell Me Why
+2014 - Vance Kelly - Live At Kingston MinesЖанр: Electric Chicago BluesПродолжительность: 02:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0CC5CBDFA8890D2974100D733E71FBE25EBABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106869   (870140) от 21.02.2017
+
+Paul Lay & Isabel Sorling - Alcazar Memories (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Roses (Feat. Isabelle Sorling & Simon Tailleu) (5:08)
+02. Memories (Sing Song)Жанр: Vocal JazzПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26451A7F342A90ED44646B0DDA1CCA69D6F2F315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107167   (870075) от 21.02.2017
+
+Perez Prado - The Real... Perez Prado (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Guaglione
+2. Cerezo Rosa (Cherry Pink and Apple Blossom White)
+3. In A Little Spanish Town(   Читать дальше...   )Жанр: JazzПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68F5AAFEBE33E4D6FD13B5F75B3B7EAEEF17BF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106979   (870072) от 21.02.2017
+
+Kirk Fischer - Friends (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Friends
+02. Dis 'Sup
+03. Kiss on My List
+04. Reach into Your Heart(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150F9B67D09F73AC690A46DB5E4046EA213A483B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107035   (869978) от 21.02.2017
+
+Johnny Winter - Step Back (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Увы, 2014-й оказался очень урожайным на потери: 16 июля в Цюрихе, Швейцария умер в одном из отелей знаменитый американский блюзовый и блюз-роковый гитарист и певец Джонни Уинтер (Johnny Winter). Ему было 70 лет. В Швейцарии Джонни находился в рамках большого европейского тура. Позднее он должен был вернуться в Штаты для концертного тура в конце июля.
+
+Вместе со своим (   Читать дальше...   )01. Unchain My Heart (with Blues Brothers Horns) (3:15)
+02. Can't Hold Out (Talk to Me Baby) (with Ben Harper) (4:09)
+03. Don't Want No Woman (with Eric Clapton) (3:07)
+04. Killing Floor (with Paul Nelson) (4:28)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4E9999D2111077658E066D39C16F3B12F8BB16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107176   (869957) от 21.02.2017
 
 Glenn Miller - The Real... Glenn Miller (2013) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -6,7 +353,7 @@ Glenn Miller - The Real... Glenn Miller (2013) 3CD [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869957.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +382,7 @@ Sarah Vaughan - Sarah Vaughan's Finest Hour (2000) Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +411,7 @@ Duke Ellington - 15 альбомов (1968-2013) [MP3|320 кб/с]<Jazz>
 >>Jazz
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -94,7 +441,7 @@ Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -123,7 +470,7 @@ VA - Top of the World: Modern R&B Classics (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -152,7 +499,7 @@ Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -181,7 +528,7 @@ Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -210,7 +557,7 @@ Caustic Roll Dave - Approaching Noise (2014) [FLAC|Lossless|tracks + .cue] <Indu
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -239,7 +586,7 @@ Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +615,7 @@ The Bluesbenders - Gargoyle Schmargoyle (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868511.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +644,7 @@ Tommy & Jimmy Dorsey - Swingin' In Hollywood (1940-e) 1998, Rhino[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868405.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +673,7 @@ Slim Chance & The Gamblers - Jackpot! (2015) [FLAC|Lossless|image + .cue] <Blues
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +702,7 @@ Urs Leimgruber, Don Friedman, Bobby Burri - Reflexionen (1983) Remaster, 2016, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -384,7 +731,7 @@ Marvin 'Smitty' Smith - Keeper Of The Drums (1987) [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,354 +745,6 @@ Marvin 'Smitty' Smith - Keeper Of The Drums (1987) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5446909D75AECEBF86D471242F117EA7A2B989DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107295   (868343) от 22.02.2017
-
-Andre Previn - What Headphones? (1993) Angel Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What Headphones? [06:12]
- 02.You Are My All [05:30]
- 03.Take The A Train [04:53]
- 04.Outside The Cafe [03:13](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE7961253E228D9307A7F9C669A7042552D08A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107001   (868340) от 22.02.2017
-
-Chris Barber - Great Moments With ... (1998) AGAT Company [FLAC|Lossless|tracks + .cue] <Dixieland, Revival>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Wish I Could Shimmy Like My Sister Kate [02:55]
- 02.Volga Boatman's Song [04:37]
- 03.Perdido Street Blues [04:40]
- 04.Jazz Holiday [03:21](   Читать дальше...   )Жанр: Dixieland, RevivalПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599733F75488C00EE5E3FF4EF44E5175DAF41070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107584   (868339) от 22.02.2017
-
-Peter Erskine and the Dr. Um Band - Second Opinion (2017) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868339.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hipnotherapy
- 2. Eleven Eleven
- 3. Street of Dreams
- 4. Not so Yes(   Читать дальше...   )Жанр: Fusion, Crossover JazzПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C03FE0A2BFDD2AC5992455AC61EF17ABCF47C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107202   (868334) от 22.02.2017
-
-Gugun Power Trio - Solid Ground (2011) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Solid Ground  (03:31) 
-02|  One Heavy Night  (04:05) 
-03|  Soul On Fire  (04:18) 
-04|  Vixen Eyes  (04:16) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89142CCB35F73D6FFB5D837058A888FA7B07E11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107215   (868330) от 22.02.2017
-
-Stan Getz With Arthur Fiedler At Tanglewood - A Song After Sundown (1987) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Is For The Very Young
-2. A Song After Sundown
-3. Three Ballads For Stan
-4. Where Do You Go?(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981D9CD18A56B7B5BC8E6A61AF8FD63D4DEC250E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496972   (868257) от 20.09.2021
-
-Toots Thielemans - Best Of 90 Jaar Toots Thielemans (2012) Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluesette [4:34]
-02. Commissaris Witse [2:25]
-03. Theme from Baantjer (Circle of Smiles) [3:03]
-04. Talk to Me [3:19](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1094FCBF69271BF51F4CC39F1E836E234CB072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107302   (868245) от 22.02.2017
-
-Miles Davis - Live In Tokyo (1975) 2CD, 2015, Hi Hat [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868245.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Prelude & Funk [21:48]
-02.Maiysha [15:46]
-03.Ife [18:22]Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D502604781786414F70B8E0A708AECB169DB04D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107227   (868244) от 22.02.2017
-
-Ralph Towner - My Foolish Heart (2017) [MP3|320 Kbps] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pilgrim 4:31
-2. I'll Sing to You 4:32
-3. Saunter 5:01
-4. My Foolish Heart 3:51(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CD9E3BA07D6221C48140FA90A97E7E9A08796D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107556   (868230) от 22.02.2017
-
-Gary Smith - Timeless (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chinatown My Chinatown
-02. Ain't She Sweet
-03. Dahil Sa You
-04. The Days of Idyllwild(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB8A318CCD992B426989ED3EC76EE79FEF8A30C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497094   (868141) от 20.09.2021
-
-VA - Noir Stocking Jazz (2021) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Call at Nightowls - Death in September (9:18)
-02. Fugu Quintet - Where Flamingos (5:43)
-03. Mirror Image Artifacts - Night dive (6:36)
-04. Crooked Beak - After Hours (5:16)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz Noir, Noise, ExperimentalПродолжительность: 01:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC03AF1A32750203EE94F6F4E50B5714B574452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107563   (868119) от 22.02.2017
-
-Louis Armstrong - The Real... Louis Armstrong (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Gut Bucket Blues
-2. My Heart
-3. Yes! I'm in the Barrel(   Читать дальше...   )Жанр: JazzПродолжительность: 03:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D525286B0B4B3D349647125BF91384EF4470E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497039   (867903) от 20.09.2021
-
-New Orleans Rhythm Kings And Jelly Roll Morton - New Orleans Rhythm Kings And Jelly Roll Morton (1992) [FLAC|Lossless|tracks + .cue] <Classic Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eccentric (Robinson) - 2:54
-02. Farewell Blues (Mares, Roppolo, Schoebel) - 2:40
-03. Discontented Blues (Miller, Schoebel) - 2:43
-04. Bugle Call Rag (Meyers, Pettis, Schoebel) - 2:20(   Читать дальше...   )Жанр: Classic Jazz, New Orleans JazzПродолжительность: 01:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098EAC9B57EE9AB61AEED813902D62822B40CF4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

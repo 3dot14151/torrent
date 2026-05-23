@@ -1,3 +1,107 @@
+###  Публикация: 991632   (545562) от 03.09.2016
+
+Meru Hevun / Mar Heaven: Marchen Awakens Romance / Небеса МАР [2005, TV, 7 из 102] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+14-летний недотёпа Гинта, заядлый игроман и троечник, любитель поспать на уроках, большой поклонник фентези. Ему часто снится один и тот же сон, что открывается портал и он попадает в мир фантазий. И вот однажды этот портал открывается на самом деле и он попадает в таинственный мир "Небеса MAR". В этом сказочном мире физически слабый Гинта превращается (   Читать дальше...   )Производство: SynergySPЖанр: приключения, комедия, фэнтези, сёнэнРежиссер: Окуваки МасахаруПеревод: английский: официальный VIZ , русский: Аскр (1-88), неизвестен (89-102)Язык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 102 серии по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF13C154BB4769F417026EDE93E4AE5A52AC0698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294572   (545067) от 26.06.2019
+
+Midara na Ao-chan wa Benkyou ga Dekinai / Ao-chan Can't Study! / Похотливая Ао-тян не может учиться [2019, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ао Хорие усердно учится ради поступления в престижный университет и возможности наконец-то съехать от отца (популярного автора эротических романов). У неё нет времени на парней и прочие развлечения, но после неожиданного признания в любви от одноклассника становится ясно, что влияние отца не прошло бесследно...Жанр: романтика, комедия, эроРежиссер: Иноэ КэйсукэЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 серий по 15 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6401B31A6DB4EBE52BBFAD78BB29AD4A2FA25B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049344   (544716) от 04.09.2016
+
+Mudazumo Naki Kaikaku: The Legend of Koizumi | Легенда о Коидзуми [2010, OVA, 3 эп.] DVDrip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Дзюнитиро Коидзуми - премьер-министр Японии, воплощение Бога Маджонга. Какое значение в политическом мире имеет Маджонг? Посмотрите столкновения Коидзуми с другими титанами мира, таких как Джордж Буш, Ким Чен Ир и Владимир Путин.Производство: студия TYO Animations / TYOアニメーションズЖанр: комедияРежиссер: Мидзусима ЦутомуПеревод: Матадор & tina & JellyfishЯзык субтитров: РусскийПродолжительность: 3 эп. по 8 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8379C5C7636F36EB1D447463A58D5E32901807B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016738   (544544) от 04.09.2016
+
+Aokana | Four Rhythm Across the Blue | Ao no Kanata no Four Rhythm | Четыре ритма сквозь синеву: За небо, в небосвод [2016, TV, 12 эп.] BDrip 1080p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Люди все-таки научились летать – правда, без крыльев, с помощью гравиботинок. В больших городах полеты ограничены, а вот в глубинке и на далеких островах – сколько угодно. Именно на такие острова, родину отца, приезжает Асука Курасина – и тут же влюбляется в небо и воздушный спорт под названием «летающий цирк». Ее инструктором по воле судьбы и мудрого учителя Кагами (   Читать дальше...   )Производство: студия Gonzo DigimationЖанр: приключенияРежиссер: Ойдзаки ФумитосиПеревод: Dreamers TeamЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FFBF97DFADE4EE74FD2E5C0C4DC44C60364906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 696066   (543799) от 01.09.2013
 
 Gakuen Tokusou Hikaruon / Campus Special Investigator Hikaruon / Хикаруон, школьный детектив [1987, OVA] LDRip Hi10P 480p raw
@@ -6,7 +110,7 @@ Gakuen Tokusou Hikaruon / Campus Special Investigator Hikaruon / Хикаруо�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Mushishi Zoku Shou: Suzu no Shizuku / Мастер Муси: Капли коло
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Dragon Crisis! / Драконий кризис! [2011, TV, 12] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Bakuman. 2 / Бакуман [ТВ-2] [2011, TV, 25 из 25] BDrip 1080p Hi10p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Vampire Wars / Войны вампиров [1990, OVA] DVDRip raw +eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Cleopatra DC / Клеопатра Ди-Си [1989, OVA, 3 ep.] Remastered DVDRip
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540043.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Namu Amida Butsu! Utena | Да здравствует Амитабха [2019, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ Chou Kadou Girl 1/6 | Amazing Stranger | Ускоренная девушка [20
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Kono Subarashii Sekai ni Shukufuku wo! 2 OVA / Konosuba OVA 2 / Этот зам�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +349,7 @@ Reikenzan: Eichi e no Shikaku / Гора Священного меча: Банк
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538481.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +376,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +404,7 @@ Kimi no Na wa. / Your Name / Твоё имя [2016, MV] BDrip 720p Hi10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538350.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +432,7 @@ Sin: Nanatsu no Taizai / Прегрешение: Семь смертных гр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +459,7 @@ Grimms Notes The Animation | Заметки Гримм [2019, TV, 12 эп.] BDri
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -381,7 +485,7 @@ Dog Days | Жаркие деньки | Собачья жизнь [ТВ-1] [2011,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538024.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -407,7 +511,7 @@ Genmu Senki Leda | Fantastic Adventure Of Yohko: Leda | Леда: Фантаст
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -459,7 +563,7 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. Heart | Наука влюбле
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +589,7 @@ Natsufuku no Shoujo-tachi / Girls in Summer Clothes / Девочки в летн
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +615,7 @@ Kill Me Baby | Убей меня, детка [ТВ] [2012, TV, 13 эп.] BDrip 7
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +641,7 @@ Dog Days' | Жаркие деньки | Собачья Жизнь [ТВ-2] [2012
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +667,7 @@ Dance Dance Danseur | Танцуй, танцуй, танцор [2022, TV, 11 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -574,113 +678,6 @@ Dance Dance Danseur | Танцуй, танцуй, танцор [2022, TV, 11 э�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54EB1D529564BF72255FDF7C14ECDDA19D119D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364854   (535058) от 24.07.2011
-
-Honoo Tripper / Fire Tripper / Сквозь огонь [1985, OAV] DVDRip raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония. XVI век, гражданские войны.
-В горной деревушке идет бой. Гибнут люди, горят дома. В охваченной пламенем хижине осталась маленькая Судзу. Ее пытаются спасти, но с потолка на девочку рушатся пылающие балки. Огонь отражается в детских глазах... Мгновение – и Судзу исчезает из-под лавины углей.
-Япония. XX век. Ночь в большом городе.
-На берегу реки сидит перепачканная (   Читать дальше...   )Жанр: фэнтези, приключения, драма, историяРежиссер: Такахаси Мотосукэ / Takahashi MotosukeПеревод: WizardЯзык озвучки: ЯпонскийЯзык субтитров: Русский; Английский (soft)Продолжительность: (1 эп.), 48 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687390   (534955) от 09.08.2015
-
-Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободитель [2013, TV, 24 эп.] BDrip 1080p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком будущем люди живут в околоземном пространстве, вокруг Солнца раскинулась огромная сфера Дайсона, а человечество все так же рвут на части междоусобицы. Главными силами конфликта являются германская империя Доруссия, Атлантическая Федерация Арус и экономически успешный, но не богатый военными ресурсами Джиор, наследник маленькой, но гордой островной нации. (   Читать дальше...   )Производство: Студия SunriseЖанр: приключения, фантастика, мехаРежиссер: Мацуо КоПеревод: 1) Timecraft; 2) ggЯзык субтитров: 1) Русский; 2) АнглийскийПродолжительность: 24 серии по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47165C6E03700F3E621B0928D7F702B19CC30B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051231   (534443) от 10.09.2016
-
-Junketsu no Maria | Непорочная Мария [2015, TV, 12 эп.] BDrip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главной героиней является молодая, но очень могущественная ведьма по имени Мария, которая живёт во Франции периода Столетней войны (1337–1453). Мария ненавидит насилие и готова на многое, лишь бы защитить обитателей своей деревни и предотвратить кровопролитие. Например, она вполне может наколдовать гигантского дракона или послать фамильяра-суккуба к генералам враждующих (   Читать дальше...   )Производство: Студия Production I.GЖанр: комедия, фэнтезиРежиссер: Танигути ГороПеревод: YakuSub StudioЯзык субтитров: РусскийПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E4800650CC2207A62F848AD4F189DA12BF9DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051213   (534442) от 10.09.2016
-
-Вечная Филена | Eien no Filena | Eternal Filena [1992, OVA, 6 эп.] DVD 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правитель сильной и развитой империи решил воплотить в реальность свои планы по захвату мира. Одной из уничтоженных в ходе этой войны стран, была красивая морская страна Фиросера. В последний день ее существования, король просит своих верных слуг сохранить самое ценное что у них осталось - две Филены. Первая Филена является императорским мечем, его принимает Ут. (   Читать дальше...   )Производство: студия Studio PierrotЖанр: приключения, фэнтезиРежиссер: Нитта ЁсикатаПеревод: Jiyuu Sub TeamЯзык субтитров: РусскийПродолжительность: 6 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5913266FAE720A0FCEF1E3FAB583E182603AC82E
 ```
 
 https://mybot314.ru/tekegram_catalog/

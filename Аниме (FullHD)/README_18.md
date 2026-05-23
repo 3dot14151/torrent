@@ -1,3 +1,56 @@
+###  Публикация: 1388618   (786664) от 06.06.2020
+
+Tenki no Ko | Weathering with You | Дитя погоды [2019, Movie] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Они встретились посреди Токио под нескончаемым дождем. Он мечтает начать новую жизнь в большом городе. А она никогда не унывает и обладает удивительным даром менять погоду силой мысли. Там, где она — всегда солнце. Вместе они изменят этот мир навсегда.
+© kinopoiskПроизводство: студия CoMix Wave Inc. / コミックス・ウェーブ・フィルムЖанр: романтика, драмаРежиссер: Синкай МакотоПеревод: ReanimediaЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Японские; #3: Китайские; #4: РусскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4BBC7D43A8C4AF2D4634CCB15ADB5730F907E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318374   (786656) от 06.06.2020
+
+Giant Killing / Вынос гигантов [2010, TV, 26] HDTV 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Футбольный клуб Восточного Токио играет в японской первой лиге, где конкурируют сильнейшие профессиональные команды. Однако лучшие дни «Ист Токио Юнайтед» давно позади, команда превратилась в стабильного аутсайдера, постепенно теряя ценных игроков, спонсоров и преданных поклонников. Тренерская чехарда и безденежье тоже не улучшают ситуацию, радикальное крыло фанатов (   Читать дальше...   )Жанр: спорт, драмаРежиссер: Ко ЮПродолжительность: 26 по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4B3ACF99807A1053A6756900AEF28E508653C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371858   (786542) от 07.06.2020
 
 Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | Не люблю боль, поэтому собираюсь вложить всё в защиту [ТВ-1] [2020, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +59,7 @@ Bofuri | Itai no wa Iya nano de Bougyoryoku ni Kyokufuri Shitai to Omoimasu. | �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Garo: Divine Flame | Гаро: Священное пламя [2016, MV] BDRip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +139,7 @@ Accel World: Infinite Burst | Ускоренный мир: Бесконечно�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786080.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +165,7 @@ Persona 3 the Movie | Персона 3. Фильм [2013, MV, 4 фильма] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +191,7 @@ One Room / Из одной комнаты [2017, TV, 12 из 12] WEBRip 1080p HE
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +219,7 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -192,7 +245,7 @@ Inukami! | Инуками! [2006, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -219,7 +272,7 @@ Inukami! The Movie: Tokumei Reiteki Sousakan Karina Shirou! | Инуками! [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -245,7 +298,7 @@ Inuyashiki | Inuyashiki Last Hero | Инуясики [2017, TV, 11 из 11] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -271,7 +324,7 @@ Senryuu Shoujo | Senryu Girl | Девушка-сэнрю [2019, TV, 12 эп.] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +350,7 @@ Koi wa Ameagari no You ni | After the Rain | Любовь похожа на пр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +376,7 @@ Dies Irae | Судный день [2017, TV + Web, 18 эп.] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +402,7 @@ Katsugeki: Touken Ranbu | Дикая пляска мечей: Кацугеки [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783185.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +428,7 @@ Mirai Keisatsu Urashiman | Future Police Urashiman | Урасиман: Поли�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +454,7 @@ Touken Ranbu: Hanamaru | Дикая пляска мечей: Ханамару [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +480,7 @@ Claymore / Клеймор [2007, TV,  26 серий] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -455,7 +508,7 @@ Higashi no Eden Gekijoban I: The King of Eden / Eden of The East the Movie I: Th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780658.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +534,7 @@ Yoru wa Mijikashi Aruke yo Otome | The Night Is Short, Walk on Girl | Ночь �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +560,7 @@ Hirune-hime: Shiranai Watashi no Monogatari | Napping Princess | Спящая п
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780045.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +586,7 @@ Cardcaptor Sakura: Clear Card Hen - Prologue Sakura to Futatsu no Kuma | Сак�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -560,7 +613,7 @@ Tamayura: Sotsugyou Shashin / Тамаюра (фильм) [2015, Movie, 4 из 4
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779192.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -586,7 +639,7 @@ No Game No Life Zero | Нет игры - нет жизни (фильм) [2017, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -613,7 +666,7 @@ Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -624,60 +677,6 @@ Yuuri!!! on Ice | Юри на льду [2016, TV, 12] BDrip 1080p 10bit raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0261901EA7BD85EE77D35AD6219E2A58D3C6973C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210876   (778103) от 05.03.2018
-
-Hibike! Euphonium 2 | Sound! Euphonium 2 | Играй, эуфониум! [ТВ-2] [2016, TV, 13 + 7SP] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для Кумико Омаэ первая весна в старшей школе обещала много интересных изменений в её жизни. В первую очередь, в жизни творческой. Её умелая игра на эуфониуме как нельзя кстати пришлась ансамблю старшей школы Китаудзи. Сплочённый коллектив под руководством талантливого и вдохновляющего учителя Таки Нобору смог победить в конкурсе. А значит, впереди их ждут испытания (   Читать дальше...   )Жанр: повседневность, музыкальныйРежиссер: Исихара Тацуя / Ishihara Tatsuya / 石原立也Язык озвучки: ЯпонскийПродолжительность: 13 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890BDC47B7DDB734FF7193F54F49DE8D5D1553AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210877   (778094) от 05.03.2018
-
-Little Witch Academia (2017) | Академия ведьмочек [2017, TV, 25] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778094.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сделать хотел грозу, а получил козу! Розовую козу с желтою полосой..."© Примерно так начинается история главной героини Кагари Ацуко в академии ведьмочек Луна Нова.
-
-С детства Акко мечтала стать как её кумир - звезда магического шоу Шайни Чариот, потому поступает учиться в академию ведьм Луна Нова. Но всё оказалось не так просто - кумира в академии не (   Читать дальше...   )Жанр: приключения, фэнтези, комедияРежиссер: Ёсинари Ё / Yoshinari You / 吉成曜Перевод: Schum / Tassadar / JarlyЯзык озвучки: ЯпонскийПродолжительность: 25 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2A5969FBD98450AD07652D7874F8165E9E699F
 ```
 
 https://mybot314.ru/tekegram_catalog/

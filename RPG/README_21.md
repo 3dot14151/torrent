@@ -1,3 +1,81 @@
+###  Публикация: 1291464   (670014) от 24.03.2019
+
+The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1.32.0/dlc) Repack Other s [Game of the Year Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+"Ведьмак: Дикая Охота" — это ролевая игра нового поколения с глубоким сюжетом, действие которой происходит в открытом мире. Огромная и потрясающе красивая игровая вселенная заставит игрока принимать непростые решения, каждое из которых будет иметь свои последствия. В "Ведьмаке" вы играете за Геральта из Ривии — профессионального убийцу чудовищ, (   Читать дальше...   )Тип издания: RepackРазработчик: CD PROJEKT REDЖанр: Adventure, RPG, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86AA19D0EA72B4D39E5A52BE1EE237A2C42DC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224530   (665820) от 10.05.2018
+
+City of Brass (2018) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+«Медный город» - это беспощадная rogue-lite игра в восточной стилистике «1001 ночи». Ваш герой вооружен саблей и кнутом. С помощью кнута можно цепляться и задействовать механизмы, обезвреживать ловушки и оглушать врагов, разбивать предметы и просто атаковать врагов. Бейте и рубите, побеждайте толпы мертвецов силой и хитростью.Тип издания: RepackРазработчик: Uppercut Games PtyЖанр: 3rd Person, Adventure, 1st Person, ActionЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31B4AD4AFA35E5C3E3E80BE68954E54478352F1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072906   (663586) от 12.05.2018
+
+Agarest: Generations of War (2014) [En] (1.0) License GOG [Collector's Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Это классическая JRPG, в котором игроку предстоит объединить силы с мистической сущностью, обретя силы Богов, и пройти по пяти континентам, побеждая своих врагов. Сюжет основан на Record of Agarest War, системе «размножения душ». На практике это будет выглядеть так: мы должны будем добыть сердце одной из героинь и создать из него своего потомка.Тип издания: LicenseРазработчик: Compile HeartЖанр: RPG (Japanese-style), 3DЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F5BC031809E6DE5CF656162F7238184904E663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157133   (663581) от 12.05.2018
 
 Fictorum (2017) [En] (1.1.01) License RELOADED
@@ -6,7 +84,7 @@ Fictorum (2017) [En] (1.1.01) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Haven (2020) [Ru/Multi] (1.1.302/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Bastard (2018) [Ru/En/De] (1.31) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +162,7 @@ AereA (2017) [Ru/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +188,7 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки Миров [R
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack Other s [Game of the Year Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Deus Ex: Human Revolution: The Missing Link [Ru] (RePack/1.4.651) 2011 | Audiosl
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +267,7 @@ Victor Vran (2015) [Ru/Multi] (2.07/dlc) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +293,7 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +319,7 @@ Gnomes Vs. Fairies (2016) [En] (5.0B) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +345,7 @@ Outward (2019) [Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +371,7 @@ Fallout: Nevada (2015) [Ru] (1.2) Repack ak97nsk [Crazy Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +397,7 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +425,7 @@ The Legend of Heroes: Trails in the Sky (2014) [En] (2019.03.24) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +451,7 @@ DARK SOULS: REMASTERED (2018) [Ru/Multi] (1.01/Reg 1.02) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +477,7 @@ Megadimension Neptunia VII (2016) [En] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +503,7 @@ Goliath (2016) [Ru/En] (1.0.6/upd 3/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +531,7 @@ Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +557,7 @@ Operencia: The Stolen Sun (2019) [Ru/Multi] (1.0) License HOODLUM
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +583,7 @@ Final Fantasy VII Remake Intergrade (2021) [Ru/Multi] (1.001.202/dlc) Repack Dec
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +609,7 @@ Grim Dawn (2016) [Ru/En] (1.1.1.0/dlc) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +635,7 @@ Victor Vran (2015) [Ru/En] (2.07/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +661,7 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -594,84 +672,6 @@ Hand of Fate (2015) [Ru/Multi] (1.3.19/dlc) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F442EEC83DDF978824CB9577FB4912E6830E67CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144160   (638699) от 02.04.2019
-
-Darkest Dungeon (2016) [Ru/Multi] (24839/dlc) License CODEX [Ancestral Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkest Dungeon - это готическая ролевая игра с пошаговой механикой, бросающая игроку вызов и посвященная психологическим стрессам, возникающим в процессе приключений. Наймите, на тренируйте, а затем возглавьте команду героев и приведите ее к победе через запутанные леса, забытые заповедники, разрушенные склепы и прочие локации.Тип издания: LicenseРазработчик: Red Hook StudiosЖанр: RPG (Rogue, Action)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E2B47E500C9F9FEA4AB0B27FFAA8DF35C368A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143122   (638598) от 16.06.2017
-
-Two Worlds II / Два Мира 2 (2010) [Multi] (2.0/dlc) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая глава истории удивительной вселенной Анталор. Прошло пять лет после драматических событий, которые привели Анталор на край пропасти. Главный герой заточен в темницу мрачного замка, а его сестра Кира находится в лапах темного властелина Гандохара, одурманенная мощным заклинанием. Зло пытается пробудить древнюю силу и завладеть Анталором, и герой не может противостоять (   Читать дальше...   )Тип издания: LicenseРазработчик: Reality PumpЖанр: RPG (Rogue, Action) 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A726EDFFC704100AFAC619B19F5394585A30588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008058   (637536) от 11.07.2016
-
-Survivalist (2015) [Ru/Multi] (57) SteamRIP ALiAS
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед нами открытый мир умопомрачительных размеров Survivalist, в котором царит свобода. Но не увлекайтесь – каждый ваш шаг может повлечь за собой самые неожиданные последствия. Цивилизация уничтожена, и с тех пор прошло уже немало лет. И вот, наш герой Джо Уилер, биржевой менеджер в прошлом, решил появиться на белый свет из своего убежища. Ему предстоит отправиться (   Читать дальше...   )Тип издания: SteamRIPРазработчик: Bob the Game Development BotЖанр: RPG (Rogue,Action), 3D, IsometricЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D04E5DBF698C4493871352417D405A02CFD4848
 ```
 
 https://mybot314.ru/tekegram_catalog/

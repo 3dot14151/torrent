@@ -1,3 +1,81 @@
+###  Публикация: 1473017   (1013966) от 27.05.2021
+
+Быстрый блокнот / Fast Notepad 2.0.9 Mod by yuri_k33 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Быстрый блокнот обладает минималистичным дизайном, поэтому пользователя не будут отвлекать разные ненужные детали. Пользоваться такой записной книжкой очень удобно. Она предназначена для быстрого введения небольших сообщений, которые в дальнейшем понадобятся. Внешне и по функциональным возможностям, блокнот напоминает привычный многим Windows блокнот. Отличается (   Читать дальше...   )Тип издания: ModРелиз состоялся: 09.02.2016Разработчик: IGORПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3498D03960984EFCF98186314FF5A7D46E95E9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473180   (1013808) от 28.05.2021
+
+Быстрый блокнот / Fast Notepad 5.79 Mod by AlexxVp [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Простой и легкий блокнот с папками, паролем, ночным режимом, поиском и резервным копированием. Из названия следует что приложение работает очень быстро, имеет малый вес и предназначено для мгновенных записей, сохраняя при этом самые важные функции, которые могу пригодится в любой момент времени.Тип издания: ModРелиз состоялся: 21.05.2021Разработчик: Simple Apps.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E051594FBA2E6798EE043A222E83ADB7D894F100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473660   (1013456) от 30.05.2021
+
+100 Подтягиваний на турнике v3.2.5 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Данное приложение поможет вам быстро увеличить количество подтягиваний, значительно увеличить силу и выносливость. Накачайте мышцы, получите тело, о котором давно мечтали! Уникальный алгоритм на основе ваших результатов будет создавать индивидуальный план тренировок. Мы подготовили 20 эффективных планов тренировок, которые помогут быстро увеличить количество подтягиваний, (   Читать дальше...   )Тип издания: Пиратка (открыт Premium)Релиз состоялся: 13.10.2020Разработчик: Power UpsПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D20C474BD5B5E0D73CF92216605DA2E014AADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474447   (1012985) от 02.06.2021
 
 Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
@@ -6,7 +84,7 @@ Avast: Mobile Security & Antivirus 6.38.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ BirdNerd v1.0.9b [Ru/En] - Определение птицы по голосу (
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +191,7 @@ Strelok / Стрелок v5.0.0 Plus и v6.0.4 Pro [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012304.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +217,7 @@ Launcher iOS 14 3.9.3 Mod by vovamen24 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +269,7 @@ Total Launcher 2.8.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +295,7 @@ neXt Launcher 3D 3.7.3.2 Mod by Balatan, chathu_ac, Сіtrus [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +321,7 @@ Ratio - The Productivity Launcher 4.1.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +347,7 @@ Wide Launcher - 3X Wider Home Screen 1.6.41 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +373,7 @@ Leanback on Fire 1.48 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +399,7 @@ My Android Tools 1.6.8 Free / 1.6.0 Pro [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +426,7 @@ Mi Видео - бесплатный просмотр и загрузка вид
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +478,7 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011461.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +504,7 @@ SoloLearn: Учимся программировать 4.7.2 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +530,7 @@ Parrot Voice Recorder v3.7.8  [En] (обновляемая)
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011055.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +556,7 @@ Total Recall - Call Recorder v2.0.86 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +636,7 @@ Mubert v4.2.0 [Ru/Multi] - сервис фоновой музыки
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,7 +662,7 @@ AUG Launcher v3.7.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010640.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -595,90 +673,6 @@ AUG Launcher - удобный, многофункциональным и быс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:619011FD593060253BC7DE825289E5B25A02ACAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470191   (1010604) от 17.06.2021
-
-Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Персонализируйте пользовательский интерфейс вашего устройства, используя панель управления громкостью. Быстрая настройка и удобный контроль. Создайте персональный слайдер громкости или используйте классное оформление, чтобы преобразить панель управления громкостью, разнообразные скины для оформления доступны в самом приложении!Тип издания: Mod (Premium)Релиз состоялся: 25.05.2021Разработчик: ZipoAppsПоддерживаемая ОС: Android 5.1+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031B5EB54CCB1C9A529CC189ACC53B0319EA29C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478655   (1010136) от 20.06.2021
-
-Dictionary - Merriam-Webster v5.1.1 [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский толковый словарь Merriam-Webster's Dictionary с голосовым поиском.
-Первый словарь был опубликован В 1828 году!
-Получите самый полезный и уважаемый словарь Америки, оптимизированный для вашего Android устройства. Это лучшее Android-приложение для справки английского языка, образования и лексики.
-В дополнение ко всем определениям из Merriam-Webster's Collegiate (   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 28 мая 2021 г.Разработчик: Merriam-Webster Inc.Поддерживаемая ОС: Android 4.4+Язык интерфейса: Англиский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3F2E2E645E06BBF486B16E4C94112CD7C5AB3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478545   (1010098) от 20.06.2021
-
-POIbase speed camera warner V7.2.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010098.jpg" />
-</div>
-
-
-###  Подробнее
-
-С POIbase штрафы за превышение скорости остались в прошлом!
-* Оптимальное отображение (значки скорости / типа, дорожный конус)
-* Потенциальные и ежедневные активные камеры контроля скорости
-* Простота использования, никаких дополнительных настроек не требуется!(   Читать дальше...   )Тип издания: Пиратка (Premium)Релиз состоялся: 18 июня 2021 г.Разработчик: pocketnavigation.de GmbHПоддерживаемая ОС: Android 4.4+Перевод: отЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682102D651AF206493B53F1F9432088CD372DF5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 851996   (222973) от 21.12.2014
+
+Срочно! Ищу мужа (2011) HDTV [1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Милая девушка Лена живет в маленьком городке, работает врачом в поликлинике. Мать Лены мечтает выдать дочь замуж и даже нашла для нее подходящую партию. Сергей Романович не молод, зато у него приличный доход и серьезные намерения. Доводы Лены против этого брака мать и слышать не хочет. И тогда Лена показывает паспорт, а там — штамп и имя мужа — Антон Андреевич Кириллов. (   Читать дальше...   )Жанр: МелодрамаРежиссер: Алина ЧеботареваАктеры: Антон Макарский, Марина Александрова, Олег Савкин, Олег Масленников, Римма Зюбина, Вита Смачелюк, Кирилл Бин, Алла МартынюкФормат: MPEG-TSПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85990ECB412AEC7E3D1A24A717788901D1395547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650782   (222865) от 05.08.2023
+
+Джонни (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Конец 1980-х. Молодой рок-музыкант сталкивается с разнообразными трудностями. Пройдя их, он остаётся собой, однако «остаться собой» означает отказаться от успеха и материальных благ.Производство: Россия / Лига ФильмЖанр: комедия, музыкаРежиссер: Алексей РыбинАктеры: Николай Фоменко, Андрей Дидик, Светлана Бакулина, Егор Бакулин, Мария Лопатина, Максим Фролов, Алексей Фролов, Иван Жуков, Богдан Псел, Анастасия БашкироваЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFFF0B1C2B761C243B60024CF69E0CCFC57B4E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852278   (222783) от 21.12.2014
+
+В плену обмана (2014) SATRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Счастливые влюбленные Ольга и Игорь заканчивают школу и мечтают о скорой свадьбе. Но судьба распоряжается иначе: поступить в институт удаётся лишь Ольге, а Игорь уходит служить в армию. В разлуке любовь героев лишь крепнет, и, кажется, эта временная трудность не помешает их счастью... Но долгожданная встреча происходит совсем не так, как грезилось влюбленным. В армии (   Читать дальше...   )Производство: Россия, Кинокомпания "Русское"Жанр: МелодрамаРежиссер: Сергей КрасновПеревод: Не требуетсяПродолжительность: 01:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E055F9A1106C6E20117CAAF5356735431EA9E5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650487   (222752) от 05.08.2023
+
+Мальдивы подождут (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Ева и Денис — молодая и успешная пара, которая неожиданно для себя оказывается в кризисной ситуации. И им бы разбираться со своими семейными обидами и недопониманиями, но они попадают в паутину невероятных приключений. В этой кутерьме событий Ева принимает решение бороться за свою любовь и берет Дениса в заложники. Вспомнит ли Денис о своих чувствах или останется (   Читать дальше...   )Производство: Россия / International Media CompanyЖанр: комедияРежиссер: Анарио МамедовАктеры: Полина Максимова, Роман Маякин, Яна Кошкина, Роман Курцын, Максим Лагашкин, Карина Зверева, Владимир Епифанцев, Николай Наумов, Сергей Степин, Михаил ТарабукинЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71C29C798E960F143C9F452CB0E99FB50EFC961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587466   (222651) от 10.12.2012
 
 Отдельное поручение (2012) SATRip
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222478.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221747.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220621.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27A3D236C0626728CFB00EA20534680AA906E7CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269100   (220415) от 14.12.2018
-
-Мотылёк (2018) WEB-DLRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лера ночью на шоссе встречает таинственную девочку. Девочка говорит, что ее родители уехали в Италию, а она идет к своей бабушке. Две судьбы странным образом переплетаются, а события начинают развиваться стремительно и непредсказуемо…Производство: Россия, Кинокомпания Кит, Forma Pro FilmsЖанр: Драма, БоевикРежиссер: Константин ХудяковАктеры: Алёна Бабенко, Марта Тимофеева, Анатолий Белый, Иван Охлобыстин, Артур Ваха, Эммануил ВиторганПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1A1757882298A912EE3B30D6DEA15B18E43ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852382   (220339) от 22.12.2014
-
-О чём говорят мужчины (2010) BDRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220339.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем говорят мужчины? Конечно, о женщинах. Нет, еще о работе, о деньгах, о машинах, о футболе,… но в основном, все-таки, о женщинах. А уж если у них впереди два дня, которые они, вырвавшись из офисов и семей, уехав от всех забот и обязательств, проведут в дороге — два дня, насыщенные событиями и приключениями — то можете быть уверены, что за это время они успеют (   Читать дальше...   )Жанр: КомедияРежиссер: Дмитрий ДьяченкоАктеры: Леонид Барац, Александр Демидов, Камиль Ларин, Ростислав Хаит, Нонна Гришаева, Нина Русланова, Жанна Фриске, Сергей Никоненко, Федор Добронравов, Андрей МакаревичПродолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D8F6ABDEF4F91DDC6BE60BC7961B0BFB943C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269252   (220304) от 14.12.2018
-
-Мотылёк (2018) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лера ночью на шоссе встречает таинственную девочку. Девочка говорит, что ее родители уехали в Италию, а она идет к своей бабушке. Две судьбы странным образом переплетаются, а события начинают развиваться стремительно и непредсказуемо…Производство: Россия, Кинокомпания Кит, Forma Pro FilmsЖанр: Драма, БоевикРежиссер: Константин ХудяковАктеры: Алёна Бабенко, Марта Тимофеева, Анатолий Белый, Иван Охлобыстин, Артур Ваха, Эммануил ВиторганПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25D0CF72F0606B4F0F816783644B3FD51305DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585653   (220127) от 23.10.2022
-
-Камень, ножницы, бумага (2019) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две актрисы — две судьбы. Мать и дочь одержимы актёрской профессией. Мать уже готова расстаться со сценой и мечтой о кино, но не желает повторения своей судьбы у Дочери. Она делает молодой и талантливой актрисе главный подарок в её жизни — знакомит её с Наставником, после уроков которого не будет места отчаянью, зато будет место подлинному искусству.Производство: Россия / Продюсерская компания Николая РасторгуеваЖанр: драмаРежиссер: Татьяна ЛютаеваАктеры: Агния Дитковските, Татьяна Лютаева, Владимир Ильин, Доминик РаманаускасСубтитры: отсутствуютПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDCA428450895CF06A10E41DAFF88BB08555C37
 ```
 
 https://mybot314.ru/tekegram_catalog/

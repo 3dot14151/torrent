@@ -1,3 +1,107 @@
+###  Публикация: 1835921   (251797) от 08.11.2025
+
+Homefront (2011) [Ru/Multi] (1.5.500001.0/dlc) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На дворе 2027 год. Мир восстанавливается после 15-летнего упадка всей экономики и мирового конфликта, возникшего из-за резкого сокращения запасов природных ресурсов. После распада гордой Америки осталась лишь её шаткая инфраструктура и неорганизованная армия. Соединенные Штаты, потерявшие всех своих бывших союзников, теперь больше похожи на одну большую пустошь с (   Читать дальше...   )Тип издания: RepackРазработчик: Kaos Studios, Digital ExtremesЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2ED90D7E2A8CDD4D26F278A0365BC3E9D289AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637318   (251796) от 03.06.2023
+
+Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.17.38829.471) Scene FAIRLIGHT
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Пора заряжать свой верный болтер и бросаться в бой! Вас ждёт ураганная стрельба в стилистике классических шутеров 90-х годов во вселенной Warhammer 40 000. Попробуйте себя в роли закалённого в боях космодесантника: выполняйте рискованные задания по всей галактике и сражайтесь с демонами и космодесантниками Хаоса. Соскучились по классическим шутерам? Для вас - обширные (   Читать дальше...   )Тип издания: SceneРазработчик: Auroch DigitalЖанр: Action, IndyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFA5F3F55C9AA457BA60879EE092DBE9B1CA5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835925   (251795) от 08.11.2025
+
+Metal: Hellsinger (2022) [Ru/Multi] (rc2/dlc) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой мести получеловек-полудемон. В роли Безымянной вам предстоит сражаться, проливая кровь в самых жутких уголках ада. Уничтожайте орды демонов и их предводителей, чтобы приготовиться к решающей схватке с самой Алой Судьёй. Metal: Hellsinger - это шутер от первого лица с элементами ритм-игры, в котором ваш успех зависит от умения сражаться в унисон с (   Читать дальше...   )Тип издания: LicenseРазработчик: The OutsidersЖанр: Экшены, Шутeр от первого лица, Ритм-играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9141B31944885233CE72E278923E39C743B06681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637547   (251771) от 04.06.2023
+
+Slayers X: Terminal Aftermath: Vengance of the Slayer (2023) [Ru/Multi] (1.0.0) Scene Razor1911
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ну че... слабо стать X-Киллером?!.. 7 видов оружия, кровь-кишки, отбитая музыка Seepage & Psyko Syndikate, а еще тут можно взрывать все. круто. я ее начал делать в 1998 еще в школе вместе с друганом, а щас мне 37, я терь опытный. Это описание от разработчика со страницы в Steam. А вообще, это просто упоротый ретро-шутер - ни убавить, ни прибавить.Тип издания: SceneРазработчик: Big Z Studios Inc.Жанр: ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A20CDA8A6A75230073CCEA979AD57F7866E646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835341   (250930) от 06.11.2025
 
 Metal Garden (2025) [Multi] (2.4.0) Repack Necros
@@ -6,7 +110,7 @@ Metal Garden (2025) [Multi] (2.4.0) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_250930.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Gunfire Reborn (2021) [Ru/Multi] (20506329/dlc) Repack FitGirl [Bundles Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Painkiller / Крещёный кровью (2004) [Ru] (1.64) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250348.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack FitGirl [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Decepticon [Ultimate 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack seleZen [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249047.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Other s [Ultimate Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -240,7 +344,7 @@ UberSoldier 2 Crimes of War / Восточный фронт Крах Аннен�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Chasm: The Rift (2022) [Ru/Multi] (1.0.22) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Repack DjDI [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Scene EMPRESS [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -396,7 +500,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Ghostrunner (2020) [Ru/Multi] (0.30714.410/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -474,7 +578,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -500,7 +604,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.1.1/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -553,7 +657,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0 CD/dlc) Repack R.G. Catalys
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -564,110 +668,6 @@ Dying Light - экшн-игра на выживание от первого ли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD872178A1138D182ABB906D99A3F0D68688AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957071   (226651) от 13.12.2015
-
-Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226651.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Человечество нашло дорогу в глубины космоса. Первые смельчаки отправились на поиски неизведанного. Оно нашло их раньше. Романтизм первопроходцев разбился о холодную плоть космоса. И теперь важно только одно: на что ты готов ради спасения?»Тип издания: SteamRipРазработчик: CivilSavagesЖанр: Action, Horror, 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A40149FFBFD020C3209101C9B8F2A439D6CD28D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513027   (226502) от 27.11.2021
-
-Delta Force: Black Hawk Down / Delta Force: Операция "Черный Ястреб" (2003) [Ru] (1.2.2) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_226502.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 октября 1993 года является черным днем в истории спецназа США. Именно тогда в рамках кампании «Возрождение надежды» в Сомали американцами была предпринята попытка захвата полевого командира Мохамеда Фарраха Айдида и его ближайшего окружения. Это должно было способствовать скорейшему налаживанию мирной жизни в измученной гражданской войной стране.Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE6421DF4DB454C2504F3775CE95D864699FC78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513201   (224502) от 28.11.2021
-
-Delta Force: Land Warrior / Отряд Дельта: Операция "Спецназ" (2000) [Ru/En] (1.00.42) License
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ты служил в спецназе - гордись. Если не служил - радуйся. C помощью этой игры у тебя появилась возможность ощутить все прелести жизни бойца спецподразделения без всякого вреда для здоровья и даже наоборот! Ведь смех продлевает жизнь, а его в игре предостаточно. Вооружись как следует, учитывая, что в руках настоящего спецназовца даже табуретка является оружием (   Читать дальше...   )Тип издания: LicenseРазработчик: NovaLogicЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5240F170BFE33C592C95182893E7D10082D3E158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342184   (224409) от 01.12.2019
-
-Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Механики
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выполняйте контракты с точными задачами, чтобы получить фиксированное денежное вознаграждение и возможность пройти дополнительно оплачиваемые испытания. Вы можете устранять свои цели сотнями различных способов: Contracts позволяет насладиться потрясающе выверенной, стратегической игрой от лица снайпера.Тип издания: RepackРазработчик: CI GamesЖанр: Action (Shooter), Stealth, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A34230AA3290B1A86FF834129E235EC39EB2F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

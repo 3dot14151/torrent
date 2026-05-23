@@ -1,4 +1,109 @@
 https://t.me/izofen
+###  Публикация: 1871614   (1070054) от 
+
+Рабыня Карфагена / Lo schiavo di Cartagine / The Slave of Carthage (1910) WEBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Драматическая история из древнего мира. Римляне осаждают Карфаген, жрецы Карфагена требуют Гасдрубала принести в жертву девственницу, чтобы умилостивить бога войны.
+Качество картинки не самое лучшее, но зато вот это вот все прямо классика-классика.Производство: Италия / Società Anonima AmbrosioЖанр: короткометражный, драма, немое киноРежиссер: Артуро Амбросио, Луиджи Маджи, Роберто ОменьяАктеры: Альберто Капоцци, Мэри Клео Тарларини, Луиджи Маджи, Оресте Гранди, Ромильд Нигра, Эрколе Васер, Эрнесто Васер, Марио Воллер-БуцциПеревод: немой с интертитрами (chayka2)Субтитры: немецкие (интертитры), русскиеПродолжительность: 00:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CCA83336012957CCF1A5C6C175CCF6F775CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871725   (1069954) от 
+
+Кто боится Вирджинии Вульф? / Who's afraid of Virginia Woolf? (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённой пьесы Эдварда Олби... Семейная пара Джордж и Марта ненавидят друг друга и не скрывают этого. Но супруги так запутались в своих отношениях, что не могут ничего с этим поделать. Марта пьёт и волочится за другими мужчинами. Джордж просто стал несчастным человеком. Их связь настолько болезненна, что они выдумали себе несуществующего ребенка и (   Читать дальше...   )Производство: США / Chenault Productions Inc, Warner Bros. PicturesЖанр: драма, экранизацияРежиссер: Майк НиколсАктеры: Элизабет Тейлор, Ричард Бёртон, Джордж Сигал, Сэнди Дэннис, Френк Фленеджен, Агнес Флэнеган, Фрэнк ФлэнеганПеревод: профессиональный многоголосый (PTP; HTB; SomeWax)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC3714DC3896274FCF4C99A4F6B657A9B80062E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871279   (1069604) от 
+
+Золото для Цезарей / Oro per i Cesari (1963) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Римский губернатор отдает приказ о срочном снаряжении экспедиции в глубь Галии, где по слухам находятся невероятные залежи золота, необходимые для Рима и его Цезарей — правителей, чтобы продолжать вести их расточительную жизнь. Смельчаки, которые вошли в отряд золотодобытчиков, подвергаются нападению диких кельтских племен и прочих варваров, но пути назад нет и им (   Читать дальше...   )Производство: Италия, Франция / Adelphia Compagnia Cinematografica, CICC, Films Borderie, Metro-Goldwyn-Mayer (MGM), SFAЖанр: боевик, драма, приключенияРежиссер: Андре Де Тот, Сабатино Чиуффини, Риккардо ФредаАктеры: Джеффри Хантер, Милен Демонжо, Рон Рэнделл, Массимо Джиротти, Джулио Бозетти, Этторе Манни, Жорж Ликан, Фурио Меникони, Омеро Капанна, Тонино ЧервиПеревод: Авторский (Антон Алексеев)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4904EE06555951630F200ADAF3044117BA633777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870555   (1069042) от 
+
+Жaндарм в Нью-Йорке / Le Gendarme a New York (1965) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Крюшо, Мерло, Фугас, Трикар и Берлико во главе с сержантом Жербером отправляются в Нью-Йорк, где им поручено представлять Францию на международном конгрессе полицейских. Как не уронить чести мундира, если вас ждет страна соблазнов, да и по-английски вы не знаете ни слова? К тому же Крюшо с ужасом обнаруживает, что его дочь Николь, вопреки воле отца, тоже приехала (   Читать дальше...   )Производство: Франция, Италия / Société Nouvelle de Cinématographie (SNC), Compagnia Cinematografica ChampionЖанр: комедия, криминалРежиссер: Жан ЖироАктеры: Луи де Фюнес, Мишель Галабрю, Кристиан Марен, Ги Гроссо, Мишель Модо, Алан Скотт, Жан Лефевр, Женевьев Град, Марино Мазе, Марио Пизу и др.Перевод: Дублированный (Мосфильм), многоголосый (Рен-ТВ)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 01:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E612A15C988120A3BC635E2FB53F31ECE537D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869699   (1068529) от 
 
 Полуночное кружево / Midnight Lace (1960) BDRip [MVO]
@@ -7,7 +112,7 @@ https://t.me/izofen
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066932.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063512.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063332.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -531,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061561.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061384.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -569,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1649B384323E919326E8C8C49359C4971A288D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859947   (1061356) от 27.03.2026
-
-Пропавший отряд / Lost Command (1966) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция пятидесятых годов прошла через целую цепь поражений в так называемых локальных войнах, а ее солдаты и офицеры приобрели не только бесценный военный опыт, но и неудовлетворенность и депрессии, свойственные такого рода конфликтам.
-С позором выдворенные из Юго-Восточной Азии, французские солдаты сразу оказываются в охваченном партизанской войной пустынном Алжире (   Читать дальше...   )Производство: США / Red LionЖанр: боевик, драма, военныйРежиссер: Марк РобсонАктеры: Энтони Куинн, Ален Делон, Джордж Сигал, Мишель Морган, Морис Роне, Клаудия Кардинале, Грегуар Аслан, Жан Сервэ, Морис Сарфати, Жан-Клод БеркПеревод: Многоголосый профессиональный (Петербург 5-й канал, DVD Магия), двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023D1DA549E21A944FAB27CD72A7328202EBE980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859692   (1061241) от 17.03.2026
-
-Ночь живых мертвецов / Night of the Living Dead (1968) BDRip [H.264] [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барбара и её брат Джонни приезжают на кладбище, расположенное в уединённом загородном месте. Неожиданно на них нападают существа, напоминающие восставших из могил мертвецов. Барбара укрывается в расположенном неподалёку доме, где также находят убежище темнокожий парень Бен, супруги Гарри и Хелен Куперы с дочерью Карен, а также влюблённые Том и Джуди. Лишь спустя (   Читать дальше...   )Производство: США / Image Ten, Laurel Group, Market Square Productions, Off Color FilmsЖанр: ужасыРежиссер: Джордж А. РомероПеревод: профессиональный двухголосый (Film Prestige), авторский (Андрей Дольский), профессиональный одноголосый (Tycoon)Язык озвучки: русский, английскийСубтитры: русские (Film Prestige), английскиеПродолжительность: 01:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9882315FFBDCA243F1D22C7957345C9CF7983C7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859112   (1060917) от 14.03.2026
-
-Симаррон / Cimarron (1960) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смелый и честный Янси Крават по прозвищу «Симаррон» вместе со своей молодой женой приезжает в Оклахому, куда только что хлынула волна поселенцев. Тут ему приходится столкнуться с беззаконием и произволом, царящими на новых территориях. Жители фронтира признают лишь право сильного, но именно благодаря таким людям, как Симаррон, на эту землю постепенно приходит закон (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, вестернРежиссер: Энтони Манн, Чарльз УолтерсАктеры: Гленн Форд, Мария Шелл, Энн Бакстер, Артур О’Коннелл, Расс Тэмблин, Мерседес Маккэмбридж, Вик Морроу, Роберт Кит, Чарльз МакГроу, Гарри МорганПеревод: Двуголосый профессиональный (СВ-Дубль по заказу ГТРК "Культура")Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB635BE6F2DE8C04B66ABA9AEEBBC912A7A19BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859263   (1060812) от 19.03.2026
-
-Боже мой, как низко я пала! / Mio Dio, come sono caduta in basso! (1974) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало нынешнего столетия. В день своей свадьбы сицилийская дворянка Эужения и ее жених — богатый буржуа Раймондо узнают, что они брат и сестра. Чтобы соблюсти приличия, они решают сохранить видимость брака, но не вступать в интимную связь. Раймондо поощряет жену на занятия благотворительной деятельностью и для этих целей доверяет ей автомобиль и шофера Сильванно (   Читать дальше...   )Производство: Италия / Dean FilmЖанр: КомедияРежиссер: Луиджи КоменчиниАктеры: Лаура Антонелли, Альберто Лионелло, Микеле Плачидо, Уго Пальяи, Розмари Декстер, Карин Шуберт, Микеле Абруццо, Джузеппе Караччоло, Жан Рошфор, Лоренцо ПьяниПеревод: Двуголосый профессиональный, авторский (Р. Янкелевич)Язык озвучки: Русский, итальянскийСубтитры: Английские, французскиеПродолжительность: 01:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501B332483CA1A72C1ED40E0B3C4DCFD8CE35F48
 ```
 
 https://mybot314.ru/tekegram_catalog/

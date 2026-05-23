@@ -1,3 +1,190 @@
+###  Публикация: 1822065   (94637) от 05.10.2025
+
+Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6094EDCFFF8EE762561F12EA910246AA06BA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822066   (94635) от 05.10.2025
+
+JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5FD8BED15200B1D326B7E997169DBB5BC767F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822067   (94633) от 05.10.2025
+
+JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D580676D7C863F3260C3DBD58EDA170B6657986F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822068   (94631) от 05.10.2025
+
+JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
+поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2, 8.3 и PHP 8.4 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825897A05508CE13197AC3F007B9F4DB42DA4700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822069   (94628) от 05.10.2025
+
+Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+JetBrains IntelliJ IDEA Ultimate - это профессиональный инструмент для разработки Java-приложений, который предлагает широкий спектр функций и возможностей для повышения эффективности разработчиков. Эта интегрированная среда разработки (IDE) обеспечивает быструю навигацию, умное автодополнение и рефакторинг кода, а также поддерживает множество технологий и фреймворков. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF026F10025F4775E9E89C2ECE5F295FE231DB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822070   (94627) от 05.10.2025
+
+JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+JetBrains DataGrip - это инновационное программное обеспечение, специально разработанное для работы с различными базами данных, включая Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и многие другие. Оно представляет собой полноценный пакет инструментов, который обеспечивает удобство и эффективность при работе с данными.
+Одной из ключевых особенностей является (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177CD56DA7E5E4748270823C0FF15202CE782A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822071   (94626) от 05.10.2025
+
+JetBrains GoLand 2025.2.3 (x64-arm64) Repack by Sitego [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+GoLand - это интегрированная среда разработки (IDE) от компании JetBrains, специально разработанная для работы с языком программирования Go. Она предоставляет разработчикам удобную среду для написания кода, анализа и отладки программ на Go.
+
+IDE GoLand предлагает широкий спектр инструментов, специфичных для языка Go, таких, как автодополнение кода, быструю навигацию (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D269C186B0BD6B5AC3E7F2C51E5FF38FE9F5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472714   (84215) от 24.03.2012
 
 Bascom AVR 2.0.7.1 [Английский и Русский]
@@ -6,7 +193,7 @@ Bascom AVR 2.0.7.1 [Английский и Русский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -39,7 +226,7 @@ CodeVisionAVR V2.05.3 [Английский]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_84014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -74,7 +261,7 @@ Borland InterBase 7.5.1 SP1 [English]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -104,7 +291,7 @@ Interbase 2020 Update 5 14.5.0.864 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -130,7 +317,7 @@ Java SE Development Kit 22.0.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -157,7 +344,7 @@ Java SE Development Kit 21.0.3 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -184,7 +371,7 @@ Java SE Development Kit 17.0.11 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -211,7 +398,7 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55051.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -238,7 +425,7 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55003.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -265,7 +452,7 @@ Resource Tuner Business 2.24 Portable by FC Portables [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +479,7 @@ Resource Tuner Business 2.24 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +506,7 @@ JetBrains Aqua 2024.2 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44256.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +532,7 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +559,7 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44236.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -399,7 +586,7 @@ Sublime Text 4 Build 4180 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -425,7 +612,7 @@ JetBrains PyCharm Professional 2024.3 (x64-arm64) Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36938.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +638,7 @@ JetBrains RubyMine 2024.3 (x64-arm64) Repack by Sitego
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36786.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +665,7 @@ Software Ideas Modeler Ultimate 14.88 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -504,7 +691,7 @@ EditPlus 6.0.0 build 0632 + EditPlus 6.0.0 patch 0669 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -515,195 +702,6 @@ EditPlus – это компактный текстовый редактор д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:981ACF2CBD445C18569EB8326C96EFAEF95373B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782291   (26295) от 27.02.2025
-
-Microsoft Visual Studio 2022 Community 17.13.2 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Community - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9CD92F1E487AD004C256092A8F40395582B794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784164   (25138) от 10.03.2025
-
-JetBrains dotUltimate 2024.1.3 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор инструментов для .NET
-Каким бы видом разработки вы ни занимались, dotUltimate сделает ее максимально эффективной. Он включает в себя расширения для Visual Studio, независимую IDE, а также набор инструментов для профилирования и анализа покрытия кода, которые помогут вам раскрыть весь потенциал платформы .NET.
-
-Разработка .NET охватывает самые различные (   Читать дальше...   )Язык интерфейса: английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5EB9BB1E39A2E4248A6DFD8A1D3DAE591D4823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792624   (20885) от 19.04.2025
-
-Resource Tuner Business | Personal 2.25 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resource Tuner - это программа для просмотра, редактирования, замены и извлечения ресурсов исполняемых файлов, т.е. всех тех элементов, которые образуют визуальный графический интерфейс приложений, работающих под Windows: иконки, строчки, изображения, звуки, диалоги, меню и многое другое.
-Программа позволяет вносить изменения во внешний вид приложений, не вмешиваясь (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6C585318D614A0847FB6A89FA41FB86DBC991E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801586   (14973) от 11.06.2025
-
-Microsoft .NET 9.0.6 Runtime [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
-С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392B2D2884783AF3EF709B3AFC41A81FCDAEFB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811609   (8683) от 10.08.2025
-
-Araxis Merge Pro 2025.1 [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
-Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCFD16FD838A1E969AA63F96FD4910447B8BD20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812255   (8109) от 13.08.2025
-
-Microsoft Visual Studio 2019 Enterprise 16.11.50 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7D37904B2DAE3FAC330A1C3D7B1BA38A864DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812853   (7550) от 16.08.2025
-
-JetBrains PhpStorm 2025.2 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7550.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2, 8.3 и PHP 8.4 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E7E4D265CA378767DFE6D6CE0FE28822006635
 ```
 
 https://mybot314.ru/tekegram_catalog/

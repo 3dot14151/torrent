@@ -1,3 +1,85 @@
+###  Публикация: 492866   (248970) от 08.05.2012
+
+Cisco Aspire (L / Beta) [En] 2011
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/004/" />
+</div>
+
+
+###  Подробнее
+
+Cisco Aspire — это потрясающая обучающая игра, основанная на моделировании ситуаций. Игра Aspire позволяет развивать бизнес умения и практиковать финансовые навыки с помощью учебных ситуаций в моделированной среде сетевых коммуникаций.
+
+В этой новаторской игре участники действуют под видом выбранного ими аватара. Главная цель состоит в выполнении максимума проектов, в которых Вы выступаете как главный исполнитель каждого контракта по сетевым технологиям. Игрок получает кредитные баллы за каждый выполненный контракт.
+
+Игра подойдет к концу, когда Вы успешно выполните все проекты или когда закончатся кредитные баллы, и невозможно будет делать дальнейшие расходы. Благодаря исследованию учебных бизнес-ситуаций, развиваются предпринимательское мышление, умение творчески подходить к проблемам, а также формируется навык принятия решений.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Симулятор ITшникаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40604C31FDE23E800A1B15A1F6DCBDA0A5DF37D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833183   (246246) от 01.11.2025
+
+Outbreak Island (2025) [Ru/Multi] (Build 20575035/dlc) Repack Other s [Supporter Edition Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Загадочное сообщение от пропавшего отца приводит вас на отдалённый остров, скрывающий мрачные секреты. Некогда на этом острове проводились секретные эксперименты, последствия которых каждую ночь вспыхивают странным, мистическим лучом, оживляющим заброшенные электроприборы и пробуждающим чудовищных созданий. Что именно здесь произошло? И какую роль сыграл в этом ваш (   Читать дальше...   )Тип издания: RepackРазработчик: Tiny MagiciansЖанр: Экшены, Приключенческие игры, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008AAFAE4A8C1534D5C5C66D0BBF878E003E218B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642977   (234149) от 30.06.2023
+
+RICE Repetitive Indie Combat Experience (2023) [En] (24) License GOG [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Зачем вы сюда пришли - за сытным пиршеством из разрушения и хаоса. Мы это знали и приготовили для вас щедрую порцию R.I.C.E. Но что же мы туда положили? Глубокий драматичный сюжет, который из кожи вон лезет, чтобы показать, какой он серьёзный и взрослый? Ни капельки. Целую толпу персонажей, которые постоянно жалуются и ноют? Мы срезаем весь жир. Стремительные бои (   Читать дальше...   )Тип издания: LicenseРазработчик: Pirate-RobЖанр: Экшены, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE599B0DE02FB8B8C72FA4396BBAB5A7B372F988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965894   (223255) от 15.12.2015
 
 Darkest Dungeon (2015) [En] (Build 12102) Repack NIK220V
@@ -6,7 +88,7 @@ Darkest Dungeon (2015) [En] (Build 12102) Repack NIK220V
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Exoplanet: First Contact (2016) [En] (0.15.0) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219469.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +140,7 @@ The Forest (2014) [En] (0.51b) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +166,7 @@ The Black Ice (2025) [Ru/Multi] (1.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -110,7 +192,7 @@ Death Trash (2021) [Multi] (0.8.7.3) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_211198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +218,7 @@ Remains (2021) [Ru/Multi] (0.50x0297a) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -162,7 +244,7 @@ Dr. Chatelet: Faith 神医 (2022) [Multi] (1.0.25) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -188,7 +270,7 @@ Split (2022) [Ru/Multi] (0.9.20) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207643.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +296,7 @@ Phasmophobia (2020) [Ru/Multi] (0.9.0.8) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -240,7 +322,7 @@ Kerbal Space Program 2 (2023) [Ru/Multi] (0.1.0.0.20892) Repack Chovka [Early Ac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201609.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +348,7 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -292,7 +374,7 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_195831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +400,7 @@ Arena Renovation (2023) [Ru/Multi] (0.6.153) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +426,7 @@ Demonologist (2023) [Ru/Multi] (0.5.2) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +452,7 @@ Daimon Blades (2025) [Ru/Multi] (114924/dlc) Repack Let'sРlay [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +478,7 @@ Witchfire (2023) [En] (0.1.9 Build 47935) Repack Other s
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +504,7 @@ The Fermi Paradox (2021) [En] (0.70.v.2) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167487.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +530,7 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +556,7 @@ Travellers Rest (2020) [Ru/Multi] (0.7.3.5.1) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +582,7 @@ Mystery of the Ancients 8: No Escape (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +608,7 @@ PuppetShow 15: Porcelain Smile (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146856.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +634,7 @@ The Secret Order 8: Return to the Buried Kingdom (2018) [En] (Beta) Unofficial
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +660,7 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2019) [Ru/En] (0.20.1222.1605/dlc) Repac
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +671,6 @@ Encased — пошаговая научно-фантастическая RPG. И
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47A5715719416EC1F9DBE81FEBA2EC9B4436E2EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689137   (124955) от 31.12.2023
-
-BEAST: False Prophet (2023) [Multi] (1.1.24118) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объявленный погибшим ветеран возвращается, проведя 10 лет в оттоманском рабстве. Его родные Карпаты страдают от адской чумы и нашествия разбойников, а правит ими безумный царь-пророк. Все, что ветеран когда-то чтил и любил, погибло либо изменилось до неузнаваемости. Ему осталась лишь солдатская верность и священная миссия: искоренить чуму. Помогите ему выполнить (   Читать дальше...   )Тип издания: LicenseРазработчик: False ProphetЖанр: Стратегия, Пошаговая, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F11C5BB2BEA292CF544C01A6E1464EDA21A7872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689093   (124948) от 31.12.2023
-
-Stellar Warfare (2021) [En] (29112023) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Warfare совмещает в себе сразу несколько привычных механик, создавая совершенно новый проект. Здесь, пользователям предлагают окунуться в сеттинг далекого космоса, где под контролем оказывается целый космический флот. Начав с примитивных образцов техники, не отличающихся особыми свойствами, геймер получит возможность прокачивать корабли и увеличивать их численность, (   Читать дальше...   )Тип издания: LicenseРазработчик: Tense GamesЖанр: Стратегия, В реальном времениЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C3B9635B21B016A2E9DCE2C9B69C2D9D4E1BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588537   (123038) от 14.01.2024
-
-Stellar Tactics (2016) [Ru/Multi] (0.724) License GOG [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stellar Tactics – увлекательное путешествие по космическим неизведанным просторам. Эта игра соединяет в себе механики от разнообразных жанров, например, от групповых тактических пошаговых стратегий или исследовательских адвенчур. Игроку предлагается роль первооткрывателя множества звёздных систем, которые остались нетронутыми во времена колонизации космоса. Насчитывается (   Читать дальше...   )Тип издания: LicenseРазработчик: Maverick GamesЖанр: Ролевая игра, ПошаговаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 ```
 
 https://mybot314.ru/tekegram_catalog/

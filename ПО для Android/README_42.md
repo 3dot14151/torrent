@@ -1,3 +1,81 @@
+###  Публикация: 1387370   (791248) от 02.06.2020
+
+Bliss - Icon Pack 1.3.4 [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Bliss - Icon Pack - Отличное приложение, которое содержит в себе множество иконок, и не только! Вы сможете подобрать то, что подходит именно вам, на свой вкус. Так же можно выбрать готовый набор стандартных иконок, и изменить его по своему усмотрению. Или же создать что то свое. Данное приложение содержит в себе более чем 1250 иконок, в отличном качестве. А так же (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 31.05.2018Разработчик: BladeXDesignsПоддерживаемая ОС: Android 4.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C1CF188FB62CF11C7ABCD273DD338CF319D723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387435   (791211) от 02.06.2020
+
+Frequency generator / Генератор частоты 4.0 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приложение "Генератор частоты" имеет несколько инструментов для генерации высокочастотных сигналов. Генератор используется для преобразования сигналов, для измерений и в других областях.Тип издания: PremiumРелиз состоялся: 22.05.2020Разработчик: Hoel BoedecПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FF70AA8C2B80881E71638B221FBE1F5DA87715
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387709   (790662) от 03.06.2020
+
+AndFTP Pro 4.0.6 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+AndFTP — полноценный FTP/SFTP/FTPS клиент для Android с богатыми функциональными возможностями, позволяющий управлять несколькими серверами. Создание папок, возможность выбора папки, переименовывание и удаление файлов, загрузка/выгрузка с поддержкой возобновления, настройка полномочий на FTP сервере, а так же поддержка нескольких FTP серверов и это лишь малая часть (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.10.2018Разработчик: LYSESOFTПоддерживаемая ОС: Android 1.5+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B838C18D4667BC166171CD2D0F99849FB45D197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387775   (790629) от 03.06.2020
 
 Математика - Math Wiki v3.2.3 [Ru] (обновляемая)
@@ -6,7 +84,7 @@
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790629.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +111,7 @@ MyTreeNotes - Записная книжка v6.6 [Ru/Multi] - функциона
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ Mazetools Soniface 2.51 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ LOL!TV v3.0.1 [Ru] - Торрент ТВ для Android, ваше онлайн �
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789682.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789272.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +322,7 @@ Shadowsocks 5.2.6 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +348,7 @@ Bitdefender Antivirus Premium 3.2.89.131 [Ru] - Антивирус
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +374,7 @@ Home Design 3D v4.0.8 Pro [Ru/Multi] - Создание и персонализ�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785857.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -351,7 +429,7 @@ App Backup & Share Pro 10.3.1 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -377,7 +455,7 @@ Volume Slider Like Android P Volume Control 3.5 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -403,7 +481,7 @@ ReadEra  v20.05.22+1210 Premium [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783156.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +611,7 @@ Wake me up! Умный Будильник v5.0.5 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -585,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -596,93 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:981AAE2260A6A1E898D5724B24D5F8AA097D6923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956793   (777803) от 03.05.2016
-
-Песни с аккордами Pro v2.7.5847 [Ru] - Оффлайн песенник с аккордами
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из лучших оффлайновых приложений. Не требует подключения к Интернету для доступа к базе песен. Даже если у вас нет гитары - нажимайте на аккорды и напевайте любимые песни!Тип издания: Пиратка (Pro)Релиз состоялся: 23.03.2016Разработчик: RUSABПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B21BA8AA8D478893D2BE365FF40FB977EFD2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836669   (777687) от 06.03.2018
-
-VideoMix v2.7.7 Ad-Free [Ru/En] - просмотр видео онлайн
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777687.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoMix - это приложение позволит вам смотреть фильмы, сериалы, мультфильмы и ТВ передачи онлайн бесплатно без всякой рекламы (версия AD-Free) из популярных ресурсов www.iwannawatch.net (для англо-язычных пользователей), filmix.net и ekranka.tv, представляющих собой бесплатные каталоги описаний видео-контента со ссылками на сторонние онлайн ресурсы (videorockerz.com, (   Читать дальше...   )Тип издания: Free и Ad-Free (без рекламы)Релиз состоялся: 05.03.2018Разработчик: CentumПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA47A0A144257956CBC7D9DB1722395617CEA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636988   (774382) от 23.05.2013
-
-[Программа] Adobe Flash Player v11.1.115.58/v11.1.111.54 (Android от 2.х+)
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Плагин для браузеров на вашем Android-устройстве,
-который позволяет просматривать различные приложения,
-видео, прослушивать музыку в различных браузерах и операционных системах.
-
-Adobe Flash Player v11.1.115.58 работает под android 4 (файл install_flash_player_ics.apk), проверено на Samsung Galaxy Tab
-Adobe Flash Player v11.1.111.54 для android 2.x and 3.x (файл install_flash_player_pre_ics.apk)
-
-Проверял на браузерах Firefox, UC Browser и встроенном - работает.
-Некоторые браузеры (Опера, Хром) flash не поддерживают!!!
-(   Читать дальше...   )Разработчик: Adobe
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

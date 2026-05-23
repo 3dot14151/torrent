@@ -1,3 +1,185 @@
+###  Публикация: 1092920   (601924) от 30.04.2022
+
+Max Payne 2: The Fall of Max Payne (2003) [Ru] (1.1.102.0) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Max Payne 2: The Fall of Max Payne — жестокая любовная история в стиле фильмов «нуар». Темная, трагичная и напряженная глубокая история, полная шокирующих поворотов и открытий. Любовь причиняет боль. Max Payne 2: The Fall of Max Payne предлагает самый напряженный игровой опыт, какой только можно представить. Динамичные и стильные экшн-эпизоды, а также игры с оружием (   Читать дальше...   )Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F66571D4C5C0AE3E25BCE2E46ED46FA616B34C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 327198   (601193) от 26.06.2011
+
+Игра престолов / Game of Thrones (Сезон 1 полный (10)) (2011) HDTVRip 400p, DD 5.1 (AlexFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+«Игра престолов» новый сериал HBO, основанный на бестселлерах Джорджа Р.Р. Мартина. В мире, где лето и зимы длятся десятилетиями, на кону корона Вестероса. Предательство, похоть, интриги и сверхъестественные силы сотрясают все четыре стороны Королевства — от плетущего интриги юга, диких восточных земель, до замерзшего севера и древней Стены, что защищает королевство (   Читать дальше...   )Производство: СШАЖанр: Драма, фэнтезиРежиссер: Брайан Кирк, Даниэль МинаханПеревод: Профессиональный многоголосый закадровый -Продолжительность: ~59:00 мин серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913740   (600996) от 30.06.2015
+
+В Японии была проведена первая в истории церемония бракосочетания между роботами
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В субботу, 27 июня 2015 года, в концертном зале Tokyo Aoyama Cay состоялась первая в истории церемония бракосочетания, которая связала узами брака двух роботов. Эта церемония была организована японским художественным коллективом Maywa Denki, основателями которой являются два брата Масамичи и Новмбичи Тоса (Masamichi, Novmbichi Tosa) и в выступлениях которой принимают (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913923   (600786) от 30.06.2015
+
+Malwarebytes Anti-Malware Premium 2.1.8.1057 Final Portable by PortableAppZ [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Malwarebytes Anti-Malware - новая версия программы от создателей RogueRemover Pro, AboutBuster и других популярных утилит, способная находить и удалять разнообразные вредоносные программы. Программа использует эвристический метод сканирования, способный в реальном времени контролировать безопасность системы в целом. Также имеется возможность полного сканирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E918BA67F7AE18340AB0B065BE8CB0DFD0A6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907290   (600778) от 30.06.2015
+
+Planetary Annihilation (2014) [Ru/Multi] (build 83391) Unofficial ALI213
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Planetary Annihilation  представляет из себя масштабнейшую стратегию в реальном времени, которая разворачивается сразу на нескольких планетах, которые вы можете как разрушать, так и колонизировать для последующих тактических решений в победе над врагом.Тип издания: Неофициальное издание (Распакованная лицензия)Разработчик: Uber EntertainmentЖанр: Стратегии в реальном времениЯзык озвучки: АнглийскийЯзык субтитров: Русский, английский, и другиеЯзык интерфейса: Русский, английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F857B72D05608C15255D884B1C40A6AE63E527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913680   (600772) от 30.06.2015
+
+Астрал 3 / Insidious: Chapter 3 (2015) WEBRip [H.264/1080p-LQ] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о том, как одаренный экстрасенс Элис Рейнер неохотно соглашается использовать свои способности для установления связи с мертвыми, чтобы помочь девочке-подростку, которая стала мишенью для опасной сверхъестественной сущности.Производство: Канада, США / Automatik Entertainment, Blumhouse Productions, Entertainment OneЖанр: УжасыРежиссер: Ли УоннеллАктеры: Стефани Скотт, Дермот Малруни, Энгус Сэмпсон, Ли Уоннелл, Лин Шэй, Тейт Берни, Майкл Рид МакКей, Стив Култер, Хейли КийокоПеревод: Дублированный (чистый звук)Субтитры: Вшитые неотключаемыеЯзык субтитров: КитайскиеПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A584C805DE3E6FE950ADF0F76E3DA393B5E4B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298600   (600655) от 30.04.2019
+
+Робот 2.0 / 2.0 (2018) WEBRip [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Миру угрожает монструозный крылатый злодей, покусившийся на самое святое, что есть у человечества — мобильные телефоны. Бессовестное чудовище в прямом смысле слова подчиняет себе устройства и создаёт из них могучую армию, способную трансформироваться во что угодно. Так и проиграли бы люди этот неравный бой, если бы не другое важное изобретение — робот Читти.Производство: ИндияЖанр: Фантастика, Боевик, ТриллерРежиссер: С. ШанкарАктеры: Раджиникант, Акшай Кумар, Эми Джексон, Адиль Хуссэйн, Суданшу Пандей, Kalabhavan Shajohn, Анант Нараян Махадеван, Майилсами, Ishari Ganesh, Кайзаад КотвальПеревод: Любительский (двухголосный) - КолобокСубтитры: Китайские, английские,  не отключаемыеПродолжительность: 02:23:21Реклама: Присутствуют вставки видео голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93950A5FC252CF2ACFD2DE923004F3133D5E3522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073249   (600650) от 30.04.2019
 
 Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack R.G. Catalyst
@@ -6,7 +188,7 @@ Transport Fever (2016) [Ru/Multi] (1.0.18381) Repack R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ Call of Duty: Black Ops 2 (2012) [En] (Multiplayer Only/39.1337.4/DLC 1-3) Rip S
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +243,7 @@ Tor Browser Bundle 7.0.2 Final [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +269,7 @@ Darksiders (2016) [Ru/Multi] (1.0.2679/u12) Repack =nemos= [Warmastered Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_599284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599232.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +376,7 @@ The Bat! Professional 7.2 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +402,7 @@ Adobe Muse CC 2015.2.1.21 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -246,7 +428,7 @@ Adobe Photoshop Lightroom CC 2015.6.1 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_598286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -325,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597709.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -351,7 +533,7 @@ Final Cut Pro X 10.4.3 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -431,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597367.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +639,7 @@ Call of Duty 4 - Modern Warfare (2007) [Ru] (1.8) Repack bizon_75 [Multiplayer O
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,188 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF04BB722050F7A8973AF9E4C24CC8B698676873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103348   (597187) от 02.05.2019
-
-Phoning Home (2017) [Ru/Multi] (1.4.1) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунуться в таинственный мир неизвестной планеты тебе предстоит в роли АЙОНа, юного робота-разведчика, прибывшего с миссией ресурсообеспечения. После крушительной посадки космического корабля, практически полностью разрушившего его, тебя ожидают неизвестность и опасности нового мира. Чтобы вернуться домой, необходимо будет найти способТип издания: LicenseРазработчик: ION LANDSЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23380856AAEAD965E3946AE896FB09AD2C99E71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036591   (596994) от 31.07.2016
-
-Курьер (1986) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпускник школы Иван, дожидаясь призыва в армию, работает курьером в редакции. Окружающие его солидные взрослые люди с трудом приспосабливаются к удивительной способности этого парня любое событие превратить в невероятное происшествие - порой уморительно веселое, а, подчас, и непоправимо грустное…Производство: СССР / МосфильмЖанр: Драма, Мелодрама, КомедияРежиссер: Карен ШахназаровАктеры: Федор Дунаевский, Анастасия Немоляева, Олег Басилашвили, Инна Чурикова, Светлана Крючкова, Александр Панкратов-Черный, Владимир Меньшов, Алевтина Евдокимова, Евдокия Урусова, Владимир Смирнов, Андрей Вертоградов, Алика Смехова, Сергей Чонишвили, Лариса Курдюмова, Ольга Калмыкова, Вера СотниковаПеревод: Не требуетсяЯзык субтитров: РусскийПродолжительность: 01:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637E97CCD39E65EBD1F6A8854FEFCCA3C5200AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 687733   (596300) от 09.08.2013
-
-Проекты - Проекты и стили Photodex Proshow [PSH,PST,PXS]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проекты, стили идеально подойдут для Вашего творчества. Весь материал адаптирован под стандартные фотографии.Формат: PSH,PST,PXSРазрешение файлов: 1920x1080, 1280x720
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69E752A6F5DE5D2E390624FD0B18A02C4E8F269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149917   (596114) от 13.07.2017
-
-KMSAuto Net 2016 1.5.1 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596114.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Net — автоматический KMS-активатор для операционных систем Windows VL-редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, а также Office 2010, 2013, 2016. Дополнительно программа активирует: Windows 8.1 Single Language; Windows 8.1 Core; Windows 8.1 Core N; Windows 8.1 Pro WMC; Windows Embedded 8.1 Industry Pro; Windows Server 2012 R2 Standard; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D97F600C1B13033716431EF3B1B79727B96BDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914775   (596102) от 03.07.2015
-
-НАСА начинает испытания беспилотника, который станет первым летательным аппаратом на Марсе
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если экспериментальная программа НАСА по исследованиям Марса будет и дальше развиваться согласно намеченным планам, то в недалеком будущем на Красную Планету отправится первый летательный аппарат. Разрабатываемый сейчас в Летно-исследовательском центре НАСА имени Армстронга (NASA Armstrong Flight Research Center) беспилотник Prandtl-m имеет форму летающего крыла, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232843   (596020) от 26.06.2018
-
-Comodo Internet Security Premium 11.0.0.6606 Final [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A9218EB709A07C1C2D3F8A8872821FAFB34F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888002   (596014) от 26.06.2018
-
-Молчание ягнят / The Silence of the Lambs (1991) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Психопат похищает и убивает молодых женщин по всему Среднему Западу Америки. ФБР, уверенное в том, что все преступления совершены одним и тем же человеком, поручает агенту Клариссе Стерлинг встретиться с заключенным-маньяком, который мог бы объяснить следствию психологические мотивы серийного убийцы и тем самым вывести на его след. Заключенный, доктор психиатрии (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Strong Heart/Demme ProductionЖанр: Триллер, Криминал, Детектив, ДрамаРежиссер: Джонатан ДеммеАктеры: Джоди Фостер, Энтони Хопкинс, Скотт Гленн, Тед Левайн, Брук Смит, Энтони Хилд, Кейси Леммонс, Дайан Бэйкер, Фрэнки Фэйзон, Дэн БатлерПеревод: Дублированный, Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D24F55DD7245E40876F9964EA80FD27680E8292
 ```
 
 https://mybot314.ru/tekegram_catalog/

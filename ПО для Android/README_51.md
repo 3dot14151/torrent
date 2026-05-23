@@ -1,3 +1,81 @@
+###  Публикация: 910858   (619376) от 21.06.2015
+
+AirPlay/DLNA Receiver PRO v2.6.9 [En] - мощный приёмник медиаконтента по DLNA протоколу
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Смотрите видео, картинки и слушайте музыку из компьютера на своем андроид устройстве (и наоборот)благодаря программе - AirPlay/DLNA Receiver. Довольная интересная программа, которая позволяет стримить фильмы или музыку на компьютере прямо на свое устройство. Вам не нужно засорять память устройства, можно все хранить на локальном сервере, а уже оттуда устроить передачу (   Читать дальше...   )Тип издания: Pro с МаркетаРелиз состоялся: 18.06.2015Разработчик: WaxRain Tech.Поддерживаемая ОС: Android 2.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2FA42187A2E43322C69FB690A6243BE4A4BC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837980   (619362) от 26.06.2017
+
+ЭкоГид: Цветы v3.0.2 [Ru] - атлас-энциклопедия дикорастущих травянистых растений средней полосы России
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый в России ПОЛЕВОЙ определитель и атлас-энциклопедия дикорастущих травянистых растений средней полосы России, с помощью которого можно ОПРЕДЕЛИТЬ видовое название неизвестного растения по его внешнему виду, строению цветка, соцветия и листьев прямо в природе.Релиз состоялся: 12 мая 2016 гРазработчик: ЭкосистемаПоддерживаемая ОС: Android 2.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6853B4DDE821E862CBCA079ED5E9F6168784D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 849128   (619307) от 26.06.2017
+
+ЭкоГид: Грибы v3.0.2 [Ru] - атлас-энциклопедия грибов России
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый в России ПОЛЕВОЙ определитель и атлас-энциклопедия грибов России, с помощью которого можно ОПРЕДЕЛИТЬ видовое (научное) название гриба по морфологическим и экологическим признакам!Тип издания: Вылечена / ПираткаРелиз состоялся: 5 июня 2016 гРазработчик: ЭкосистемаПоддерживаемая ОС: Android 2.3.3+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226D210FB810A5CAFA0DB175FA8F08024A0A54FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 896986   (619281) от 21.06.2015
 
 KidsTrack 1.0.4 [Ru] - GPS-трекер на телефон ребенку
@@ -6,7 +84,7 @@ KidsTrack 1.0.4 [Ru] - GPS-трекер на телефон ребенку
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +163,7 @@ TВ - Онлайн v2.3 Mod [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +189,7 @@ Scientific Calculator Pro / Научный калькулятор Pro v2.5.4 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +270,7 @@ AlReader 1.65 150531 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +299,7 @@ Infinite Painter v6.3.21  [Ru/Multi] - редактор растровой гр�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +326,7 @@ Digital Call Recorder Pro 2.49 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600869.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -277,7 +355,7 @@ Hydro Coach - пейте воду 2.9.2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598330.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +381,7 @@ Car Launcher Pro 1.5.3 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +408,7 @@ Microsoft Office Mobile 15.0.4220.2300 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -356,7 +434,7 @@ YMusic - YouTube Music Player & Downloader v3.7.10 [Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596369.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +512,7 @@ Aquarium Live Wallpaper v1.7 (Mod Ad Free) [En] - Живые обои с акв�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +538,7 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -601,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B2CC9891F0541E685FA219181A2C8E51ADC973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890953   (592197) от 05.07.2015
-
-Super Backup Pro: SMS&Contacts 1.8.07.03 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Backup Pro: SMS&Contac - это программа для быстрого создания резервных копий ваших контактов, сообщений и лога звонков. Сохранение контактов/сообщений/звонков на карту памяти. Восстановление контактов/сообщений/звонков с карты памяти. Удаление сохраненных копий с карты памяти.Тип издания: ПираткаРелиз состоялся: 27 июля 2015 г.Разработчик: MobileIdea StudioПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B3DE88B93A7998AE8527E6790A3EEEDEBD75F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907348   (592181) от 05.07.2015
-
-ZenMate Security & Privacy VPN 2.3.0 [En]
-
->>След.
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592181.jpg" />
-</div>
-
-
-###  Подробнее
-
-ZenMate предоставляет вам услуги виртуальной частной сети, с помощью которой вы сможете серфить в интернете по специальному защищенному зашифрованному каналу, обеспечивающему вам анонимность и безопасность. К тому же, адрес вашего расположения может быть замаскирован под жителя US, UK, Germany, Switzerland или Hong Kong. Это поможет вам при необходимости достучаться (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 28 июня 2015 г.Разработчик: ZenGuard GmbHПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B594491BC0492CA9C2678D96ED44D0BD46C276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915630   (591849) от 06.07.2015
-
-The Weather Channel 5.6.3 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Weather Channel предоставляет вам самую важную и точную информацию о погоде в любом месте, в любое время. Weather Channel поможет вам учесть все: наша технология прогнозов погоды предоставляет все необходимые инструменты, чтобы составить планы на ближайший день, неделю или даже на ближайший час.Тип издания: FreeРелиз состоялся: 15 июня 2015 г.Разработчик: The Weather ChannelПоддерживаемая ОС: Android: 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3DFF729210204912F18BD1567A2FB510406126
 ```
 
 https://mybot314.ru/tekegram_catalog/

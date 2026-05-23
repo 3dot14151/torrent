@@ -1,3 +1,55 @@
+###  Публикация: 1594020   (178864) от 29.11.2022
+
+Гарри Поттер: Коллекция / Harry Potter: Collection (2001 - 2011) BDRip [H.264/1080p]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь десятилетнего Гарри Поттера нельзя назвать сладкой: его родители умерли, едва ему исполнился год, а от дяди и тётки, взявших сироту на воспитание, достаются лишь тычки да подзатыльники. Но в одиннадцатый день рождения Гарри всё меняется. Странный гость, неожиданно появившийся на пороге, приносит письмо, из которого мальчик узнаёт, что на самом деле он волшебник (   Читать дальше...   )Производство: Великобритания, США /  Warner Bros.Жанр: фэнтези, приключения, семейныйРежиссер: Крис Коламбус, Альфонсо Куарон, Майк Ньюэлл, Дэвид ЙейтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Том Фелтон, Мэттью Льюис, Иэн Харт, Хелена Бонем Картер, Джим Бродбент, Эванна Линч, Имелда Стонтон, Роберт ПаттинсонПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, украинский, казахский, английскийСубтитры: русские, украинские, английскиеПродолжительность: 02:32:21 / 02:40:56 / 02:21:42 / 02:37:05 / 02:18:14 / 02:33:30 / 02:26:05 / 02:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB7774D679725C187CDA49A5AADEC2C4BCC8937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 566655   (177920) от 04.12.2020
+
+Светлое будущее (Право на жизнь) / Ying hung boon sik / A Better Tomorrow (1986, 1987, 1989) BDRemux [H.264/1080p] [Трилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+В третьем фильме за светлое будущее для себя, а не для народа борются два двоюродных брата. Действие начинается во Вьетнаме в конце войны с американцами. В Китае идет культурная революция. В Камбодже война. В эти смутные времена наши герои занимаются преступностью, сея горы трупов под руководством роковой красавицы.Производство: Гонконг / Cinema City Company Limited, Film WorkshopЖанр: Боевик, Триллер, Драма, Криминал, ВоенныйРежиссер: Джон ВуАктеры: Чоу Юнь-Фат, Тони Люн Ка-Фай, Анита Муи, Ши Кьень, Сабуро Токито, Вэй Лун Чэн, Мэгги Чхён, Эндрю Кам, Линг Нэм Лам, Ван Сюн-ЛамПеревод: Многоголосый профессиональный, авторскийЯзык озвучки: Русский, китайскийСубтитры: Русские, английские, китайскиеПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BFD36356E190449465751E7E6948758D731F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 11348   (176927) от 02.12.2022
 
 Будни грузинских дорожников (Короткометражные фильмы Реваза (Резо) Габриадзе) (1974-1980) TVRip (серий 1-9)
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169039.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164839.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164019.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +450,7 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/1080p-LQ] [Трилогия]
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160034.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,61 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B09A385976B40E58A26599530936CB179F7A37F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575435   (154884) от 14.11.2023
-
-Робокоп / RoboCop (1987 / 1990 / 1992) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская супергеройская франшиза, представляющая футуристические приключения робота полицейского Алекса Мёрфи, офицера Детройта, штата Мичигана, которого убивает на задании банда Кларенса Боддикера. По поручению мощной мегакорпорации Omni Consumer Products труп Алекса превращают в киборга — названного Робокопом. Таким образом, Мёрфи сражается как с насильственными (   Читать дальше...   )Производство: США / Orion Pictures Corporation, Tobor ProductionsЖанр: фантастика, боевик, триллер, криминалРежиссер: Пол Верховен, Ирвин Кершнер, Фред ДеккерАктеры: Питер Уэллер, Нэнси Аллен, Роберт Джон Бёрк, Дэн О’ХерлихиПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, Авторский, ЛюбительскийСубтитры: русские, английскиеПродолжительность: 01:43:19 | 01:56:40 | 01:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E0CE6670B0537DE506842DCEF51A2877485CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676524   (150619) от 17.11.2023
-
-Омен / The Omen (1976/1978/1981) BDRip [H.265/1080p] [10-bit] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был рождён в 6 часов 6 июня. Как предсказано в Книге откровений, настанет конец света, последнее противостояние сил добра и зла, и началом его будет рождение сына Сатаны в облике человеческом.
-У жены американского дипломата Роберта Торна рождается мёртвый ребенок, но мужчина неспособен сообщить ей трагическую новость, поэтому усыновляет младенца с родимым пятном (   Читать дальше...   )Дэмиену Торну теперь 32. Стремясь к власти над всем миром он предан только себе и своему родному отцу — Сатане. Чтобы достичь своей цели, он убивает всех на своем пути — будь то друг, враг, верный слуга или любовница.
-
-Темным силам противостоит лишь поклявшийся уничтожить дьявольское отродье старый монах с семью святыми кинжалами, выкованными специально для этого (   Читать дальше...   )Производство: UK, USA / Twentieth Century Fox Film CorporationЖанр: ужасы, детективРежиссер: Грэм БейкерАктеры: Сэм Нил, Россано Брацци, Дон Гордон, Лиза Хэрроу, Барнеби Холм, Мейсон Эдамс, Роберт Арден, Люин Уиллоби, Марк Бойл, Милош КирекПеревод: профессиональный (многоголосый закадровый), авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Английские, русские, китайские и другие языкиКачество: BDRip (1080)Продолжительность: 01:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF131A9F2A16185C39D283284EFA7AECB77A8180
 ```
 
 https://mybot314.ru/tekegram_catalog/

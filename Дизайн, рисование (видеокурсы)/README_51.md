@@ -1,3 +1,82 @@
+###  Публикация: 1335467   (287354) от 02.11.2019
+
+Blender Cloud | Спидскульптинг в Blender 2.8 / Speed Sculpting (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот семинар состоит из видео, где Julien Kaspar объясняет свой процесс скульптинга в Blender, описывает проблемы с которыми он столкнулся и рассказывает как он их преодолел.Производство: Blender CloudЖанр: 3D моделирование, СкульптингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:20:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB81BAD34007DAEA8B7A07A1F055CDF08CBF16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335436   (287350) от 02.11.2019
+
+Blender Cloud | Основы Анимации в Blender 2.8 / Animation Fundamentals (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели начать работу с анимацией персонажей? С помощью Blender?
+Команда аниматоров студии Blender Animation Studio подготовила курс "учись на примере", который постепенно познакомит вас с основными принципами анимации персонажей, начиная от простого прыгающего мяча и заканчивая полнофункциональной анимацией персонажа.Производство: Blender CloudЖанр: 3D моделирование, АнимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 07:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D3B7E2F8A314FB9CF1638E1058FF8E807397E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335456   (287346) от 02.11.2019
+
+Blender Cloud | Основы Grease Pencil в Blender 2.8 / Grease Pencil Fundamentals (2019) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blender 2.8 имеет совершенно новый набор инструментов 2D-рисования и анимации. Овладейте Grease Pencil благодаря этому курсу.Производство: Blender CloudЖанр: 2D анимацияПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26660C28A363FE14D016E7612C7F92B2BDB3F097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335370   (281797) от 05.11.2019
 
 Андрей Самарин | Рисунок с нуля. Теория и практика (2018) HDRip [H.264/1080p-LQ]
@@ -6,7 +85,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +113,7 @@ Lynda.com | Обучение 3D-графике для Web с помощью Thre
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266876.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -60,7 +139,7 @@ FlippedNormals | Введение в Blender 2.8 / Introduction to Blender 2.8 (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -116,7 +195,7 @@ Udemy.com | Adobe Photoshop CC For Beginners (2019) PCRec [H.264/720p-LQ] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -143,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -169,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -195,7 +274,7 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -221,7 +300,7 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -247,7 +326,7 @@ Udemy, Vlad Sateev | Master Viral 3D Short Form Content in Blender (2025) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +354,7 @@ FluidCourse, Владислав Хафизов | Печать на 3D принт
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +380,7 @@ Udemy, Rick Davidson, Grant Abbitt | Blender Environment Artist: Create 3D World
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -330,7 +409,7 @@ Udemy, Stephen Pearson | Soft Body Physics Simulation Guide in Blender 2.9 (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -383,7 +462,7 @@ CGMA, Louis Manjarres | Houdini Production Studio: Destruction FX (2022) WEB-DL 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -410,7 +489,7 @@ Ben Marriott | Master Motion Design (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255284.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -438,7 +517,7 @@ Thinknetica, Артем Нистратов | Event-Driven Architecture (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -466,7 +545,7 @@ Gumroad, FlyCat | Avatar Character Modeling in Blender (2023) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255115.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -493,7 +572,7 @@ Motion Design School | 2D Character Design Magician (2022) WEB-DL [AD] [EN / EN 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -521,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -550,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -578,7 +657,7 @@ Udemy, Nafay Sheikh | Realistic Natural Environments in Unreal Engine 5 (2023) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254526.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -619,93 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF9292DD22C7B0B637AF2E21AC1B9B3F87A73D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631946   (254512) от 08.05.2023
-
-Вольница, Андрей Шкиль | Взрывной EmberGen (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Embergen — это узконаправленный софт для симуляции огня, дыма и воды (в меньшей степени).
-Основные фишки: высокое качество симуляций, риалтайм рендер и хорошая интеграция в пайплайн.
-Чтобы без проблем выводить итоговый результат и работать с ним дальше.
-За полтора месяца полностью погрузить в возможности Эмбергена, научить правильно создавать сложные симуляции, правильно (   Читать дальше...   )Производство: ВольницаЖанр: 3D ГрафикаЯзык озвучки: РусскийПродолжительность: 14:03:36Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB7404A052B01A8880C1A21E2FE6B8B5E01EC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631971   (254510) от 08.05.2023
-
-Академия графики и дизайна, Александр Коньшин | Нейросети, онлайн-сервисы и фотошоп (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254510.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Научимся пользоваться нейросетями
-- Создавать потрясающие иллюстрации
-- Создавать логотипы
-- Создавать персонажей(   Читать дальше...   )Производство: Академия графики и дизайнаЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 45:47:20Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C4FCD4E891D4A48B11669495021FFC66E714A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631940   (254506) от 08.05.2023
-
-Михаил Орлов | Дизайн сайтов. Figma (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что будет на мини - курсе:
-
-- Нарисуем сайт. Будет большой полноценный сайт с 3 вариантами первого экрана
-- Сделаем мобильную версию сайта. Адаптируем дизайн под мобильную версию(   Читать дальше...   )Жанр: Дизайн сайтовЯзык озвучки: РусскийПродолжительность: 05:45:31Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FA56B331E8B51A729030376BED1BB6FCCFFEA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

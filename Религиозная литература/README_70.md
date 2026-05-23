@@ -1,3 +1,111 @@
+###  Публикация: 1246658   (459235) от 12.09.2018
+
+Я. Ф. Трофимов | Современная христианская проповедь: сущность и тенденции [на материалах христианского сектантства в Казахстане)] (1986) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В настоящее время в христианском сектантстве проповедь играет ведущую роль в формировании религиозных установок у верующих. Путем проповеднической деятельности служители культа стараются удержать верующих, укрепить позиции религии. На основе анализа конкретных проповедей в некоторых христианских общинах Казахстана автор, раскрывал их истинное содержание и механизм (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7170A4CEB2DE4B06CFEFFD7E041200F73D1A65D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246735   (459231) от 12.09.2018
+
+В. А. Потапчук | Искусство и религия: ценности подлинные и мнимые (1985) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Каковы особенности отражения мира, сущности человеческой жизни в искусстве и религии? Чем отличается религиозное переживание от эстетического? На эти и некоторые другие вопросы соотношения искусства и религии автор дает ответ на основе анализа достижений советской литературы и искусства, данных социологических исследований, проведенных на территории республики.
+ (   Читать дальше...   )Жанр: История, политология, религиоведение, искусствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DBC56A4533F78D36ED4D8706535BCDA3F3E9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246898   (459229) от 12.09.2018
+
+Благовест (изд.) | Молитвенное последование с каноном покаянным о грехе убийства чад во утробе (аборте) (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Нет греха, как бы он ни был велик, побеждающего человеколюбие Божие, если мы раскаиваемся в нём. Никогда Бог не отвергает искреннего покаяния, но даже если бы кто дошёл до самой крайней порочности, а потом попросил прощения, и того Он принимает, и приближает к Себе, и делает всё, чтобы привести его в лучшее состояние. Если Он видит, что мы обратились к добродетели, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA4C6E7BDC712C608CB898A9E6B5B5681543D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321456   (458952) от 24.08.2019
+
+Д.С. Чунтонов (сост.) | О молитве (2017) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В брошюре «О молитве» представлены фрагменты творений святых угодников Божиих, подвижников благочестия, а также из древних патериков, посвящённые молитве.
+
+«Молитва есть важнейшее из всех дел человека христианина. Все прочие дела его малы и ничтожны, совершенно ничтожны по сравнению с делом и трудом молитвы».
+Святитель Лука (Войно-Ясенецкий)Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D122ACF8400139DF6A668B9549C5C44F7941CB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942176   (456092) от 30.09.2015
 
 Л. Н. Великович и др. (ред.) | Религия и церковь в современную эпоху (1976) [DJVU]
@@ -6,7 +114,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454935.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453785.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451885.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451884.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -485,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -542,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -568,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -580,113 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1B18DF6DCFA9EA5B9F67D286E3E5C673F0BAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061269   (450605) от 09.10.2016
-
-Никодим Павлович Кондаков | Русская икона [Комплект из 2 книг и 2 альбомов с репродукциями] (2004) [PDF, JPG]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никодим Павлович Кондаков – русский историк византийского и древнерусского искусства, академии Петербургской АН (1898), действительный член петербургской АХ (1893).
-Здесь представлено репринтное издание его знаменито труда о русской иконописи, в котором Н.П. Кондаков свел воедино громадный запас своих знаний — результат тридцатилетнего изучения иконописного искусства. (   Читать дальше...   )Жанр: ИконографияФормат: PDF, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAF40121BB6C88CEE9811AA82FA9D126AD13EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163469   (450473) от 05.09.2017
-
-Жизнь с Богом (изд.) | Томос Агапис (1996) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит письма и документы, которыми обменивались Римская и Константинопольская Церкви в 1958-1971 гг.
-
-Первое издание этого сборника было осуществлено смешанной католическо-православной комиссией, благодаря поддержке Патриарха Афинагора I и Папы Павла VI, с целью свидетельствовать о желании видимого единства Церкви.Жанр: Сборник писемФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F825DAF12879A6BCB4E0E710A1958B3939247168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163475   (450469) от 05.09.2017
-
-В.М. Кириллин (ред.) | Сборник материалов научно-богословской конференции кафедры филологии Московской духовной академии, посвященной памяти профессора МДА М. М. Дунаева «Та ...
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конференция «Таинство слова и образа» кафедры филологии МДА, посвященная памяти профессора МДА М. М. Дунаева († 2008 г.) состоялась 30 сентября 2016 года. М. М. Дунаев долгие годы читал в Академии курсы как по религиозному осмыслению русской классической литературы, так и по истории христианского искусства, чем и обусловлена тематика конференции, в работе (   Читать дальше...   )Жанр: Сборник статейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A955F42B689C7EAAFE463F7F9BC4342216936C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943309   (449585) от 03.10.2015
-
-Алексей Петрович Лебедев | Церковная история в свете Предания. Исследования по истории древней Церкви (2005) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_449585.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередной том церковно-исторических сочинений выдающегося русского историка Церкви, профессора Московской Духовной академии, заслуженного профессора Московского университета А. П. Лебедева (1845 - 1908) под общим названием "Церковная история в свете Предания" вошли исследования и статьи по истории древней Церкви. Основные темы сборника: арианские споры (   Читать дальше...   )Жанр: История ЦерквиФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA23525ADC97AAEE6953CAE3D69ACC8C5FA7382B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1229658   (624210) от 07.06.2018
+
+Кафе на Садовой (2017) WEB-DLRip [H.264/720p-LQ] (серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Три женщины, три истории. Все они разные и по возрасту, и по характеру, у каждой из них есть своя тайна. Ольга, Ника и Валентина работают в «Кафе на Садовой» и мечтают о женском счастье. Ольга, отсидев вместо мужа тюремный срок, пытается вернуть своего сына, которого муж-предатель отдал под опеку в другую семью. Валентина не может признать, что за вечным противостоянием (   Читать дальше...   )Производство: Украина / "Media Project Group"Жанр: мелодрамаРежиссер: Кристина СиволапАктеры: Антон Сёмкин, Марина Куклина, Олеся Гаевая, Леся Самаева, Сергей Коршиков, Алексей Сморигин, Владимир Заец, Владимир Захаренков, Федор Гуринец, Александр СоколовЯзык озвучки: русскийПродолжительность: ~00:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8686907C2DE93267EB7AF464E32092A0A8362B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295418   (620485) от 12.04.2019
+
+Артист (2019) WEBRip (сезон 1, серии 1-8 из 8)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой картины – актер Максим Нестеренко, который играет копов в сериалах. Он вечно на вторых ролях, берется за любой проект, лишь бы заработать какие-то деньги, и знает, что выше головы ему уже не прыгнуть. С личной жизнью у Макса тоже не очень. Он в разводе с бывшей женой Мариной, а теперь еще его нынешняя девушка – «восходящая звезда» Снежана – изменила (   Читать дальше...   )Производство: Украина / Украинская продакшн студияЖанр: криминал, мелодрамаРежиссер: Анатолий МатешкоАктеры: Михаил Гаврилов, Евгения Лоза, Александр Пожарский, Константин Данилюк, Иван Залуский, Вячеслав Василюк, Арсен Босенко, Егор Герасимов, Роман Халаимов, Ирина Новак и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2FE5E610D5A3939A7A2FE633661EC3B84EFA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145538   (617865) от 27.06.2017
+
+Смальков. Двойной шантаж (2008) SATRip (серии 1-8 из 8)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Офицер Смальков возвращается! Теперь он работает в министерстве чрезвычайных ситуаций. И в его настоящей жизни таких ситуаций намечается множество. Его безумная любовь к Эвелине переросла не только в крепкую семью, но стала поводом появления на свет еще одной жизни.
+В гражданской жизни бывшая буфетчица быстро нашла применением собственным талантам: она стала успешной (   Читать дальше...   )Производство: УкраинаЖанр: комедияРежиссер: Владислав Николаев, Кира АнгелинаАктеры: Игнатий Акрачков, Мария Аронова, Амаду Мамадаков, Дмитрий Ермилов, Сергей Габриелян и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F6ABC11BA09EEE514D62B4A598349848236B12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146201   (615945) от 28.06.2017
 
 Встречная полоса / Зустрічна смуга (2017) WEBRip (серии 1-16 из 16)
@@ -6,7 +85,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603990.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603562.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574091.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521098.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56C46A5B10850DA7F76D5CDC92A5BBCEF7966038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318027   (497457) от 04.08.2019
-
-Тот, кто не спит / Той, хто не спить (2017) WEBRip (сезон 1-2, серии 1-32 из 32)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета нового сериала — экстравагантная, довольно разношерстная, но сплоченная команда частных детективов. Они берутся за необычные дела, которые не в силах расследовать официальные структуры. Порой их расследования открывают весьма неожиданные тайны, за которыми кроются не только преступления. Этих детективов сложно удивить, ведь они и сами не совсем обычны (   Читать дальше...   )Производство: Украина / Продакшн-студия Accel Time ProductionЖанр: детектив, фантастикаРежиссер: Евгений Баранов, Валерий РожкоАктеры: Кирилл Дыцевич, Олеся Фаттахова, Александр Яцко, Олег Савкин, Ирина Мельник, Фёдор Гуринец, Юлия Гершаник, Анастасия Иванова, Лада Брик, Павел Москаль и др.Язык озвучки: русскийПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0B4457D22A9F09787EA7E18E79DA849F51418D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318206   (490371) от 08.08.2019
-
-Слуга народа (2015,2017,2019) WEB-DLRip [H.264] (сезоны 1-3 из 3, серии 1-51 из 51)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что будет, если президентом станет обычный человек из народа? Новый, честный, принципиальный и, самое главное, — умный человек. Именно эти мысли однажды сподвигли народ избрать президентом простого учителя истории Василия Голобородько… Неожиданно для всех страна получила гаранта, который живет в обычной квартире. Который спокойно идет по улице без армии охранников (   Читать дальше...   )Производство: Украина, студия «Квартал-95»Жанр: комедияРежиссер: Алексей КирющенкоАктеры: Владимир Зеленский, Анна Кошмал, Наталия Сумская, Виктор Сарайкин, Екатерина Кистень, Станислав Боклан, Евгений Кошевой, Александр Пикалов, Юрий Крапов, Елена КравецЯзык озвучки: русский, украинскийПродолжительность: 19 х 01:10:00 (см. в описании о компоновке эпизодов)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C620CE986878C8BD0F9388CD9F99A87F4158D715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159560   (483636) от 20.08.2017
-
-Нити судьбы (2016) WEBRip (серии 1-40 из 40)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483636.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о двух сёстрах, которые после смерти родителей оказались в разных семьях. Катя выросла в доме родного деда в богатстве и благополучии, в то время как её младшая сестра Ольга – в крайней бедности и лишениях. Оля попала под колёса машины и потеряла память. А водитель, чтобы скрыть преступление, взял девочку в свою семью на правах «приживалки» и дал ей новое (   Читать дальше...   )Производство: Украина / Компания "FILM.UA"Жанр: мелодрамаРежиссер: Александр Тименко, Мария Ткачёва, Ева СтрельниковаАктеры: Мила Сивацкая, Евгения Розанова, Денис Васильев, Анна Адамович, Олег Гаас, Валерий Афанасьев, Ольга Сумская, Кирилл Жандаров, Дмитрий Суржиков, Олеся Жураковская и др.Язык озвучки: русскийПродолжительность: ~ 00:44:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D87917DACF2CAB099EA90C2944B0430A73503E
 ```
 
 https://mybot314.ru/tekegram_catalog/

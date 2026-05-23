@@ -1,3 +1,55 @@
+###  Публикация: 1294208   (623734) от 10.04.2019
+
+Леденящие душу приключения Сабрины / The Chilling Adventures of Sabrina (2019) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-9 из 9) OMSKBIRD [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Обновленная версия приключений маленькой ведьмы Сабрины в виде тёмной истории взросления с элементами хоррора, оккультизма и ведьмовства. Сабрина пытается найти себя истинную между своими натурами смертной и ведьмы, при этом ей придётся противостоять злым силам, которые угрожают ей, её семье и всему миру людей.Производство: СШАЖанр: ужасы, фэнтези, триллер, драма, детективРежиссер: Роб Шейденгланц, Мэгги Кили, Ли Толанд КригерАктеры: Кирнан Шипка, Росс Линч, Люси Дэвис, Чэнс Пердомо, Мишель Гомес, Джаз Синклер, Тати Габриэль, Аделин Рудольф, Ричард Койл, Миранда Отто и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: русские, английскиеПродолжительность: ~01:00:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF425E4D8C8AB12AB92C12F043DDB68E03D11C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035885   (622137) от 19.07.2016
+
+Очень странные дела / Загадочные события / Stranger Things (2016) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) ColdFilm [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главное действие нового телевизионного сериала разворачивается в 80-х годах на территории тихого провинциального города. Благоприятное течение местной жизни нарушает загадочное исчезновение подростка по имени Уилл. Выяснить обстоятельства дела, полны решимости родные мальчика и местный шериф. Также события затрагивают лучшего друга Уилла – Майка. Он начинает собственное (   Читать дальше...   )Производство: США / 21 Laps Entertainment, Monkey Massacre, NetflixЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Мэтт Даффер, Росс Даффер, Шон ЛевиАктеры: Вайнона Райдер, Дэвид Харбор, Кара Буоно, Милли Бобби Браун, Наталия Дайер, Чарли Хитон, Калеб МакЛафлин, Ной ШнаппПеревод: Двуголосый любительский - ColdFilmЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серияРеклама: присутствуют аудио, видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54E316F4EED2B7BD37117153973A84C95580801
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127335   (621220) от 25.06.2017
 
 Фарго / Fargo (2017) WEB-DL [H.264/720p-LQ] (сезон 3, серии 1-10 из 10) NewStudio [AD]
@@ -6,7 +58,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620495.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619793.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617768.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614138.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592672.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583953.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CAEEFC8132F7899D7BEF98CA78FDE02A2D02234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301152   (575866) от 19.05.2019
-
-Падение Ордена / Knightfall (2019) WEBRip [H.264/720p-LQ] (сезон 2, серия 1-8 из 8) JimmyJ [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается вокруг самой драгоценной и загадочной реликвии христианства — Святого Грааля, бесследно утерянного в результате падения города Акры, последнего оплота тамплиеров. Существование Ордена теперь под угрозой и зависит от того, будет ли найден Кубок Христа. На поиски Грааля отправляется предводитель тамплиеров — храбрый воин сэр Лэндри, (   Читать дальше...   )Производство: США / A+E Studios, Midnight Radio, Stillking FilmsЖанр: Боевик, драма, приключенияРежиссер: Дуглас Маккиннон, Метин Хусейн, Дэвид ПетраркаАктеры: Том Каллен, Падрейк Делани, Саймон Мерреллс, Оливия Росс, Джулиан Овенден, Эд Стоппард, Сабрина Бартлетт, Бобби Шофилд, Сара-Софи Бусснина, Нассер Мемарзиа и др.Перевод: Двуголосый любительский (JimmyJ)Субтитры: ОтсутствуютПродолжительность: ~00:45:00Реклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8922357B233F805393725A06AF8EFBD1B84CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301151   (575744) от 19.05.2019
-
-Падение Ордена / Knightfall (2019) WEBRip [H.264/1080p-LQ] (сезон 2, серия 1-8 из 8) JimmyJ [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие сериала разворачивается вокруг самой драгоценной и загадочной реликвии христианства — Святого Грааля, бесследно утерянного в результате падения города Акры, последнего оплота тамплиеров. Существование Ордена теперь под угрозой и зависит от того, будет ли найден Кубок Христа. На поиски Грааля отправляется предводитель тамплиеров — храбрый воин сэр Лэндри, (   Читать дальше...   )Производство: США / A+E Studios, Midnight Radio, Stillking FilmsЖанр: боевик, драма, приключения, историяРежиссер: Дуглас Маккиннон, Метин Хусейн, Дэвид ПетраркаАктеры: Том Каллен, Падрейк Делани, Саймон Мерреллс, Оливия Росс, Джулиан Овенден, Эд Стоппард, Сабрина Бартлетт, Бобби Шофилд, Сара-Софи Бусснина, Нассер Мемарзиа и др.Перевод: Двуголосый любительский (JimmyJ)Субтитры: ОтсутствуютПродолжительность: ~00:45:00Реклама: присутствуют видео, аудио, текстовые вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588CBCBBDA480C7AFA82096E890A8C0D820066FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,31 +1,3 @@
-###  Публикация: 460830   (79472) от 01.03.2012
-
-[PSP] Harvey Birdman: Attorney at Law [Русский (текст)] (2008)
-
->>Консольные Игры
->>PSP
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harvey Birdman: Attorney At Law - новая комедийная судебно-процессуальная адвенчура по мотивам популярного мультсериала с Cartoon Network про неудавшегося супергероя, подрабатывающего юристом...
-Магистр юридических наук Харви Бердман - герой одного из входящих в ночной программный блок Adult Swim (абсурдистский юмор, мультики для взрослых, аниме) мультсериалов, посвященного жизни адвокатской конторы "Себбен и Себбен", укомплектованной супергероями из бюджетных мультиков шестидесятых годов, в невероятном количестве производившихся студией Hanna-Barbera. "Анимированную приключенческую игру" по мотивам разработала компания High Voltage Software, сделавшая последнюю, трехмерную серию квеста про Ларри Лаффера Leisure Suit Larry: Magna Cum Laude.
-Маска, крылья, и строгий серый костюм с красным галстуком - вот обличье игрока на протяжении пяти основанных на событиях мультика судебных тяжб... Требуется осматривать места преступления, собирать пропущенные полицией улики, опрашивать свидетелей - героев (   Читать дальше...   )2008Жанр: ПриключенияЯзык интерфейса: Русский (текст)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EABFAD95AB16AE4BD019BFF17A91C2C12C9A95C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456896   (78021) от 23.02.2012
 
 [Xbox360] Hasbro Family Game Night 4 (PAL) [ENG] [KINECT] (2011)
@@ -34,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -63,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -118,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -174,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -200,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -226,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -253,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -280,7 +252,7 @@ Surf's Up [XBOX360] [Ru] [GOD] [Freeboot] (2007)
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -308,7 +280,7 @@ SPRay [Wii] [NTSC] [ENG] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75727.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -334,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -360,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -387,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -418,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -444,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_72685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -478,7 +450,7 @@ Worms Collection (2012) [PS3] [USA] 4.40 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -504,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64428.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -534,7 +506,7 @@ Warhawk (2007) [PS3] [EUR] СFW Evilnat 4.91 [License] [Ru]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -560,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -587,7 +559,7 @@ Super Mario 64 HD (1996) [PS3] [EUR] CFW Evilnat 4.91 [Unofficial] [PT]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54516.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -613,7 +585,7 @@ New Super Mario World (1990) [PS3] [EUR] CFW Evilnat 4.91 [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -639,7 +611,7 @@ Comix Zone (1995) [PS3] [EUR] CFW Evilnat 4.91 [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -665,7 +637,7 @@ The Legend of Zelda: Echoes of Wisdom (2024) [Switch] [USA] 18.1.0 [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -691,7 +663,7 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42489.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -702,6 +674,32 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56F3E486CE779EFFE42C948FB76B8E591F6B67CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756825   (39532) от 23.10.2024
+
+Сборник русифицированных игр Dendy (1983-2021) [NES] [Famicom] [EmuELEC] [ALL] [Repack] [Ru/Multi]
+
+>>Консольные Игры
+>>Ромы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Dendy (рус. Де́нди) - серия домашних игровых приставок, неофициальный аппаратный клон Famicom третьего поколения от Nintendo. Dendy выпускалась компанией Steepler с конца 1992 года и собиралась на Тайване из китайских комплектующих. В основном она продавалась в России и странах постсоветского пространства. Производственная сборка расширилась и стала осуществляться (   Читать дальше...   )Тип издания: RepackРазработчик: РазныеЖанр: AllЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0849697D3FA7CFA2847D33609765E0BD4467E101
 ```
 
 https://mybot314.ru/tekegram_catalog/

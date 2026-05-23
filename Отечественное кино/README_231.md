@@ -1,3 +1,107 @@
+###  Публикация: 1229389   (137229) от 31.12.2021
+
+Приходи на меня посмотреть (2000) WEB-DLRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Перед Новым годом окна огромного города светятся изнутри разноцветными елочными огнями. Кажется, что за каждым из этих окон осторожно хранят любимый праздник. Кажется, что за каждым из них ждут новогоднего исполнения желаний… К силуэту пожилой женщины за одним из окон старого московского дома соседи по двору наверняка привыкли как к чему-то неизменному. Софья Ивановна (   Читать дальше...   )Производство: РоссияЖанр: Мелодрама, комедияРежиссер: Михаил Агранович, Олег ЯнковскийАктеры: Олег Янковский, Ирина Купченко, Екатерина Васильева, Наталья Щукина, Марк Рудинштейн, Иван ЯнковскийСубтитры: ОтсутствуютПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A920E03D201F0837D0B7AE340EBA80442E4595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679449   (137176) от 25.11.2023
+
+Невеста с заправки (2014) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кассир заправки, мечтательная Оксана, с первого взгляда влюбляется в вице-президента банка - красавца Виктора. Случайно она спасает ему жизнь, и родственники «принца» принимают Оксану за его невесту. Девушка не в силах сказать правду, ведь семья возлюбленного отнеслась к ней как к родной, она не может разочаровать этих людей. К тому же очнувшийся Виктор из всех вспомнил (   Читать дальше...   )Производство: Россия, ООО "Ланд Синема"Жанр: мелодрама, комедияРежиссер: Игорь НурисламовАктеры: Екатерина Тарасова, Сергей Перегудов, Эра Зиганшина, Максим Радугин, Петр Журавлев, Ольга Белявская, Марго Адаева, Елена Купрашевич, Елена Мартыненко, Михаил Шеломенцев и др.Субтитры: отсутствуютПродолжительность: ~0:48:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBA30E8D7BDFBDC56E168B1513EF9E1DEF4D463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521111   (137137) от 31.12.2021
+
+Здравствуй, Дедушка Мороз! (2021) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Московского журналиста отправляют готовить репортаж о работе дедов морозов в новогоднюю ночь. Облачившись в костюм и бороду главного новогоднего волшебника, он попадает домой к мальчику Саше, которому обещает исполнить его желание — вернуть папу.Производство: Россия / Киностудия ОлимпЖанр: Комедия, семейныйРежиссер: Наталия КаленоваАктеры: Виктор Логинов, Юрий Гальцев, Александр Тютрюмов, Роман Петров, Дарья Румянцева, Светлана Смирнова-Марцинкевич, Ольга Кирсанова-Миропольская, Александр Алексин, Егор Бакулин, Татьяна ЯковенкоПеревод: Не требуется (KION)Субтитры: ОтсутствуютПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CD41A425C6FEEFE9852AE154D3E98ABC72E620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520903   (137087) от 31.12.2021
+
+Море волнуется раз (2021) WEB-DLRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Коля и Саша прячутся от всех в старом домике посреди леса. Они влюблены, и мир вокруг кажется им странным и чудесным. Но идиллию то и дело нарушают ночные кошмары. Саше снится, как ее накрывает огромной волной. Однажды ребята встречают загадочную супружескую пару, живущую по соседству. Мужчина и Женщина очень похожи на них самих. С их помощью молодые попробуют разобраться (   Читать дальше...   )Производство: Россия / PLAN 9Жанр: ДрамаРежиссер: Николай ХомерикиАктеры: Андрей Смоляков, Юлия Ауг, Ольга Бодрова, Валерий СтепановЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D69E1C2E31D39D647A672F13DF07ECE89FE47BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436503   (137078) от 31.12.2020
 
 С чистого листа (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137037.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136570.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -374,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_135294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135053.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134726.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -570,112 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B78AD511E672DC3B4CECA466B4B9512A2A469E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593954   (134643) от 24.12.2012
-
-Хочу ребенка (2009) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134643.jpg" />
-</div>
-
-
-###  Подробнее
-
-К своему сороковому дню своего рождения Валерия Устинова добилась немногого — она корректор в глянцевом журнале. Правда «цветы жизни» в ее жизни все-таки присутствуют: первый муж Руслан то и дело в «тренировочных целях» подбрасывает ей на воспитание свое потомство от второго брака. Поплакаться Лера может только единственной подруге Томе, которая решает сделать ей подарок — оплачивает годовой абонемент на посещение лучшего психоаналитика города Изольды Марковны. Изольда берется помочь героине. У нее есть спецпрограмма для проблемной пациентки: соблазнить редактора Царева и зачать ребенка…Жанр: МелодрамаРежиссер: Оксана БайракАктеры: Ольга Кабо, Лариса Удовиченко, Людмила Чурсина, Владимир Горянский, Макс Коновалов, Римма Зюбина, Сергей КомаровПеревод: Не требуется (Русский)Продолжительность: 01:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F897E794C1ABFB44622762D8C164122C3237FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680099   (134455) от 28.11.2023
-
-Побег из Таркова. Рейд (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский бoевик по шутеру Escape from Tarkov в духе S.T.A.L.K.E.R.
-Рассказ о борьбе частных военных компаний на территории города Тарков. Одни представляют интересы международной корпорации TerraGroup, ведущей там незаконную деятельность. Российская ЧВК BEAR направляет в город группу во главе со Скифом, чтобы найти пропавших коллег, чьей миссией был перехват информации (   Читать дальше...   )Производство: Россия / BattlestateЖанр: боевик, криминалРежиссер: Антон РозенбергАктеры: Матвей Зубалевич, Виктор Мищенчук, Михаил Солодко, Олег Савцов, Владимир Лукьянчиков, Кристина Александрова, Олег Руденко-Травин, Антон Лаврентьев, Сергей Масленников, Сергей ЛобановСубтитры: отсутствуютПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA08F80418DE15E6DA8F0FC862620D953738B9E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680251   (134446) от 28.11.2023
-
-Лёгкое знакомство (2023) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужчина и женщина знакомятся в курортном городе. Он — профессиональный психолог. Она — странная незнакомка, подошедшая к нему в ресторане.
-Кто она? Представительница древнейшей профессии или утонченная искательница приключений, действительно ли он ей понравился, или обаятельная красотка просто хочет заработать? Напоминающие психологический поединок отношения этих (   Читать дальше...   )Производство: Россия, Отдых МедиаЖанр: мелодрамаРежиссер: Александр КрестниковАктеры: Дмитрий Орлов, Лиза Климова, Дмитрий Колчин, Михаил Шамков, Ксения Чигина, Елизавета Летюк, Александр Токаревский, Анна Хвостова, Лев Комаров, Роман ПроскуряковСубтитры: отсутствуютПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5B1713939BE9A9BDED3A7692547B396AC84FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593669   (134372) от 24.12.2012
-
-Я желаю тебе себя (2012) SATRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой для счастья человеку не нужен успех или материальные блага, а хочется просто…другого человека, обожаемого и любимого. Любовь и чувства заставляют наш мир сконцентрироваться на одной персоне, которая кажется его центром, без нее наша жизнь теряет смысл, становится серой и мрачной. В этом случае человек забывает о себе, и все мысли одолевает лишь одна мечта - быть рядом с тем, кто тревожит сердце.Жанр: МелодрамаРежиссер: Станислав МареевПродюсер: Григорий БелкинАктеры: Елена Биккулова, Валерий Боровинских, Алексей Нилов, Михаил Ефремов, Анна Лутцева, Андрей ЗибровПеревод: Не требуется (Русский)Продолжительность: 01:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7034FED1D83D0DF88049081BBF364EA21FAD477B
 ```
 
 https://mybot314.ru/tekegram_catalog/

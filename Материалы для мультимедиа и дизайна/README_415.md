@@ -1,3 +1,346 @@
+###  Публикация: 1810393   (9320) от 04.08.2025
+
+Пресеты - Appleseed Photography - Appleseed Preset Collection [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Используйте эти пресеты в качестве первого шага в редактировании!Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F2C2736892EE18BC83AEACC85D0E812D5730658
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810433   (9303) от 04.08.2025
+
+Рамки - Pixelbuddha - Retro Film Frames Mockups - 3656 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Ничто не сравнится с текстурой старой плёнки — зернистостью, засветами, несовершенной красотой. Этот набор из 5 высококачественных PSD-макетов перенесёт ностальгию по аналоговым технологиям прямо в ваши проекты, облекая ваши изображения в богатую детализацию классических 35-мм и среднеформатных кадров. Каждый файл тщательно обработан смарт-объектами для быстрого (   Читать дальше...   )Формат: PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5C6063857D4E0FD5AC10A5CE6CA77CD04C9A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810508   (9234) от 05.08.2025
+
+Шрифты - Namik Mardakhaev - Sochinyala [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3B985746B3E027BD39ADF62C4AE1D73BF5F4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810662   (9229) от 05.08.2025
+
+Сборники - UI8 - InkJar People Illustrations - Pack 1 [AI, FIG, PDF, PNG, PSD, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+InkJar People Illustrations — это коллекция из 30 прекрасных иллюстраций, нарисованных от руки чернилами.Формат: AI, FIG, PDF, PNG, PSD, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4ABDD1169AAF748D5142A93D716ED1DD61EFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810626   (9214) от 05.08.2025
+
+Ui Kits - UI8 - Fodidi - Food Ordering Apps For UI Kits [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Fodidi — это набор UI-элементов для приложений заказа еды с современным стилем, содержащий более 40 высококачественных экранов (светлый и темный режимы) и адаптивные функции изменения размера для мобильных экранов (375 x 812 пикселей), готовые к использованию и готовые к началу вашего процесса проектирования.
+
+Набор UI-элементов заказа еды Fodidi совместим и без (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CE05497E3529B7FFED5DCE19805CC15D27AA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810592   (9208) от 05.08.2025
+
+Растровый клипарт - Adobe Stock - Vitamin D, Sun Bathing [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+32 стоковых фотографий из Adobe Stock. Оригинальные названия сохранены.Формат: JPGРазрешение файлов: 2500x1667 - 8615x5119
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997FF7E24CE6F2B41F7002C37957B4CB15813EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810594   (9204) от 05.08.2025
+
+Пресеты - REFINED Co - REFINED x Ali Harper [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Одна из немногих на рынке профессиональных коллекций пресетов и профилей для интерьерной, коммерческой, фуд-фотографии и стоковой фотографии.Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF453D6F409E8CB4F956A2042ACDBC2606E43992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810769   (9114) от 06.08.2025
+
+Паттерны - Envato - Painted Camo Spots - GBUG5PY [JPG, AI, SVG, EPS, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Бесшовный паттерн с нарисованными вручную пятнами.Формат: JPG, AI, SVG, EPS, PATРазрешение файлов: 7559x7559
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E4F4BA325BA1A4128D7D2BBDB2A59611B95E45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810747   (9113) от 06.08.2025
+
+Шрифты - Fontspring - Recht [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Recht — геометрический гротеск с большим вниманием к компенсации кривизны, занимающий промежуточное положение между классическими геометрическими гротесками и неогротесками. Семейство включает 10 начертаний с соответствующими курсивными вариантами, кириллическое письмо с включением украинской кириллицы и ряд функций OpenType.
+
+Шрифт Recht имеет закрытую апертуру (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE659D1B9D9C271683DC35E317D548468FB3AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810808   (9112) от 06.08.2025
+
+Шрифты - MyFonts - Heidrich Sans [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В 2017 году я работал над исследовательским проектом Bona Nova по оцифровке и расширению шрифта Bona, разработанного Анджеем Гейдрихом в 1971 году. Проект развивался, добавлялись новые шрифты, и тем временем, работая над айдентикой для Сената Польши, мы вместе с Лешеком Бельским и Анджеем Гейдрихом создали несколько символов для логотипа на основе Bona Nova в версии (   Читать дальше...   )Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574518904B2704F04D5DDBBE5FA74FED8EE2E26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810759   (9110) от 06.08.2025
+
+Пресеты - Danny Darlington & Sokratis Stefanidis - Master Collection [XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мы, Дэнни Дарлингтон и Сократис Стефанидис, два фотографа-портретиста из Германии, увлеченные историями и эмоциональными фотографиями. Для нас цветокоррекция — важнейший компонент передачи общей эмоциональности фотографии. Поэтому мы решили вместе разработать набор уникальных пресетов LR и PS, которые помогут привнести в ваши фотографии эмоции и ностальгию. Эти пресеты (   Читать дальше...   )Формат: XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B6B5D927F7D5DD4C1AB9ACF8D719147AE6FEE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810753   (9105) от 06.08.2025
+
+Звуковые библиотеки - Cinetools - Motion Picture: Atmospheres [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Motion Picture: Atmospheres  — ваш незаменимый помощник в кинематографических проектах, охватывающих широкий спектр жанров фэнтезиФормат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607F13D6291A13FB4AA88CC8A18CFEC87C2632E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810790   (9102) от 06.08.2025
+
+Шаблоны - Design Syndrome - Album Art Pack VOL.3 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+5 полностью настраиваемых PSD-шаблонов обложек.Формат: PSDРазрешение файлов: 3500x3500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FFB50AD8435C575BCF1719216A6FF98ED53E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810791   (9101) от 06.08.2025
 
 Ui Kits - UI8 - Synapz - AI Task Collaboration App UI KIT [FIG]
@@ -6,7 +349,7 @@ Ui Kits - UI8 - Synapz - AI Task Collaboration App UI KIT [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9094.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -218,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8810.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -244,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8802.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -271,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -297,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8794.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -323,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -334,352 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA39B5DABD0023EB6970149BC64FB2725FE185FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820950   (8617) от 29.09.2025
-
-Шрифты - Behance - frag TYPE - Kintaro Font - 198159521 [EOT, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kintaro - это наш новейший релиз, созданный на основе наших воспоминаний о часах, проведенных за игрой в Mortal Kombat, и он заставит вас постукивать по клавиатуре, чтобы увидеть каждый символ.
-Во многом вдохновленный боевыми аренами "МК", такими как печально известная "Яма", Kintaro так же резок и угловат, как и их изображения в низком разрешении (   Читать дальше...   )Формат: EOT, TTF, WOFF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58A25382C142370F547A0631ED5DE90A13A5FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820958   (8614) от 29.09.2025
-
-Шрифты - Typedepot - Alexander Nedelev - Corsa Grotesk [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corsa Grotesk - это наша собственная дань уважения двум гигантам типографики: шрифтам Futura и Avenir. В его дизайне учтена геометрическая простота, хорошо сбалансированные штрихи и современные штрихи. Широкие пропорции и высота по оси x с более современными деталями - одноэтажная буква "а" и горизонтальная буква "к", являющиеся лишь двумя из (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8CEC50EEF1CB5BCBCABB90D2147C95A0034571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820969   (8588) от 30.09.2025
-
-Шрифты - Dprofile - Софья Орлова - Железная Дева - Mod By He Rez AD [TTF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deva_Zheleznaya - это акцидентный гротеск с индустриально-архаичной основой. Вдохновлен старославянской вязью, руническим письмом и советским конструктивизмом.Формат: TTF, WOFF2Поддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E22B39DD8262635453211CC1EA51A4290B13CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820994   (8574) от 30.09.2025
-
-Шрифты - Behance - Roma Mashinist - Wild Rune - 235293179 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный рунический шрифт для вашего творчества.Формат: OTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F6DCF06D4BC4E858856C72B1040D2F16D0E840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820997   (8572) от 30.09.2025
-
-Шрифты - Behance - Claudia Lopez - Nasston Regular Font - 235288485 [TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Naston Typeface - это футуристический шрифт без засечек с плавными геометрическими формами, закругленными углами и современной научно-фантастической эстетикой.
-Naston Regular отличается элегантностью и универсальностью, что делает его подходящим для всего: от официальных приглашений и бизнес-презентаций до творческих проектов. Тщательно продуманные формы букв обеспечивают (   Читать дальше...   )Формат: TTF, WOFFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA20657BC6C9D503C34B75843A5C50C27511526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821001   (8571) от 30.09.2025
-
-Шрифты - Behance - Daniił Jakowlew - OldNewspaper Types Extended - 235041583 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8571.jpg" />
-</div>
-
-
-###  Подробнее
-
-OldNewspaper Types Extended - это винтажный шрифт с засечками, который воссоздает грубое, несовершенное очарование старого шрифта. Его слегка неправильные формы букв имитируют текстуру чернил, вдавленных в потертую бумагу, что создает атмосферу газет начала 20-го века и рукописного набора.Благодаря своему смелому оформлению и строгой эстетике, OldNewspaper Types (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41EE896BB993E63B037474032539083786D4A517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821015   (8563) от 30.09.2025
-
-Шрифты - GGBotNet - Zector [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моноширинный шрифт.
-Шрифт Zector содержит 1016 символов только в верхнем регистре.
-Поддержка 135 языков.
-Лицензируется по лицензии SIL Open Font License, версия 1.1.(   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31DEBA8B003D8917F79EEA0609D8BEFEB755AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821038   (8543) от 30.09.2025
-
-Шаблоны - Glass Morphium mockups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция шаблонов "карточек" со стеклянным эффектом для вашего творчества.Формат: PSDРазрешение файлов: 4000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030563BABCF59594E27A096B17EEEF2CB9CCB3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811843   (8288) от 12.08.2025
-
-Шрифты - isaovskaya - Cvetochek [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C1D0332BA703DEB94266869E1F8A1832C2BF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811842   (8287) от 12.08.2025
-
-Шрифты - isaovskaya - Musinka [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E596EFD0011D5BAC6CC526AC2EC55059EEBAEA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811841   (8286) от 12.08.2025
-
-Шрифты - isaovskaya - lapochkin shrift [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFBC5944219951B86722C44F9F1441AA1EF9D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811844   (8280) от 12.08.2025
-
-Шрифты - isaovskaya - Inki [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36D37A1FAC491BC552D26A71DFD868BDAD002E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630602   (8194) от 13.08.2025
-
-WordPress plugin - Elementor PRO 3.21.3 [PHP, SVG, CSS, JS]
-
->>Материалы для мультимедиа и дизайна
->>Web-дизайн и шаблоны сайтов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_8194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elementor - это современный визуальный конструктор без ограничений. Его можно использовать с любой темой WordPress.
-
-- С помощью конструктора Elementor можно создавать профессиональные продающие, подписные и посадочные страницы.
-- Elementor работает как с родными типами контента WordPress, так и с произвольными типами записей.(   Читать дальше...   )Формат: PHP, SVG, CSS, JS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42EAD1C5345DCA241D317ACE5E0E2C63A998D7D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

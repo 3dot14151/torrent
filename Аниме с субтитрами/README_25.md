@@ -1,3 +1,107 @@
+###  Публикация: 865507   (913212) от 02.02.2015
+
+Memories Off | Забыть прошлое [2001, OVA, 3 эп.] DVDRip 480p raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Томоя, студент колледжа, пережил в недавнем прошлом тяжелую потерю - его девушку сбила машина. Томоя винит в произошедшем себя. Если бы он не забыл в тот день зонтик, Аяке не пришлось бы бежать к колледжу что бы принести ему его. Он пытается отвлечься, но снова и снова, стоит закрыть глаза, как перед ним предстает Аяка. Три овашки - три истории Томоя найти новую (   Читать дальше...   )Производство: EasyfilmЖанр: драма, романтикаРежиссер: Ёкота КадзуСубтитры: русские отФормат: DVDRipПродолжительность: 3 эп., 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C003572F4D19F43F7AC520AB0BA2FF1AB2E92181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 865521   (913151) от 02.02.2015
+
+Memories Off 2nd | Memories Off 2 | Забыть прошлое 2 [2003, OVA, 3 эп.] DVDRip 720p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Ширакава Хотару пианистка. Она очень любит играть на фортепиано, а так же у нее есть любимый, Инами Кен, она настолько влюблена что готова бросить обожаемое фортепиано ради любимого. Он же обычный простодушный, добрый парень, в один дождливый день отдал незнакомой девушке свой зонт, а та в него влюбилась…. И кто бы мог подумать что она лучшая подруга (   Читать дальше...   )Производство: Picture Magic & RikuentaiЖанр: драма, романтикаРежиссер: Окао ТакахироСубтитры: русские отФормат: DVDRipПродолжительность: 3 эп., 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84C75B538C17EB5EFA5B8B0905F5F0E5B4F43A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989938   (912983) от 24.02.2016
+
+High School DxD Born | Демоны старшей школы [ТВ-3] [2015, TV + OVA, 12 + 1 + 6sp] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Иссэй Хёдо счастлив – дом стал дворцом, отныне в его гареме вся женская часть клуба оккультизма академии Куо во главе с очаровательной Риас Гремори, принцессой подземного мира. Но мудрый учитель, он же глава падших ангелов Азазель, объяснил юному демону, что этого мало – надо изучать своих девушек, отслеживать их поведение, решать возникшие проблемы. (   Читать дальше...   )Жанр: приключения, комедия, эттиРежиссер: Янагисава Тэцуя / Yanagisawa Tetsuya / 柳沢テツヤПродолжительность: 12 эпизодов по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B232C5FC7E7ED3B6A95EA0D23904E0D43F7226D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368357   (910897) от 19.03.2020
+
+Kemeko Deluxe! | Кемеко Делюкс! [2008, TV, 12 из 12] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Когда бочкообразный пухлый экзоскелет, напоминающий сплюснутую матрёшку, украшенную свадебным платьицем с фатой, вламывается к вам в окно и из авиационного пулемёта расстреливает ватагу набегающих крабообраных роботов, лучше не спрашивать: «А вы, собственно, кто?», ибо в ответ можно получить бодрое «А я твоя невеста!»Производство: Студия Hal Film Maker / ハルフィルムメーカーЖанр: приключения, комедия, эттиРежиссер: Мидзусима ЦутомуПеревод: Kain; Stan WarHammerЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49691B4C8BDCEDA8952074BDD7CA01F9BB07ED8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038783   (910176) от 29.01.2017
 
 Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, путешествующие во времени: Мари, Вака и 8 учёных [2016, TV, 12 эп.] HDTV 720p raw
@@ -6,7 +110,7 @@ Time Travel Shoujo: Mari Waka to 8-nin no Kagakusha-tachi | Девушки, пу
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +138,7 @@ Altered Carbon: Resleeved | Видоизмененный углерод [2020, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Hetalia: World Stars | Хеталия: Мировые звёзды [2021, Web, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908213.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +190,7 @@ Sekai Seifuku: Bouryaku no Zvezda / World Conquest Zvezda Plot / Покорен�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +216,7 @@ Heroic Age / Героический Эйдж [2007, TV, 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -145,7 +249,7 @@ Ghost Sweeper GS Mikami / Ghost Sweeper Mikami / Миками - истребит
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_905762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -177,7 +281,7 @@ Carole & Tuesday | Кэрол и Тьюсдей [2019, TV, 24 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -203,7 +307,7 @@ Akanesasu Shoujo | The Girl in Twilight | Девушка в багряных с�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -229,7 +333,7 @@ Uchi no Ko no Tame Naraba, Ore wa Moshikashitara Maou mo Taoseru Kamo Shirenai. 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905375.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -255,7 +359,7 @@ Isekai Shokudou | Restaurant to Another World | Кафе из другого м�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905246.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -281,7 +385,7 @@ Hashiri Tsuzukete Yokattatte. | Хорошо, что я продолжил бе�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -308,7 +412,7 @@ Fukuyama Gekijou: Natsu no Himitsu | Театр Фукуямы: Летний с�
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903664.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -335,7 +439,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -361,7 +465,7 @@ Tsugumomo (2020) | Цугумомо OVA [2020, OVA, 1 эп.] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -387,7 +491,7 @@ Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -413,7 +517,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -439,7 +543,7 @@ Macross FB7: Ginga Rukon - Ore no Uta o Kike! / Макросс ФБ7: Блужд
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -466,7 +570,7 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -492,7 +596,7 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -518,7 +622,7 @@ Uchi Tama?! Uchi no Tama Shirimasenka? | Uchitama?! Have You Seen My Tama? | Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -546,7 +650,7 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -573,7 +677,7 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -584,111 +688,6 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F845A989D7C6D5173A34D863AFA4449821501A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350620   (901141) от 24.03.2020
-
-Eizouken ni wa Te o Dasu na! | Keep Your Hands Off Eizouken! | Руки прочь от киноклуба! [2020, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир аниме поразителен. Асакуса с детства мечтает создавать аниме, но, к сожалению, в одиночку ей не справиться. Хотя бы потому, что концепт-арты и задники у нее получаются гораздо лучше, чем люди. Но вот судьба случайно сводит ее с Цубамэ, которая тоже хочет стать аниматором вопреки желанию родителей, которые запрещают ей даже вступать в мульткружок. Асакуса, её (   Читать дальше...   )Производство: Студия Science Saru / サイエンスSaruЖанр: приключенияРежиссер: Юаса МасаакиПеревод: официальный (CruncheRoll); SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D70C59656AB16F4A3B35F6DAB06352D69A49AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760082   (900772) от 09.02.2015
-
-Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 12 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ёму – древние демоны и обитатели духовного мира. Кое-кто из «высших» вообще неотличим от человека, большинству же до нас нет дела. Встречаются и агрессивные особи, с которыми издавна разбираются защитники человечества. Охотники живут кланами, причем у каждого рода свои способности и боевые стили, собственные власть и влияние. При этом Охотники, Чистильщики и Оценщики, все, кто действует за гранью реальности, стараются скрыть свое существование от обычных людей, для которых отзвуки магических битв – что далекая (   Читать дальше...   )Жанр: приключения, мистикаРежиссер: Исидатэ ТайтиПродолжительность: 12 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5B2697EA981FB50017534B6AE6190E27FC3326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637633   (900134) от 31.03.2013
-
-Kikou Ryouhei Mellowlink / Armor Hunter Mellowlink / Бронебойщик Меллоулинк [1988, OVA, 12] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Месть. Чувство, которое, наверняка, испытал каждый человек. Месть делает человека сильным, превращая его в орудие отмщения.
-Главный герой – бывший солдат Mellowlink Aliti знает о мести не понаслышке. Ведь месть, это то, чем он живет, и нет ему покоя, пока месть не свершится. Он будет мстить, мстить и еще раз мстить людям, обрекшим его боевых товарищей на гибель. (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Канда ТакэюкиСубтитры: RUSПродолжительность: 12 эп., 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CAE367F64BB0167006E8C1C16B4D8224978D52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968423   (898802) от 04.02.2017
-
-Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 1080p hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир RPG с мечами и волшебством, где авантюристы решили бросить вызов праву короля демона управлять. У всех красивая грудь, огромная грудь и броня бикини!Производство: FeelЖанр: приключения, эттиРежиссер: Кудзуя НаоюкиЯзык субтитров: Английский (отключаемый), Русский (отключаемый)Продолжительность: 13 серий по 5 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60AD7C4A5F2C00941F7D9DE4F52C6F0302A770A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

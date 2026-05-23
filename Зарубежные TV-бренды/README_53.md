@@ -1,3 +1,56 @@
+###  Публикация: 1141250   (644709) от 13.06.2017
+
+BBC: Viasat History. Бразды правления. Балет на лошади / Lucy Worsley's Reins of Power: The Art of Horse Dancing (2015) HDTV [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Доктор Люси Уорсли разбирается в истории выездки, от первых шагов при дворах 17 века до современных школ верховой езды.
+Теперь, если это звучит безумно но лошадиный балет или манеж когда-то были самыми благородными занятиями, которые практиковали все аристократы от придворных до короля в первой половине 17-го века дабы лишний раз продемонстрировать свое величие. (   Читать дальше...   )Производство: Великобритания, Million Media Linited for BBCЖанр: Документальный, историяРежиссер: Ник Гиллам-СмитПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EEBF1642C2990F6BAB6902C56E7044A6EA4C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227367   (644609) от 27.05.2018
+
+Могилы викингов / Viking Dead (2018) DVB [H.264/720p-LQ] (Серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Невероятный "потерянный" флот викингов, как пятьдесят четыре грабителя-викинга встретили свою жуткую смерть? Тим Сазерленд и команда археологов узнают об этих и других кровавых реалиях нападений викингов.Производство: Великобритания, Like a Shot EntertainmentЖанр: Документальный, история, археология, исследованияРежиссер: Джереми ФристонПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 5x~00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B101E96350CCDD43FF8FCF83A705106489BEF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032647   (643683) от 08.07.2016
 
 Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/720p-LQ] (Сезон 16, эпизод 07) [IdeaFilm]
@@ -6,7 +59,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643683.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +85,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +111,7 @@ BBC: Солнечные бури: угроза планете Земля? / Sola
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +137,7 @@ Discovery: Утраченный символ. Секреты тайного бр
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +163,7 @@ Discovery. Вселенная Ultra HD / Space's Deepest Secrets (2016) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +189,7 @@ History Channel.  History: Эволюция. Битва за жизнь /  Evolv
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +215,7 @@ NGW: Прекрасная Америка: На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +241,7 @@ NG. Фри-соло / Free Solo (2018) HDTV [H.264/1080i-LQ] [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +267,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +293,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +319,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +345,7 @@ NG. Тайны истории. Человек в железной маске / M
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +371,7 @@ NG. Тайны истории. Леонардо да Винчи / Mystery Files.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +397,7 @@ NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +423,7 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +449,7 @@ NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +475,7 @@ Discovery: Бесстрашная планета (6 серий) / Fearless Plane
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +505,7 @@ NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +531,7 @@ Viasat History: Загадка исчезновения неандертальц
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +557,7 @@ Animal Planet. Аквариумный бизнес / Tanked (2011-2014) SATRip, 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -530,7 +583,7 @@ National Geographic. Смертельный бой динозавров / Dino D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639533.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -556,7 +609,7 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -582,7 +635,7 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638985.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -608,7 +661,7 @@ Animal Planet: Живой или вымерший. Додо Севера / Extin
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,58 +672,6 @@ Animal Planet: Живой или вымерший. Додо Севера / Extin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24501E72F1FF49070B6F6CF72F6511DC0CBF90EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282471   (638833) от 02.04.2019
-
-NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.264/1080i-LQ] (сезон 2, серия 1-6 из 8) (Обновляемая)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638833.jpg" />
-</div>
-
-
-###  Подробнее
-
-В уникальном документальном фильме о самых опасных хищниках Африки, речь пойдет о совершенных убийцах: львах, леопардах, диких собаках и вездесущих гиенах, которые не оставляют шансов выжить своим жертвам.Производство: США, Plimsoll Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDE696786C42EB7710129A6D75A5DBB77ACC396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519130   (638641) от 05.07.2012
-
-DV: Галилео Галилей - борьба за небо / Galileos Battle for the Heaven (2002) SATRip
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это было время раздоров в христианском мире. Боясь реформации, римская католическая церковь требовала безоговорочного соблюдения своих догм - расправляясь с инакомыслием руками инквизиции. В воздухе витал страх перед ересью. В эту неспокойную эпоху Галилео Галилей станет самым выдающимся ученным Европы. Он был абсолютно уверен в себе, он был блестящим писателем, обладал живым умом, если можно о ком-то сказать, что он создал современную науку, то это Галилей.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CECDA7582D174B2E36473F1F032DE464A1B7170
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1580312   (206830) от 01.10.2022
+
+Сборник клипов - Rock & Pop Ballads Часть 2 (2022) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сборника клипов, с которого всё началось. Мой осенний подарок всем, кому в это время года приходят в душу эмоции. Кому то грусть, кому то ностальгия, кто то стихи пишет, ну а кому то просто некогда и он в дороге. В сборник вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Ремастеринг (   Читать дальше...   )00. Rock & Pop Ballads 2 - Intro
+01. Rod Stewart - Rhythm Of My Heart
+02. Richard Marx - Right Here Waiting
+03. Рондо- Ну и пусть(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F8F312D0A6BBC7B994D9843A6ADFCAA02DF16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582143   (206409) от 08.10.2022
+
+Сборник клипов - Rock & Pop Ballads Часть 2 (2022) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение сборника клипов, с которого всё началось. Мой осенний подарок всем, кому в это время года приходят в душу эмоции. Кому то грусть, кому то ностальгия, кто то стихи пишет, ну а кому то просто некогда и он в дороге. В сборник вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Ремастеринг (   Читать дальше...   )00. Rock & Pop Ballads 2 - Intro
+01. Rod Stewart - Rhythm Of My Heart
+02. Richard Marx - Right Here Waiting
+03. Рондо- Ну и пусть(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28735A8C0BE73057B5DB4866CCF11D021852ED53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654770   (204977) от 22.08.2023
+
+Green Day - 21 Guns (2009) BDRip [H.264/1080p-LQ] [handmade Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/003/" />
+</div>
+
+
+###  Подробнее
+
+Green Day — американская рок-группа, образованная в городе Ист-Бэй  (англ.)рус. (Калифорния) в 1987 году вокалистом и гитаристом Билли Джо Армстронгом вместе с басистом и бэк-вокалистом Майком Дёрнтом. На протяжении большей части карьеры группа была представлена как пауэр-трио[1] с барабанщиком Тре Кулом, который заменил Джона Киффмейера в 1990 году перед записью (   Читать дальше...   )Green Day - 21 Guns (2009)Жанр: Pop, Punk RockПродолжительность: 00:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EF6F1B81442310681D3AD149C06165C6B7C68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617809   (201640) от 08.03.2023
+
+Клава Кока - Замуж (2023) WEBRip [H.264/1080p; 1440p; 2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Премьера клипа. Клава Кока - "Замуж"Производство: Black StarЖанр: PopПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233DA4BF03D1008F34B0846407CE391DBBB23343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621265   (200255) от 07.04.2023
 
 Патхан / Pathaan (2023) WEBRip [H.264/1080p]
@@ -6,7 +116,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175268.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +200,7 @@ SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -117,7 +227,7 @@ NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -144,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -173,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -202,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -228,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -257,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -284,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -310,7 +420,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160400.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -336,7 +446,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -362,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -414,7 +524,7 @@ Top Of The Pops 70s (vol.2) (2009) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -443,7 +553,7 @@ Top Of The Pops 70s (vol.1) (2008) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -472,7 +582,7 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -498,7 +608,7 @@ ABBA - The Winner Takes It All (1980) WEB-DL [H.264/720p] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156220.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -524,7 +634,7 @@ VA - Зимний марафон № 213: Новогодний Хит Драйв
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155824.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +663,7 @@ George Michael & Wham! - Last Christmas (2019) WEB-DL [VP9/2160p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -595,119 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16F21EDBA2632A9A87ABD47320CB1743FD0D4103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588823   (152776) от 14.12.2012
-
-Яжевика - Это любовь (OST "Дневники Доктора Зайцева") (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25C5A30EEACCE75D3881335EAAAD4D85760157A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968489   (152540) от 24.12.2015
-
-VA - Зимний марафон № 214: Дискотека Уходящего Года (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (23.12.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Alesha Dixon - Tallest Girl (Official Video) (00:03:21)
-02. Azary and Kleo ft С.Ибрагимов, Д.Шарапова, З.Омарова, Kental, Alldavai - С Новым Годом, Казахстан! (Премьера!) (00:03:15)
-03. Carly Rae Jepsen ft. Josh Ramsay - Sour Candy (Official Video) (00:03:06)
-04. Dj Kan and Миша Марвин ft. Тимати - Ну Что За Дела (Премьера!) (00:03:20)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, Dubstep, Electronic, HouseПродолжительность: 01:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6EF2C37BD5550041D728025EF14ABB146DC593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589156   (152049) от 14.12.2012
-
-Top Of The Pops 70s (vol.3) (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152049.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T.Rex (feat. Elton John) – "Get It On"
-2. Slade – "Coz I Luv You"
-3. Gary Glitter – "Rock & Roll Part 2"
-4. David Bowie – "Starman"(   Читать дальше...   )Жанр: Музыка, Glam Rock, RockПродолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAB02754E1747B42CC5D0175CA9DD0AA9634088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017639   (149098) от 23.12.2018
-
-Вера Брежнева - Сборник видеоклипов (2010-2018) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Dan Balan и Вера Брежнева - Лепестками слез
-2.  Smash feat. Вера Брежнева - Любовь на расстоянии
-3.  T-killah _ Вера Брежнева - Этажи
-4.  Артур Пирожков и Вера Брежнева - Luna(   Читать дальше...   )Производство: РоссияЖанр: Музыка, клипыСубтитры: нетПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3A733CEF9D9CCD7D53CE92E3DC4EBC79D0AD10
 ```
 
 https://mybot314.ru/tekegram_catalog/

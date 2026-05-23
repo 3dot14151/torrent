@@ -1,3 +1,108 @@
+###  Публикация: 1328619   (361025) от 01.10.2019
+
+Kikou Kai Galient | Panzer World Galient | Галиент [ТВ] [1984, TV, 25 из 25] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Родина наследного принца Джорди была разрушена завоевателем Мардалом. Чтобы сбежать от злых уловок Мардала, Джорди тайно вырастил верный слуга королевской семьи. Однажды Джорди обнаруживает легендарного гиганта Галиента в пограничной долине. Используя Галиента, он решает бороться с Мардалом и вернуть свою землю.Производство: Студия Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Такахаси РёсукэПеревод: Faddeich; Ingvar; JarlyЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4519BC35E45E8D563E4C91C868D1701E4593F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312614   (360452) от 01.10.2019
+
+Kanata no Astra | Astra Lost in Space | Астра, затерянная в космосе [2019, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2061 год. Космические путешествия стали возможными и коммерчески выгодными, и теперь ученики средней школы Кэрда отправляются в космический лагерь на планете МакПа. Но вскоре после того как они прибывают на место, таинственная разумная световая сфера отправляет всю группу из девяти человек в глубины космоса, за 5012 световых лет от их родной планеты. Там школьники (   Читать дальше...   )Производство: студия Lerche / ラルケЖанр: приключения, комедияРежиссер: Андо МасаомиПеревод: Funimation; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин. (первая и последняя серии сдвоенные)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C8D2ED98783C25EE5E53A7EE7C1BC4C8DA27D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294626   (360444) от 01.10.2019
+
+Fruits Basket (2019) | Корзинка фруктов [ТВ-2] [2019, TV, 25] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Тору Хонда — простая школьница с непростой жизнью. Она осиротела, лишилась крыши над головой, вынуждена жить в палатке и самостоятельно зарабатывать себе на жизнь. Но Тору не унывает, встречая невзгоды с улыбкой. И вот однажды судьба преподносит ей сюрприз — девочка знакомится с семьёй Сома, над которой висит ужасное проклятье…
+Ремейк историиПроизводство: Студия TMS / トムス・エンタテインメントЖанр: романтикаРежиссер: Ибата ЁсихидэПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780A8A6827842960A82710E658C00B81BA33A27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254577   (359457) от 06.11.2010
+
+Ladies versus Butlers! / Ladies vs. Butlers! / Леди против Дворецких! [2010, TV, 12 серий + SP 6] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+16-летний Акихару Хино рано потерял родителей, а когда приемная семья дяди стала его тяготить, поступил в академию Хакурэй-Рё, уникальный интернат, разделенный на две секции. Первая, «дзёку» – обычная частная школа для богатых девушек, а вторая, «дзику» - школа для слуг, где девушки учатся на горничных, а немногочисленные юноши овладевают профессией дворецкого. Будущие (   Читать дальше...   )Производство: Жанр: комедия, этти, романтика, школаЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ТВ (12 эп. + SP 6), 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB7A80AC7DB8DB88C358E5A4643692526DE17FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565501   (359382) от 17.09.2022
 
 Musashino! | Мусасино! [2022, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +111,7 @@ Musashino! | Мусасино! [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359382.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Tensei Shitara Slime Datta Ken | That Time I Got Reincarnated as a Slime | О м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга магии дл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Anju to Zushiou Maru / The Orphan Brother / Брат-сирота (Movie, 1961) 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Yurei Deco | Духи Деко [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Konoyo no Hate de Koi o Utau Shoujo Yu-No / Yu-No: A Girl Who Chants Love at the
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353803.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ Gekijouban Soushuuhen Overlord | Повелитель (компиляция ТВ
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353002.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ Log Horizon 2 | Лог Горизонтa  2 [TV-2][2014, TV, 25 эп.] BDrip 108
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Yami Shibai / Театр тьмы [ТВ-7] [2019, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Mitsuami no Kamisama | Pigtails | Богиня с косичками [2015, Movi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +399,7 @@ Kemono Friends | Животные-друзья | Дикие друзья [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351132.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +425,7 @@ Natsume Yuujinchou Roku / Тетрадь дружбы Нацумэ [ТВ-6] [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +451,7 @@ Queen's Blade Unlimited | Клинок Королевы: Безграничны�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +477,7 @@ Rizelmine / Rizerumain / Моя Ризельмина [2002; TV; 24] DVDRip 544p 
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +503,7 @@ Queen's Blade: Rebellion | Клинок Королевы: Мятеж [2012, TV +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +529,7 @@ Queen's Blade: Rurou no Senshi | Queen's Blade: Wandering Warriors | Клино�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +555,7 @@ Queen's Blade: Utsukushiki Toushitachi | Queen's Blade: Beautiful Warriors | К�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +581,7 @@ Queen's Blade: Vanquished Queens | Клинок королевы: Поверже
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +607,7 @@ Guri Guri / Green Green TV / Жаркое лето [2002 - 2004, TV + OVA, 13+1]
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350227.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +633,7 @@ Ame o Tsugeru Hyouryuu Danchi | Drifting Home | Плавучий дом [2022, M
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +659,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,116 +670,6 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 эп.] WEBRi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17C0F88D2C37E9B6864A25F716AE1ACEC9EAEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562567   (349526) от 21.09.2022
-
-Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого духа (2022) [2022, TV, 12 эп.] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349526.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Юринэ Ханадзоно призвала Дзясин. Пока призыватель жив, Дзясин не вернуться в ад. Поэтому она пишет имя Юринэ в «Тетради несмерти» и клянётся наконец обрушить на неё свой дропкик. Тем временем появляется Пино, бывшая подчинённая Пеколы и Попорон. Пекола было обрадовалась, что наконец-то Бог прислал к ней кого-нибудь, да только в руках Пино оружие..."Производство: Студия Nomad / ノーマッドЖанр: комедияРежиссер: Сато ХикаруПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85A0EFA86B94785E4A907196CFEFE4B152AE116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795944   (347299) от 07.10.2019
-
-Kindaichi Shounen no Jikenbo / Kindaichi Case Files / Дело ведёт юный детектив Киндаичи [1997, TV, 148] DVDRip 480p Raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Киндачи известен всем, как лентяй и лоботряс, с трудом способный написать тест. Однако за обманчивой внешностью скрывается интеллект с уровнем IQ 180, способный раскрыть самое запутанное уголовное дело, даже, если главный обвиняемый в этом деле он сам. И это не удивительно - ведь его дед был великим детективом, известным всей полиции Японии.
-
-Сериал (   Читать дальше...   )Жанр: приключения, детективРежиссер: Нисио ДайсукэПродолжительность: по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD6E58DA80C5F5E111B76275EC3B97B2D1C5AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580293   (345761) от 24.11.2012
-
-Sengoku Collection / Parallel World Samurai / Коллекции смутного времени [2012, TV, 13 из 26 серий] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во вселенной есть миры, где японская Сэнгоку Дзидай, «эпоха смут», населена исключительно милыми девушками! В этой истории по милости богов легендарная Нобунага Ода после предательства Мицухиды Акэти провалилась из пламени пожара в наш мир, прямо в Токио. Футуршок? Ничего подобного – исторический Ода обожал все новое и необычное, носил западную одежду, шокируя окружающих. Слегка осмотревшись, героиня нашла нужный храм и в горячей молитве попросила вернуть ее обратно – а не то все сожжет. У проказливых жриц было иное предложение – пусть Нобунага найдет старых соперниц, которых тоже перекинуло в наш мир, и отберет у них некие сокровища. Победитель игры сможет вернуться домой.
-
-Вот такие дела! Политкорректные боги отправили в Японию наших дней не только князей, но и мудрого советника, знаменитого фехтовальщика и великого изобретателя – всех, разумеется, в девичьем обличье. Как теперь их искать? Еще можно предположить, что умница Токугава пойдет в политику, а одноглазая Масамунэ окажется в банде, но кто бы мог подумать, (   Читать дальше...   )Жанр: комедия, повседневностьРежиссер: Гото КэйдзиПродолжительность: 00:25 x 13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAA01BE19B87612DB718EA0972355605C3FA979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580285   (345759) от 24.11.2012
-
-Sakamichi no Apollon / Аполлон: Дети на холме [2012, TV, 12 серий] BDrip Hi10p 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345759.jpg" />
-</div>
-
-
-###  Подробнее
-
-В далеком 1966 году Каору Нисими, весьма серьезный молодой человек, переезжает из столичного округа на юг Японии, в префектуру Нагасаки, где ему поначалу не нравится абсолютно все: жара, расслабленный настрой окружающих, их непривычный говор, даже крутой склон на пути к новой старшей школе. «Правильного» отличника-очкарика в классе приняли не особо тепло, сочтя его законной добычей «крутых парней». Нисими все это видел не раз и готовился к худшему, однако встреча с местным неформалом Сэнтаро Кавабути закончилась не телесными повреждениями, а дискуссией о музыке и даже небольшой импровизацией!
-
-Вот так новичок подружился с отчаянным джазменом, барабанщиком Сэнтаро и старостой класса Рицуко, семья которой держит музыкальный магазин, где в подвале есть небольшая студия. Вскоре Каору заболел джазом, и новая страсть постепенно помогла ему преодолеть не только стереотипы «пианиста-классика», но и застарелые тоску и одиночество. Не зря веселая компания юных и не очень джазменов постепенно пополняется новыми интересными (   Читать дальше...   )Жанр: романтика, драма, музыкальныйРежиссер: Ватанабэ СинъитироПродолжительность: 12 эп. по 25мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBB0DD06A8A15E71CE9FA8EF7AF0AC583CD5FA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 1564627   (499600) от 19.07.2022
+
+Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life Suru Koto ni Shimashita | Меня выгнали из гильдии героев [2021, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Доблестный и могучий авантюрист мечтает... открыть аптеку? В прошлом Ред был членом отряда героя, сильнейшей группы, призванной спасти мир от злых сил Тараксона. Но в один момент всё поменялось, когда один из товарищей Реда решил выгнать его из отряда. После произошедшего Ред задумывается над открытием собственной аптеки и о спокойной жизни в глуши. Однако сохранить (   Читать дальше...   )Жанр: приключения, фэнтези, романтикаРежиссер: Хосино МакотоПеревод: Wakanim (оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2838DAC988AA1C624DC18F196C2656AFFE7F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556465   (499586) от 19.07.2022
+
+Magia Record: Mahou Shoujo Madoka Magica Gaiden Final Season - Asaki Yume no Akatsuki | Записи о магии [ТВ-3] [2022, TV, 4 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории.
+
+Девочки-волшебницы сражаются в безвестной войне ради исполнения своих заветных желаний. Но Ироха Тамаки позабыла, что она загадала… — О чём же я просила, когда стала волшебницей?.. — задаётся она вопросом. В её жизни словно зияет огромная дыра. Она утратила нечто важное, дорогое… Но что? День за днём Ироха сражается, понятия не имея, зачем. (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: приключенияРежиссер: Анай ЁсукэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 4 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9891AF6697764C9D490E8A3E2E354878953C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564630   (499582) от 19.07.2022
 
 Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development Department | Госпожа Куроицу из отдела создания монстров [2022, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +60,7 @@ Kaijin Kaihatsubu no Kuroitsu-san | Miss Kuroitsu from the Monster Development D
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Paladin; Ag
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Shachou, Battle no Jikan Desu! | Shachibato! President, It's Time for Battle! | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498523.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Gyokou no Nikuko-chan | Fortune Favors Lady Nikuko | Никуко из Рыба�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Taifuu no Noruda / Typhoon no Noruda / Тайфун Норды [2015, Movie] BDr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498233.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Vatican Kiseki Chousakan | Vatican Miracle Examiner | Инспекторы чу�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +242,7 @@ Shingeki no Bahamut: Virgin Soul | Ярость Бахамута: Непороч
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493817.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +269,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +295,7 @@ Tokyo Ghoul A | Токийский гуль [ТВ-2] [2015, TV, 12] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +321,7 @@ Hitsugi no Chaika: Avenging Battle Chaika: The Coffin Princess - Avenging Battle
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +347,7 @@ Wake Up, Girls! / Подъем, девчата! [2014, TV, 12] BDrip 1080p Hi10p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489398.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +373,7 @@ Dantalian no Shoka / The Mystic Archives of Dantalian / Таинственная
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488827.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,7 +401,7 @@ Nihon Animator Mihonichi | Japan Animator Expo | Японская выставк
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +427,7 @@ Lucky ☆ Star / Счастливая звезда [2007, 24 эп.] BDRip 1080p 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -401,7 +455,7 @@ Wakaba Girl | Модница Вакаба [2015, TV, 13 + 1] BDrip 1080p Hi10p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485995.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -427,7 +481,7 @@ Katsute Kami Datta Kemono-tachi e | To the Abandoned Sacred Beasts | Отвер�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483245.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -453,7 +507,7 @@ Go-Toubun no Hanayome | The Quintessential Quintuplets | Пять невест [
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -479,7 +533,7 @@ Tate no Yuusha no Nariagari | The Rising of the Shield Hero | Восхожден
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -505,7 +559,7 @@ Penguin Highway | Тайная жизнь пингвинов [2018, Movie] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -531,7 +585,7 @@ Masou Gakuen HxH | Hybrid x Heart Magias Academy Ataraxia | Магическая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +611,7 @@ Moonlight Mile: 2nd Season - Touch Down | Лунная миля: Приземл�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478416.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -583,7 +637,7 @@ Bakumatsu Rock | Рок эпохи Бакумацу [2014, TV, 12 из 12] BDRip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -609,7 +663,7 @@ Moonlight Mile: 1st Season - Lift off | Лунная миля [2007, TV, 12 из
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -621,58 +675,6 @@ Moonlight Mile: 1st Season - Lift off | Лунная миля [2007, TV, 12 из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289B7DB3B153F51F0DA167B2DE8C4A1F97A83E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407015   (470985) от 05.09.2020
-
-Kamigami no Asobi | Забавы богов [2014, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470985.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летняя Юй Кусанаги, дочь синтоистского жреца, всю жизнь только училась, прислуживала в храме да занималась фамильным стилем кэндзюцу. И вот однажды девушка обнаружила чудесный меч, одно прикосновение к которому переправило ее в странное место, похожее на огромную, но пустующую школу. Сомнения развеял повелитель Зевс, объяснивший, что молодое поколение небожителей (   Читать дальше...   )Производство: Brains Base / ブレインズ・ベースЖанр: романтика, фэнтезиРежиссер: Кавамура ТомоюкиПеревод: YakuSub Studio (Nika_Elrik, Harushechka)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D51215DE70AD151F989198A43CBEE7338C5D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407005   (470722) от 05.09.2020
-
-Hinako Note | Дневник Хинако [2017, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Хинако Сакураги живет в сельской местности, и ей довольно плохо дается общение с людьми. И дабы улучшить свои навыки общения, она решает, что со старшей школы будет учиться в Токио, и там же хочет поступить в театральный клуб. Вот только выясняется, что жить Хинако будет в старом книжном магазине, вместе с девочкой по имени Куина Нацукава. Но эта (   Читать дальше...   )Производство: Passione / パッショーネЖанр: комедия, повседневностьРежиссер: Такахаси ТакэоПеревод: UndokaktyzЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBECC9E26970CB18BE1DAD6BE68F33AEA1F7A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

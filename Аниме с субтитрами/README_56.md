@@ -1,3 +1,109 @@
+###  Публикация: 501763   (643045) от 03.07.2012
+
+Lupin the Third: Mine Fujiko to Iu Onna / Lupin the Third: The Woman Called Fujiko Mine / Люпен III: Женщина по имени Фудзико Минэ [2012, TV, 13 ep.] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Уже десятки лет на экране действует дружная команда Люпена Третьего, за которой упорно, но безуспешно гоняется инспектор Дзэнигата. Люпен все так же изящен и креативен, Дзигэн молчалив и меток, за Гоэмона говорит его меч, а блистательная Фудзико вертится вокруг, то помогая, то продавая всех оптом и в розницу. Меняются только «девушки в беде», а главная пятерка застыла во времени, словно статуя Будды. Но всегда ли было так? Ведь когда-то герои были чуть моложе и работали порознь, а потом их свела судьба. Судьба в образе женщины!
+
+Новый сериал переносит нас в раннюю историю Люпена и его компании. Молодой, но уже знаменитый вор в зеленом пиджаке давно устал от обычных краж и теперь ищет нечто новое, какое-то чудо, что избавит его от тягучей тоски повседневности. Во время рискованного визита на остров тоталитарной секты герой встречается с Фудзико Минэ – красивой, расчетливой и абсолютно беспринципной коллегой, одной из немногих женщин, что могут бросить вызов самому Люпену. Встреча оказалась судьбоносной и гарантировала (   Читать дальше...   )Жанр: приключенияПродолжительность: (13 эп.), 25 мин.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541745   (642723) от 04.04.2022
+
+100-man no Inochi no Ue ni Ore wa Tatte Iru | I'm Standing on a Million Lives | Я стою на миллионе трупов [2020, TV, 24 эп.] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ёцуя - простой школьник, которому ничего не интересно в жизни, кроме как играть дома в игры. Каждый день он стремился поскорее уйти и заняться любимым делом. Однако однажды, задержавшись на дежурстве, парень вдруг оказался в каком-то ином мире. Впрочем, новая реальность сильно напоминает игру.Производство: Студия Maho FilmЖанр: приключения, фэнтезиРежиссер: Хабара КумикоПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFF64FD4B48B2E3CC4AA9E6ADDAF7CB79EB6D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252885   (642529) от 31.03.2019
+
+Gyakuten Saiban: Sono "Shinjitsu", Igi Ari! Season 2 | Первоклассный адвокат [ТВ-2] [2018, TV, 23] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Феникс Райт, начинающий адвокат, работающий в адвокатской конторе Fey and Co., владельцем которой является его наставница Мия Фей. Во время расследования Феникс собирает улики и разговаривает с персонажами, вовлечёнными в дело, и во время заседания суда защищает своего клиента, используя собранные им улики, проводит перекрёстный допрос свидетелей и разрешает всю (   Читать дальше...   )Производство: Clover WorksЖанр: приключения, комедияРежиссер: Ватанабэ АюмуПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, Английские, Арабские, Испанские, Итальянские, Немецкие, Португальские, ФранцузскиеПродолжительность: 23 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB3B713581CA063E2E617F293C92D14926E4857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032950   (641900) от 09.07.2016
+
+Fushigi na Somera-chan / Magical Somera-chan / Волшебница Сомера-тян [2015, TV, 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История разворачивается вокруг девочки по имени Сомера. Она — хранительница таинственных магических сил, а также причина различных комедийных ситуаций, происходящих с ней и её друзьями.Производство: Студия Seven / セブンЖанр: комедияРежиссер: Имадзаки ИцукиЯзык субтитров: Русский (отключаемый)Продолжительность: 13 эп. по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35862875CFD31BD6C93307BDDB288AD807FC9732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280392   (640771) от 01.04.2019
 
 Bermuda Triangle: Colorful Pastorale | Разноцветная пастораль: Из Бермудского треугольника [2019, TV, 12 эп.] WEB-DL 720p raw
@@ -6,7 +112,7 @@ Bermuda Triangle: Colorful Pastorale | Разноцветная пасторал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640771.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Kimi no Iru Machi / Город в котором ты живешь [2012, OVA, 0
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640738.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -61,7 +167,7 @@ Fukigen na Mononokean: Tsuzuki | The Morose Mononokean II | Обитель мр�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +194,7 @@ Asa made Jugyou Chu! / See Me After Class! / Дополнительные зан
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640592.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -117,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -143,7 +249,7 @@ Shingeki no Kyojin: The Final Season | Атака титанов [ТВ-4] [2020,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +275,7 @@ Ooya-san wa Shishunki! / Хозяйка квартиры — подросток 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -195,7 +301,7 @@ Kekkai Sensen: Ou-sama no Restaurant no Ou-sama | Фронт кровавой б
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +327,7 @@ Drifters Special Edition | Скитальцы [2016, OVA, 1] DVDrip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639584.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +353,7 @@ Ultraman | Ультрамен [2019, ONA, 13 эп.] WebRip 720p HEVC 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +379,7 @@ Grimms Notes The Animation / Заметки Гримм [2019, TV, 12] HDTV 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +405,7 @@ Endro! / Эндро! [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +431,7 @@ Date a Live III / Рандеву с Жизнью 3 [2019, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638818.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +460,7 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren`ai Zunousen / Kaguya-sama: Love 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +486,7 @@ Hakozume: Kouban Joshi no Gyakushuu | Police in a Pod | Девушки-поли�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638496.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +512,7 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +538,7 @@ Onigiri / Онигири [2016, TV, 13 из 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638136.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +564,7 @@ Wagamama High Spec [2016, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637940.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +593,7 @@ Melty Lancer | Melty Lancer: The Animation | Мелти Лансер [1999, OVA,
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -513,7 +619,7 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 эп.] DVDRip 480
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -539,7 +645,7 @@ Kemono Friends 2 | Друзья-зверушки | Ушастые друзья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636900.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -567,7 +673,7 @@ Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,113 +684,6 @@ Bubuki Buranki | BBK/BRNK | Бубуки/Буранки [2016, TV, 24 эп.] WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A73D555B21912014E84253F71D5E1FF49BB8F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801138   (636389) от 01.07.2014
-
-Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И всё-таки мир прекрасен [2014, TV, 12 эп.] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет вращается вокруг Нике – целеустремлённой принцессы Дождливого Герцогства, обладающей загадочной силой: она может управлять дождём. Из-за проигрыша старшим сёстрам в «Камень, ножницы, бумага» Нике вынуждена выйти замуж за правителя Солнечного Королевства Ливиуса Первого, которого она никогда даже не видела. Всего за три года этот самый Ливиус (Ливи для краткости) завоевал целый мир, за что и получил прозвище «Ужасный Король». Однако при первой встрече будущих супругов выясняется, что Ливиус – всего лишь (   Читать дальше...   )Жанр: комедия, романтика, фэнтези, сёдзёРежиссер: Камэгаки ХадзимэПродолжительность: 12 серий по 23 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92ED1A15192556FB7B7C7D7812D0E03508A8D673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776656   (636090) от 01.07.2014
-
-Seikoku no Dragonar | Dragonar Academy | Академия Драконов [2014, TV, 12 эп.] HDTV 720p Hi10P raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посреди могучих держав лежит небольшое горное королевство Лотремон, славное единственной в мире академией, где готовят наездников на драконах. Мало кто способен «запечатлеть» разумного зверя, вырастить его, а потом несколько лет учиться вместе, составляя идеальную боевую пару. Лучшие рыцари получают от дракона магические доспехи и оружие, заменяя собой целые армии, поэтому любая страна с готовностью оплатит недешевое обучение своих кандидатов. Юные таланты прибывают в академию Ансариван отовсюду, в том числе из враждующих земель, но Лотремон издавна считается нейтральной территорией, где запрещены боевые действия. Сильных соседей вроде империи Зефарос договоры не волнуют, но время еще не пришло…
-
-Обычно боевая пара создается один раз, но Аш Блейк – исключение. После загадочного происшествия в детстве парень обрел способность ладить с любым драконом, а вот собственного, несмотря на знак всадника, никак не мог получить. Насмешки кончились, когда после встречи в горах Аш все же пробудил своего партнера… только им (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, эттиРежиссер: Тада СюнсукэПродолжительность: 12 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106D92F121A67A2073F92BA9EE912612C1D8B77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005158   (634127) от 13.07.2016
-
-Joker Game / Игра Джокера [2016, TV, 12 из 12] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организация под названием «Агентство Д» создана осенью 1937 года в качестве независимого армейского подразделения по личной инициативе подполковника Юки. По слухам, Юки сам в прошлом был хорошим агентом и добыл у врага немало секретов, пока его не предал союзник. До побега из плена подполковника жестоко пытали, чем объясняется отсутствие левой руки и то, что он ходит (   Читать дальше...   )Производство: Production I.GЖанр: военное, детектив, исторический, сейненРежиссер: Номура КадзуяПеревод: Nika_Elrik, Harushechka, Helge (YakuSub Studio)Субтитры: ASSФормат: MP4Продолжительность: 12 серий по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B0C5F945343CD6703DC2B26EE7B588A2E76053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529313   (633435) от 09.04.2022
-
-Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир постоянно умирает [ТВ-1] [2021, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это вампир. Для того, чтобы спасти пропавших детей от гибели, охотник на вампиров Рональд отправился в замок к всесильному Драку. Но в логове чудовища его ждало нечто неожиданное… Могущественный вампир оказался ничтожной букашкой, которая мгновенно обратилась в пепел.
-© wakanimПроизводство: студия Madhouse / マッドハウスЖанр: комедияРежиссер: Кодзина ХиросиПеревод: WakanimЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49338681E04110396F0D9BCB1AFECF568569D92A
 ```
 
 https://mybot314.ru/tekegram_catalog/

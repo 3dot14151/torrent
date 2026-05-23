@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068349.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066057.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057415.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049579.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049298.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -315,115 +315,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842806   (1048868) от 17.12.2025
-
-Нина Петровна Найденова | Ничего тебе не дам (2024) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048868.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Вити есть мячик, конь, гармошка и ружьё! И он ни с кем не делится своими игрушками. Напрасно другие дети предлагают ему поменяться на время игры. Витя непреклонен и суров. В свои игрушки он будет играть сам, один, никому ничего не даст. Надоело детям его упрашивать, и они больше не играют с ним. У Вити есть мячик, конь, гармошка и ружьё. А друзей – нет.
-
-Забавные (   Читать дальше...   )Жанр: Детская прозаИздательство: РечьФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CDAFD32D0805D74EC73AD2AF64CE599B8C4739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841083   (1047726) от 09.12.2025
-
-Александр Михайлович Костинский | Тигрёнок, который говорил «Р-Р-Р!», и его друзья (2016) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это добрая детская книжка советского автора Александра Костинского с иллюстрациями Геннадия Ясинского о дружбе тигрёнка и улитки, обезьянки и крокодила, которые живут в Африке и учатся ценить настоящую дружбу, преодолевая детские обиды и предрассудки.Жанр: СказкаИздательство: РечьФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808F023541E93898F17E15C4A6245AAB2B7DE980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840898   (1047625) от 07.12.2025
-
-Народные сказки | Свен, не умевший лгать (1955) [PDF, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история о бедном, но исключительно честном мальчике по имени Свен.
-Главная мораль сказки заключается в том, что честность и порядочность в конечном итоге вознаграждаются. Несмотря на все трудности и искушения, Свен остается верен своим принципам и не поддается лжи, что помогает ему преодолеть препятствия и добиться справедливости или успеха.
-Книга пропитана духом (   Читать дальше...   )Жанр: СказкаИздательство: ДетгизФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook), Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4874C9E9C942018D394876B9866BDE9CDB43A6E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840096   (1047010) от 02.12.2025
-
-Ян Грабовский | Тузик, Рыжий и гости (2015) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ян Грабовский (1882—1950) — польский писатель, педагог, математик, этнограф — писал великолепные книги о домашних животных, полные легкого юмора, доброго подсмеивания и глубокого понимания привычек, характеров и настроения своих героев.
-Повесть «Тузик, Рыжий и гости» построена на принципе »очеловечивания» животных. Её герои — собаки и другие домашние животные — все (   Читать дальше...   )Жанр: ПовестьИздательство: Мелик - ПашаевФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8127158172065C79986346E29FD72A7040FF1BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601623   (1046427) от 01.01.2023
 
 Феникс (изд.) | Зимние истории. Сказки и рассказы русских писателей (2022) [PDF, FB2, EPUB]
@@ -432,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046417.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -537,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -563,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -618,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045591.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -646,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -672,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -683,6 +574,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9FE426C5254D6AA1A3F6DE2913325D1C8C0EA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603903   (1045557) от 11.01.2023
+
+Андрей Усачев | Котобой (Книга 4). Украсть «Котобой»! или Полёт на Луну (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Где-то на севере есть удивительная деревушка Котьма. Удивительна она тем, что живут в ней одни только… коты! Каждую зиму жизнь в Котьме словно замирает – так и заскучать недолго. Но всё меняется, когда в Котьме открывают музей и туда устремляются толпы туристов. От такой небывалой суеты отважные котобои готовы сбежать даже… на Луну!Жанр: детские приключения, сказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B54BA6CDA3FE98CFD5FA767BAFA9C9CABAA156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604120   (1045495) от 12.01.2023
+
+Алексей Лисаченко | Планета динозавров: тайна затерянного города (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Книга, в которой динозавры Дима и Анка открывают тайны прошлого и находят разгадку одного очень странного происшествия.
+
+Трогательная и уморительно смешная история о захватывающих приключениях, дружбе, смелости и оптимизме. И конечно же, вере в себя и свои силы.Жанр: детская познавательная и развивающая литература, детские приключения, сказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C17A63BED230422EBA51E37D621FED28CC4E961
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604302   (1045419) от 13.01.2023
+
+Жан-Клод Мурлева | Река, текущая вспять (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Философская сказка французского писателя Жана-Клода Мурлева — пазл-перевёртыш, две стороны одной истории — инь и янь. Маленький лавочник Томек вслед за девочкой Ханной отправляется в далёкое и опасное путешествие на поиски волшебной реки, вода в которой даёт бессмертие.
+
+У каждого из героев свой путь и свои испытания, и им придётся принять много решений и от многого (   Читать дальше...   )Жанр: зарубежные детские книги, сказкиПеревод: Надежда Бунтман, Наталья ШаховскаяФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22758248550CFFC4FDF59563BF51D7AD57AB545E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604346   (1045416) от 13.01.2023
+
+Даниэль Пеннак | Глаз волка (2020) [PDF, FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Одноглазый полярный волк заперт в клетке парижского зоопарка. Люди принесли ему столько зла, что он поклялся никогда больше не думать о них. Но мальчик по имени Африка, обладающий удивительным даром слушать и рассказывать истории, заставит волка взглянуть на мир другими глазами.Жанр: детская проза, зарубежные детские книгиПеревод: Наталья ШаховскаяФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089B2DF0F567828A4A8B25B9EBE8D18B4C430EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

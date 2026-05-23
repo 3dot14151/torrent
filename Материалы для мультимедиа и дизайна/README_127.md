@@ -1,3 +1,347 @@
+###  Публикация: 1020011   (748061) от 24.05.2016
+
+Экшены - Cartoon Sketch V3 - Photoshop Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот экшен быстро преобразует Ваши фотографии в мультяшный рисунок.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F4B95F19AADDB8BAC59BCB5405247E57B24C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281857   (748050) от 10.02.2019
+
+Растровый клипарт - Creative Market - Sweets - Isolated Food Items - 3309480 [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт кондитерские изделия на прозрачном фоне
+52штФормат: PSD, PNGРазрешение файлов: 130x1959-2657x1932
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30705E8DA27543402621BC4709CAB434E95A683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282088   (748041) от 10.02.2019
+
+NNM-Club Sound Cleaner Collection from Bushpreet
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle и не только к проектам After Effects от нашего одноклубника Bushpreet, стоявшего у истоков и вдохновлявшего участников движения Sound cleaner на NNM-Club.
+Его девиз: The Fortune favoures the Brave!Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4436CB0EBC4E11A5847D8FFA301C466645F09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367413   (748035) от 14.07.2020
+
+NNM-Club Unmarked Team - Чистые музыкальные треки с AudioJungle часть 9
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию очередную часть музыкальной коллекции в количестве 100 треков, которые были размещены авторами на ресурсе AudioJungle без watermark. Большое спасибо энтузиастам из группы Unmarked Team, которые смогли их отыскать и поделиться со всеми. Обращаем внимание, что отсутствие watermark не дает права на коммерческое использование треков.Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF4F12178B13AA3F37C500EAF9C47B04D7AAAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216825   (747710) от 01.04.2018
+
+Текстуры - The Wood Collection I [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Коллекция деревянных текстур  состоит из 50 деревянных текстурных фотографий Hi-Res.Формат: JPGРазрешение файлов: 4000x2217-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5390472F2C9E30F21409E73CC1CE5B20618816A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216821   (747709) от 01.04.2018
+
+Растровый клипарт - Цветы: Одуванчики [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Одуванчики, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2560x1684-8544x5696
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03E8E003B1FB4AF300D4840A70DBFFA42AA2B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281853   (747693) от 10.02.2019
+
+Растровый клипарт - Creative Market - Kitchenware - Isolated Food Items - 3307662 [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт кухонные принадлежности на прозрачном фоне
+152штФормат: PSD, PNGРазрешение файлов: 38x858-2903x1722
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48EEEED2DB903924F3F444C84CDC1CF0C418FB9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281852   (747692) от 10.02.2019
+
+Растровый клипарт - Creative Market - Drinking - Isolated Food Items - 3307676 [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Клипарт напитки на прозрачном фоне.
+63шт.Формат: PSD, PNGРазрешение файлов: 451x461-2994x2972
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FF87166215977881E109772201748BA6B1C33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281856   (747691) от 10.02.2019
+
+Растровый клипарт - Creative Market - Meals - Isolated Food Items - 3307691 [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Продуктовый клипарт на прозрачном фоне
+102штФормат: PSD, PNGРазрешение файлов: 39x3739-2819x2484
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F050EE2E0AADDD9381348D1003DF4045CAFBE19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208019   (747622) от 13.01.2022
+
+Футажи - Depositphotos - Бесплатные видео недели [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Еженедельно, на протяжении 3 лет собираю "Бесплатные файлы недели" с Depositphotos. Насобирал 117 видео hd1080 и 4K. Решил поделиться.Формат: MOVРазрешение файлов: 1920х1080 (FULL HD1080) и 3840х2160 (4k)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7123C15E9463B5ED3DB9B4B80B295E43E625224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216810   (747257) от 01.04.2018
+
+Растровый клипарт - Creative Market - Veggies - Isolated Food Items - 2322425 [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет включает в себя все растительные предметы, а также некоторые бонусные предметы моего продукта "генератор сцены кухни".Выберите из 125 элементов с высоким разрешением и поместите их за перетаскивание, чтобы создать потрясающие сцены за считанные секунды есть PSD со всеми элементами, имеющими предварительно настроенные пропорции, так что вы можете (   Читать дальше...   )Формат: PSD, PNGРазрешение файлов: 274x617-2549x2780
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78917FEA96F65E83720C7E460264AB23BD61DB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396480   (746849) от 15.07.2020
+
+Звуковые библиотеки - SoundMorph - Future Weapons 3 [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Серия Future Weapons вернулась с нашей новейшей и самой передовой библиотекой: Future Weapons 3. Мы сделали его огромной, как по размеру, так и по размаху. На самом деле, поскольку мы завершаем будущую серию оружия, мы хотели сделать самую большую из 3-х!
+Серия имеет более 29 видов оружия и категорий!Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55AFEA08AE81D6D454318A29BAE747A7CD8F426D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396513   (746846) от 15.07.2020
+
+Звуковые библиотеки - SoundMorph - Portals [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Библиотека эффектов, сфокусированная на озвучивания "порталов" и дверей, содержащую как дизайнерские, так и необработанные звуки.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC9714F1840FC17878A2ABD400D4E9F48446B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396530   (746843) от 15.07.2020
 
 Звуковые библиотеки - SoundMorph - Sinematic Neon Expansion [WAV]
@@ -6,7 +350,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746607.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -321,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -332,346 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B127F4A1CF00FB11A623C90ADFD111A9FAA3B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282251   (746315) от 11.02.2019
-
-Стили - GraphicRiver - Holographic Text - 10 PSD - 23178255 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тенденция голографического дизайна - обрели огромный успех на протяжении нескольких лет. Будьте модны с этими макетами в 2019 году! 10 блестящих голографических эффектов. Это простой способ представить свой текст, форму или логотип в классном стиле ретро.Формат: PSD, ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC616AE1E1E3D359B13876571DD14447FEDCB41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282252   (746312) от 11.02.2019
-
-Стили - GraphicRiver - 11 70's Retro Text Effects - 23203116 [PSD, PAT, ASL, ACO]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746312.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 ретро стилей 70-х для PhotoshopФормат: PSD, PAT, ASL, ACO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB057C2CD49BD2ADA3D6348529F34B2741914BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282127   (746310) от 11.02.2019
-
-Стили - GraphicRiver - Lakose 3D Text Styles Bundle 7 - 23105049 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник металлических стилей для текста.
-состав 38-43Формат: PSD, ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3488AB3AFB97D812F905086662306E78C9BFD272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282260   (746302) от 11.02.2019
-
-Эффекты - Creative Market - Animated Drop Shadow Effect - 3384332 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимированный эффект Drop Shadow для PhotoshopФормат: PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF81E71F1AB9B91AE879D61C22C3AD9A32AED4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523976   (746252) от 14.01.2022
-
-NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2021 [MP3]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник треков, очищенных от "голосовых вставок" ("watermarks").Формат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC663A8F1D548A3C16268E18A49944081F3C34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282130   (746214) от 11.02.2019
-
-Рамки - Creative Market - 5 Nature Frames - 3083384 [PSD, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти рамки идеально подходят для представления вашего шрифта, графики или другого дизайна в центре.Формат: PSD, PNGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E272EA45A3F39EEFB4477195E2C10B7B1DF231D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282132   (746211) от 11.02.2019
-
-Шаблоны - GraphicRiver - Love & Romance Photo Template - 23131394 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Love & Romance Photo Template Этот смелый и динамичный фото-шаблон отлично подходит для дизайнеров, которым нужна креативная работа в фотошопе для создания своего дизайна. Вы можете использовать его, просто перетащив свою фотографию в Smart Layer, и все готово. Стили Smart Layer используются для всех эффектов, поэтому вы можете настроить их в соответствии с вашим (   Читать дальше...   )Формат: PSDРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6097DFC053169D1D9C629DE535F52B47DBCEE9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282123   (746198) от 11.02.2019
-
-Фоны и наложения - Etsy - 110 Flower petals Photo Overlays - 234760456 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Overlays - отлично подходят для создания вами фото интересных и красивых.Формат: PNGРазрешение файлов: 280x463-5760x3840
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D804E442AE19AC3206256099A21BAB0664AB732A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396667   (745505) от 16.07.2020
-
-Звуковые библиотеки - SoundMorph - Future Weapons 2 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745505.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Future Weapons 2" - самая передовая серия (2016г.) звуков оружии. Отличное звучание пушки, бластера, перезарядки и многое другое идеально подходит в играх, кино или на ТВ. Мы потратили месяцы записи и проектирования новых звуков, чтобы принести Вам самое свежее...Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAFC313324B183E893E80474ECEA0417B83A012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396700   (745434) от 16.07.2020
-
-Звуковые библиотеки - SoundMorph - Future Weapons [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых продвинутых библиотек звуковых эффектов оружия, когда-либо созданных. Черпая вдохновение из некоторых последних современных научно-фантастических фильмов, Future Weapons переносит высокотехнологичное вооружение на другие вселенные. Разделенное на две фракции «Альянс» и «Сопротивление», Future Weapons создает звуковые подписи как для добра, так и для (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9761FC2FAAACB5FBD5F552A47EAF4A0E2A7A808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020374   (745218) от 26.05.2016
-
-Экшены - GraphicRiver - Creative Painting - 16197793 [ATN, ABR, PAT, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creative Painting - создаёт красивые акварельные картины в несколько простых кликов. Неограниченное количество конечных результатов.Формат: ATN, ABR, PAT, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCECBA2872441F4037EE67E9C8CB7E9CBF33AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020376   (745210) от 26.05.2016
-
-Экшены - GraphicRiver - 38 Retro / HDR - 10192306 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745210.jpg" />
-</div>
-
-
-###  Подробнее
-
-38 Retro / HDR - этот набор действий был разработан для фотографов и графических дизайнеров.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBA485581753906C5CB56610600FABF8D057E7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020482   (745138) от 26.05.2016
-
-Экшены - CreativeMarket - Instant Tattoo Action - 611838 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instant Tattoo - фотореалистичный эффект татуировки напрямую в Photoshop.
-Всего 3 шага для цифровой примерки татуировки любой сложности.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C8CA7D312676A119A61069C5B4CF89CCFDE2FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

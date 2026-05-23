@@ -1,3 +1,206 @@
+###  Публикация: 1190424   (265154) от 12.12.2017
+
+Henry Jackman and Matthew Margeson - Kingsman: The Golden Circle Soundtrack (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01	Eggsy Is Back	5:50
+02	Memories of Harry	2:00
+03	The Golden Circle	1:18
+04	Poppy	2:17(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E68AC170F30E767E728EB4B7D488093821D19B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190938   (265090) от 12.12.2017
+
+Летеница - Берегиня (2017) [MP3|320 Kbps] <Folk Rock, Neofolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Твой голос
+02. Утро зорями восходило
+03. Нить его судьбы
+04. Младый месяц(   Читать дальше...   )Жанр: Folk Rock, NeofolkПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A19DA9CB5C1536CCD0AFA260CCCDA3223C6885E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267452   (265064) от 08.12.2018
+
+Seay - A Winter Blessing The Gift (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01 – Carol Of The Bells
+02 – All Around The World
+03 – On This Starry Night
+04 – Father Christmas Eyes(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F549E00E61E99443015A33898ACF13BBDE6D5BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267958   (265005) от 08.12.2018
+
+Blank & Jones feat. Marcus Loeber - Silent Piano (Songs For Sleeping) 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home (Solo Piano) 5:59
+02. Where You Belong (Solo Piano) 4:22
+03. Counting Clouds (Solo Piano) 7:32
+04. Flowing (Solo Piano) 4:41(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FDA8D4C4B636E73981205F7B79C66AAB0E6837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339429   (264668) от 21.11.2019
+
+Nostradamus II - For A Thousand Years (2007) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. A Mari Usque Ad Mare (From Sea To Sea) (2:58)
+02. Who Will You Be? (The Light Of Time) (4:29)
+03. I'll Come With You (3:22)
+04. Simply Forget (3:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA055041D5C760849BB2FF433E705E2D1D48C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339428   (264667) от 21.11.2019
+
+Nostradamus - A Storm Of Dreams (1998) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. The Whisper Of An Angel (5:28)
+02. Amarilli (Radio Edit) (3:51)
+03. Dreamin' A' You (3:08)
+04. A Storm Of Dreams (3:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D1742C069E5C4AEE3C65C5E303982D35BD7A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339580   (264570) от 21.11.2019
+
+Gregorian - 20/2020 (2019) Limited Edition 2CD [MP3|320 Kbps] <New Age, Enigmatic, Ambientpop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah (New Version 2020) (04:58)
+02. Frozen World (Remastered Version 2020) (03:20)
+03. Pie Jesu (New Version 2020) (03:55)
+04. Fairytale Of New York (Remastered Version 2020) (04:10)(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientpopПродолжительность: 02:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDE988278D6C3C0FE16268C2B7EFE635F92E434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339857   (264565) от 21.11.2019
 
 Gregorian - 20/2020 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Ethnic>
@@ -6,7 +209,7 @@ Gregorian - 20/2020 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <New Age, Enigm
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264565.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Willy Astor - The Sound of Islands Guitar (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264448.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +267,7 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - A Very Joyful Bluegrass Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +325,7 @@ Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +354,7 @@ Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [FLAC|Lossless|tracks] 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -180,7 +383,7 @@ The Chill Out Orchestra - Another Brick in the Wall (The Pink Floyd Cover Versio
 >>Other
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264210.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264008.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -238,7 +441,7 @@ Musica Relajante - Spa for Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -267,7 +470,7 @@ Jozef Van Wissem - Nobody Living Can Ever Make Me Turn Back (2017) [MP3|320 Kbps
 >>Folk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -296,7 +499,7 @@ John Williams - Звездные войны: Последние джедаи / S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -325,7 +528,7 @@ Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263457.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -354,7 +557,7 @@ Albert Artemyev - The Living Universe (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -383,7 +586,7 @@ Eva Cassidy - Acoustic (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop, Jazz>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -412,7 +615,7 @@ Gipsy Kings - Instrumental Best (1995) [FLAC|Lossless|image + .cue] <Flamenco, I
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -441,7 +644,7 @@ Seymour Light Orchestra - That Ole Devil Called Love (1987) [FLAC|Lossless|image
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -470,7 +673,7 @@ Imaginary Sound Project - Synthesizer Dreams - World Hits On Synthesizer (1991) 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -499,7 +702,7 @@ Amanaska - Panorama (2003) [MP3|320 Kbps] <World Music, Ethno, Worldbeat>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -528,7 +731,7 @@ Atom Music Audio - Immortals: Massive Hybrid Epic Tracks (2017) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -542,209 +745,6 @@ Atom Music Audio - Immortals: Massive Hybrid Epic Tracks (2017) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16CCDC732F30260B1794D3918642C710848D203D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341021   (262621) от 27.11.2019
-
-VA - Buddha Meditation Relax (2019) [MP3|320 Kbps] <New Age, Relax, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Drummer - Windparade
-02. Music of Life - Rayba Vagy
-03. Tubular Groove Trio - Tubolar Dream
-04. Route 66 - Gallons for Miles(   Читать дальше...   )Жанр: New Age, Relax, DowntempoПродолжительность: 01:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5E1EFE3EAC8BE94659D8A1A28B761198F6CB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341098   (262581) от 27.11.2019
-
-The Sound Of Love - Enigmatic Love (2018) [MP3|320 Kbps] <New age, Enigmatic, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic Love (04:17)
-02. Everything Ends (03:05)
-03. For you (04:33)
-04. Giorgia's temptation (vocal edit) (03:45)(   Читать дальше...   )Жанр: New age, Enigmatic, EthnicПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FB440BA006D1A0D151FA8B8EA4E2E1B29D3B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192003   (262446) от 19.12.2017
-
-Daughter - Music From Before The Storm (2017) [MP3|320 Kbps] <Alternative, Indie>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass [4:16]
-02. Burn it Down [3:12]
-03. Flaws [2:53]
-04. Hope [4:23](   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D827DF7F37F43DF70188066EB3E0257C9DA4C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663513   (262392) от 19.12.2017
-
-Юрий Никулин - Песня про зайцев (1999) [FLAC|Lossless]<Soundtrack, Retro>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ю.Никулин, Г.Вицин, Е.Моргунов - Постой, паровоз! (2:32)
-02 - Ю.Никулин - Если б я был султан... (2:39)
-03 - Ю.Никулин, А.Миронов - Жрица любви (0:36)
-04 - Ю.Никулин, А.Миронов - Поскользнулся, упал... Очнулся - гипс! (0:35)(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5B3B88F5906FAC17639A7E90DDF0C2F6202F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341533   (262285) от 28.11.2019
-
-White String Orchestra - Aktuelle Hits im modernen Streichersound (1996) [FLAC|Lossless|image + .cue] <Instrumental, Classical Crossover, Cover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Song (4:24)
-02. Gangsta's Paradise (4:21)
-03. Jesus to a child (4:28)
-04. Children (4:07)(   Читать дальше...   )Жанр: Instrumental, Classical Crossover, CoverПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664BC8A912E5CF8200D96E030F56688C2C5CBD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341223   (262283) от 28.11.2019
-
-Valefim Planet - Contradiction (2019) [MP3|320 Kbps] <Electronic, New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Spirit (05:32)
-02. Do Not Forget Me (05:31)
-03. I'm Flying Away (05:00)
-04. Loneliness Forest (07:07)(   Читать дальше...   )Жанр: Electronic, New age, EnigmaticПродолжительность: 01:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB42A057FBBCCB8EF4BD17D6EBCB563FFD11E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193266   (262220) от 20.12.2017
-
-VA - Nrj Latino Hits Only ! 2CD (2017) [MP3|320 Kbps] <Reggaeton, Cumbia, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrique Iglesias Feat. Descemer Bueno, Zion & Lennox - Subeme La Radio 03:28
-02. J Balvin & Willy William - Mi Gente 03:09
-03. Maluma - Felices Los 4 03:49
-04. Shakira - Me Enamore 03:46(   Читать дальше...   )Жанр: Reggaeton, Cumbia, OtherПродолжительность: 02:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDF2ECB60F4E31C94002F14CB0FBAEB17B3773B
 ```
 
 https://mybot314.ru/tekegram_catalog/

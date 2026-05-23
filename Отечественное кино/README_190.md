@@ -1,3 +1,107 @@
+###  Публикация: 1549474   (236771) от 07.05.2022
+
+Весури (2019) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Малоизвестная страница истории Великой Отечественной войны - тяжелые дни оккупации советской Карелии финнами. Война стала тяжелейшим испытанием для всех, но особенно для детей. История создана на основе воспоминаний малолетних узников финских переселенческих лагерей.Производство: Россия / АТК-СтудиоЖанр: Драма, военный, историяРежиссер: Александр Якимчук, Вячеслав ЛагуновАктеры: Антонина Степакова, Иван Балдычев, Степан Степаков, Егор Петров, Дмитрий Мурашев, Лассе Линдберг, Владимир Ямненко, Сергей Евсеев, Александр Тютрюмов, Иван БатаревПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDC97F26678085EB754BD13221A1754BB88BCD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631358   (236548) от 05.05.2023
+
+Жизнь сначала (2016) WEBRip [H.264/720p] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Ксюше Кузнецовой почти 40 лет. Свою жизнь она по привычке откладывает на потом. Никак не может решиться усыновить Павлика, которого уже давно навещает в детском доме, выгнать обнаглевшего вечного жениха Вадика, поставить на место подруг, бесцеремонно вмешивающихся в ее жизнь, и призвать к порядку бандита Ваху, чей ресторан отравляет жизнь всей округе. Но, узнав о (   Читать дальше...   )Производство: Россия | «Марс Медиа»Жанр: Мелодрама, драма, криминалРежиссер: Артур Румынский, Игорь ШтернбергАктеры: Эльвира Болгова, Олег Масленников-Войтов, Даниль Зинатуллин, Мария Сычева, Анастасия Денисова, Илья Славутский, Алексей Калиничев, Халима Икандерова, Галина Юрченко, Елена ГалицкаяПродолжительность: 00:45:22 + 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B965ACDD848A860BC9A5C02D36A0CAFD700C84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630931   (236461) от 03.05.2023
+
+Отщепенец (2020) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Из-за экологической катастрофы люди поселились под землёй и создали «стерильное» пространство, из которого на поверхность изгоняются все нарушители нового порядка.Производство: РоссияЖанр: Короткометражный, фантастикаРежиссер: Юлия ОреховаАктеры: Дарья Свистунова, Антон Фигуровский, Марина Барсукова, Владислав КувицынСубтитры: английские (hardsub)Продолжительность: 00:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EFF26D102CB6B64841CE0314CC742166A6BA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550035   (236431) от 09.05.2022
+
+Топор. 1944 (2022) WEBRip (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Разведгруппа Одинцова, в которую входит Иван Родин, пробирается по глубоким тылам со специальным заданием — переправить через линию фронта молодого человека по фамилии Савичев. Кто он, откуда и как попал к партизанам Одинцову, не сообщают. Так как их ищут немцы, им проходится возвращаться другим путём. Наутро после трудного перехода Родин, пока другие спят, ловит (   Читать дальше...   )Производство: Россия / «ТРОМЕДИА»Жанр: Драма, история, военныйРежиссер: Евгений ЗвездаковАктеры: Андрей Смоляков, Тимур Базинский, Александр Голубев, Тимофей Каратаев, Леон Тафара, Антон Успенский, Виктория Романенко, Бахтияр Ташбулатов и др.Субтитры: ОтсутствуютПродолжительность: 00:44:40+00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E7969CD183149812E6D16C8FDA73878C2CBE01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575487   (236279) от 09.09.2022
 
 Поединок (2008) WEBRip [H.264/1080p] (2 серии)
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236095.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235960.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235182.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235064.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234666.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234247.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233832.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233320.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -565,110 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79A6A7E541EC06118CEB338E538FB19BDE52400E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579265   (232913) от 26.09.2022
-
-Иллюзии (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие этого фильма по мотивам пьесы Ивана Вырыпаева происходит в кабинете семейного психотерапевта, куда по очереди друг за другом заходят две молодые семейные пары. Они пришли, чтобы рассказать истории Денни, Сандры, Альберта и Маргарет, проживших вместе долгую жизнь и лишь в преклонном возрасте осознавших всю неоднозначность своего жизненного опыта. Однако, (   Читать дальше...   )Производство: Россия | «Process»Жанр: ТрагикомедияРежиссер: Николай ГостюхинАктеры: Ксения Отинова, Алексей Каракулов, Дмитрий Нескоромный, Екатерина Мудрая, Александр СмирновСубтитры: ОтсутствуютПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D401376ABCCD135FA113FACED01C765C2F3DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645196   (232868) от 08.07.2023
-
-Путешествие с домашними животными (2007) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это трогательная история о жизни 35-летней женщины Натальи, муж которой внезапно умирает. Наталья остается одна вдали от людей со своими домашними животными на заброшенном полустанке. Она родилась и выросла в детском доме и совсем не знает жизни...Производство: Россия / Кинокомпания «Слон»Жанр: драма, мелодрамаРежиссер: Вера СторожеваАктеры: Дмитрий Дюжев, Ксения Кутепова, Евгений Князев, Тимофей Трибунцев, Ольга Гнедич, Тамара Хлебникова, Алексей Гаврилов, Вадим Афанасьев, Олег Билик, Полина НечитайлоСубтитры: отсутствуютПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C72583916E3EEDCE9FBCF6C3441B71521A6E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111013   (232525) от 28.05.2022
-
-Затерянные в лесах (2012) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232525.jpg" />
-</div>
-
-
-###  Подробнее
-
-В результате крушения частного самолета над глухими лесами погибают крупный бизнесмен — хозяин химического комбината — и его помощник. Выжила лишь дочь бизнесмена — Маша. Девушка бродит по лесу пока не натыкается на лесника, ветерана военной разведки — Владимира, который осознанно выбрал жизнь отшельника…Производство: РоссияЖанр: Мелодрама, ДрамаРежиссер: Виктор ТатарскийАктеры: Кирилл Сафонов, Вера Баханкова, Инна Корнышева, Сергей РублёвПродолжительность: 01:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2628D7652F22EF4B4AAB5DFF84D433CBDF2EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635831   (232208) от 27.05.2023
-
-Выйти из группы (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток, находясь в поисках своего места в мире, попадает в группу социальной сети, которая набирает ребят в загадочное братство. Пройдя через серию испытаний, подростки должны доказать, что они особенные. Очередным заданием является реальное убийство. Одумавшись, герой должен спастись от вчерашних «друзей» и разоблачить настоящих преступников.Производство: РоссияЖанр: триллер, боевик, драмаРежиссер: Мария ТумоваАктеры: Евгений Кунцевич, Зоя Мансурова, Владислав Ходосевич, Виктория Толстоганова, Михаил Горевой, Александра Бабаскина, Максим Филь, Анна Чурина, Марина Куделинская, Лев СемашковСубтитры: отсутствуютПродолжительность: 01:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABDEA9B0D541FE30204DCF874554A5F9B04AEE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

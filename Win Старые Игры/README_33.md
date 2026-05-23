@@ -1,3 +1,29 @@
+###  Публикация: 1146835   (138133) от 30.12.2020
+
+RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
+
+>>Win Старые Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вперед, за славой и богатством! Постройте самые большие, скоростные и захватывающие дух горки, которые только могут быть в парке развлечений. Сможете ли вы сделать свой непредсказуемый бизнес прибыльным? Станете ли вы настоящим магнатом? Одна из лучших игр знаменитой серии Tycoon с отличной игровой механикой и приятной графикой, которую интересно проходить снова (   Читать дальше...   )Тип издания: LicenseРазработчик: Chris Sawyer ProductionsЖанр: Strategy (Manage, Busin., Real-time), IsometricЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC3225FE030F179890EECD778B68E90277CF618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088554   (137875) от 31.12.2016
 
 Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
@@ -6,7 +32,7 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +58,7 @@ Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137261.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +110,7 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137186.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Nexus - The Jupiter Incident (2004) [Ru/Multi] (1.03) Repack seleZen
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +162,7 @@ FlatOut 2 (2006) [Ru] (1.2) Repack Necros
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136819.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +188,7 @@ STAR FLEET II: Krellan Commander (1989) [En] (2.0.17) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136781.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +214,7 @@ Crysis (2007) [Ru] (1.1.1.6156) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +240,7 @@ Bioshock [En] (Steam-Rip/1.1) 2007 | R.G. GameWorks
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +268,7 @@ Operation Steel Tide (2002) [Ru] (1.0) Unofficial
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +294,7 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134473.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +320,7 @@ STAR WARS Empire at War (2006) [Ru/En] (1.120/1.121/dlc) Repack dixen18 [Gold Pa
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134407.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +346,7 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131787.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +375,7 @@ Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +401,7 @@ Enclave [Ru/En] (RePack) 2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130588.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -409,7 +435,7 @@ Star Trek: Starfleet Command III (2002) [Ru/En] (1.00) Unofficial
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -435,7 +461,7 @@ Combat Mission: Beyond Overlord / Линия фронта. Нормандия (2
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -461,7 +487,7 @@ Need for Speed: Carbon (2006) [Ru/En] (1.4) Repack Decepticon [Collector's Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -487,7 +513,7 @@ Need for Speed: Most Wanted (2005) [Ru/Multi] (1.3) Repack Decepticon [Black Edi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -513,7 +539,7 @@ Need for Speed: Underground 2 (2004) [Ru/En] (1.2) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -539,7 +565,7 @@ Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,7 +591,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -591,7 +617,7 @@ Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+/0.95) Repack/Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,7 +643,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -643,7 +669,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -654,32 +680,6 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687464   (125500) от 27.12.2023
-
-X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack alexalsp
-
->>Win Старые Игры
->>Simulation (Flight/Space)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение высоко оцененной стратегии X3: The Threat включает в себя новый 3D-движок, новый сюжет, корабли и элементы геймплея, с которыми вселенная Х станет еще разнообразнее. Экономика в «X3: Воссоединение» стала еще более комплексной, чем в предыдущих частях серии. Неигровые персонажи самостоятельно торгуют и строят фабрики, войны влияют на положение дел в экономике, (   Читать дальше...   )Тип издания: RepackРазработчик: EgosoftЖанр: Симулятор, ЭкшныЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A096C13D9D578364906980A24EB2230D9396B819
 ```
 
 https://mybot314.ru/tekegram_catalog/

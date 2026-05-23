@@ -1,3 +1,82 @@
+###  Публикация: 1840803   (1047536) от 07.12.2025
+
+FolderSync Pro v4.8.2 Mod by Number one' [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+FolderSync обеспечивает простую синхронизацию файлов в облачным хранилище и в локальных папках на SD-картах устройства. Он поддерживает широкий спектр различных облачных провайдеров и файловых протоколов и постоянно добавляется множество новых платформ. Доступ к корневому файлу поддерживается на рутированных устройствах.Тип издания: Mod LiteРелиз состоялся: 07.12.2025Разработчик: Tacit DynamicsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Английский, Русский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE7857AE9333481A0AD56B85C117693CFAA82AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840782   (1047530) от 07.12.2025
+
+Vanced Tube v5.5.80.195 Mod by TRUMods [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Vanced — это модифицированная версия YT, которая включает в себя различные улучшения, такие как отсутствие рекламы, автоматический пропуск заставок и рекламы в середине видео, фоновое воспроизведение, регулировку громкости и яркости и многое другое.Тип издания: ModРелиз состоялся: 07.12.2025Разработчик: getvanced2020@gmail.comПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104C4EE8B5DF9C27E07B99C712CE08B9C3CC9B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840608   (1047508) от 06.12.2025
+
+Радио онлайн - PCRadio v2.8.0.3 Mod by Alex.Strannik [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Мощный клиент для прослушивания интернет-радио. Присутствует возможность смены качества аудиопотока. Поддерживается вывод 32 битного звука. В наличии обширный каталог с категориями и возможностью поиска.
+Радио онлайн - PCRADIO Более 8 лет является лидером в области интернет вещания, благодаря технологии экономии трафика и сохранения отличного качества звука радиостанций. (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 06.12.2024Разработчик: PCRADIOПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB22D470C8DF27A388D70F19FB770AF47F08ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840581   (1047507) от 06.12.2025
 
 PhotoDirector v20.8.0 Mod by Balatan [Ru/Multi]
@@ -6,7 +85,7 @@ PhotoDirector v20.8.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Web Video Cast | Browser to TV (Chromecast/DLNA/+) v5.12.8 Mod by Balatan  [Ru/M
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +137,7 @@ DNS Changer Pro v1.4.2 Mod by Balatan [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +164,7 @@ Night clock / Ночные часы v2.11.7 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047485.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +218,7 @@ Moon+ Reader Pro v10.3 (b1003000) Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047483.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +244,7 @@ Relax Rain: sleeping sounds v9.1.0 Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047482.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +270,7 @@ OsmAnd+  Карты & GPS Офлайн v5.2.12 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +296,7 @@ AI Photo Editor Pro - Polish v1.694.240 Mod by Mixroot [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047372.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +322,7 @@ Daff Moon Phase (Фазы Луны) v3.51 Mod by shv7net [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047363.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +349,7 @@ Auto Reply: автоответчик v6.2 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -296,7 +375,7 @@ Pencil Photo Sketch : Drawing v2.2.61 Mod by PieMods [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -322,7 +401,7 @@ Revo Uninstaller Mobile v3.4.480G Mod by derrin [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -349,7 +428,7 @@ Grok - ИИ ассистент v1.0.82-release.02 Mod by kljovyj [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -375,7 +454,7 @@ Email Aqua Mail - Fast, Secure v1.56.0 Pro Mod by Balatan [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +481,7 @@ Strava: бег, велоезда, хайкинг v440.11 Mod by PieMods [Ru/Mult
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +507,7 @@ Exo Player - Видеоплеер и IPTV v2.1.0 Mod by Alex.Strannik [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047289.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -454,7 +533,7 @@ Word Surf - Игра в слова v4.3.5 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,7 +585,7 @@ Words of Wonders: Игра в слова v5.3.8 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -532,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -558,7 +637,7 @@ Horary Chart / Астрология: Хорарная Карта v4.1.4 [Ru/Mult
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047172.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -584,7 +663,7 @@ Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -595,85 +674,6 @@ Astrological Charts / Астрологические Карты Pro v11.1.10 [Ru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F787BD6F4021C0EC15CC6EC1C7AB3575BC7437D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840214   (1047170) от 03.12.2025
-
-Начни бегать v5.16 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный помощник для желающих начать тренироваться посредством бега и спортивной ходьбы. Подборка готовых планов упражнений. Возможность создания собственного плана занятий. Статистика тренировок.
-Начать бегать? Легко! Не думай о дистанции, темпе, скорости. Все это потом. Слушай инструкции и беги так, как тебе комфортно. Не фокусируйся на технике бега. Самое важное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.12.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB755627D2D35BCBD432B39279DBA5246F1F691A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840220   (1047169) от 03.12.2025
-
-Карта Метро v3.2.12 Mod by Alex.Strannik [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение построит для Вас маршрут в метро и сэкономит Ваше время. Схема метро будет полезна как туристам, которые только в первый раз спускаются в метро и боятся заблудиться, так и местным жителям, чтобы оптимально рассчитать время на поездку в метро. С помощью приложения Вы сможете построить оптимальный маршрут в метро от одной станции до другой с расчетом времени (   Читать дальше...   )Тип издания: ModРелиз состоялся: 03.12.2025Разработчик: Involta appПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5FE00A68F11E407563F19330141B31C19A1F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840217   (1047168) от 03.12.2025
-
-Коммуналочка v2.5.18 Mod by Alex.Strannik [Ru/En/Pl/Ua]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа позволяет вести статистику за показаниями счетчиков воды, электроэнергии, газа и любыми другими коммунальными расходами, отслеживать и анализировать динамику расходов по счётчикам.Тип издания: ProРелиз состоялся: 02.12.2025Разработчик: Artem KrutПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Польский, Украинский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C674AB5F28298B311FBBFEF98360A63EA972B53
 ```
 
 https://mybot314.ru/tekegram_catalog/

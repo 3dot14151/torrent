@@ -1,109 +1,3 @@
-###  Публикация: 1008033   (819659) от 16.04.2016
-
-Павел Клушанцев | Отзовитесь, марсиане! (1968) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга об открытии и изучении Марса. Читатель узнает о том, как на протяжении столетий менялись представления людей о Марсе и как с началом космической эры развеялись многие легенды, окружавшие эту таинственную планету.Жанр: Научная фантастика детямФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531E7DAECFF1014C5DB7CA2F42E658C0541FB2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776541   (818267) от 12.04.2014
-
-Наталья Забила | Веселые друзья (1978) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы и сказки. Для детей младшего возраста.
-Перевод с украинского Е.Благининой. Рисунки Л.Гармызы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3132D01FA1343DFA8C02EDB8A621614321ED6B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 655924   (817971) от 14.05.2013
-
-Татьяна Бокова | Мои игрушки [2009] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817971.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли замечательные стихи. Веселые и поучительные, озорные и воспитательные - читайте их детям.
-Книга для чтения родителями детям. Интересные стихи с красочными иллюстрациями.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA0CC5B6584ED013954C9B52AE94C469D0D5B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382754   (817540) от 12.05.2020
-
-Катрина Чармен | Последний огнеястреб. Тлеющий камень (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тьма наползает на волшебную страну Перодию. Властный стервятник Торн хочет уничтожить её с помощью тёмной магии и целой армии шпионов. Юный совёнок Тэг стремится сражаться со злом. Вместе с лучшей подругой, белкой Скайлой, он встречает последнего из огнеястребов – могучих и мудрых птиц-защитников. Но этот огнеястреб – ещё совсем птенец, а Тэг и Скайла так малы… Хватит (   Читать дальше...   )Жанр: Фантастика, Сказки для детейПеревод: Анастасия ИвановаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B0691A828EC29035E547EDDC1492EB979F5312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382771   (817538) от 12.05.2020
 
 Кейт О'Хирн | Пегас. Пламя Олимпа (2020) [EPUB]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -166,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817391.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817383.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -428,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -509,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -649,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811889.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -678,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -691,6 +585,116 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:788EAF678904F62219298BD6DD599D86597C1AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198037   (811782) от 09.01.2018
+
+Нил Гейман | Одд и Ледяные Великаны (2014) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Если вам нравится блуждать по мирам, так похожим на наш, но в которых сохранилась древняя магия и где юный герой, выходя за порог дома, попадает прямиком в Приключение – эта книга для вас.
+В ней есть захватывающий сюжет, глубина, тонкость, юмор, злое колдовство и добрые чары, говорящие звери и мир, который ждет весны. Странный мальчик Одд проведет вас по самым удивительным (   Читать дальше...   )Жанр: Фантастика для детейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9D708039DA17E39B1E38E97408274CCFB4E90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441744   (811692) от 23.10.2021
+
+Братья Гримм | Сказки [2010] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сказки братьев Гримм в переводе Петра Полевого.
+ Украшают книгу волшебные иллюстрации немецкого художника XIX века Германа Фогеля, которые органично дополнили стилизованные черно-белые рисунки американского художника рубежа XIX-XX веков Джонни Груэлла.
+
+ Блестящий фокус с оформлением: искусственно состаренные обложка и форзац, якобы потрепанные уголки страниц, «пятна (   Читать дальше...   )Жанр: Детская литература, сказки, классикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CAFF16531E3C9D599B2B316FB5DA925AE2B69C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118662   (811667) от 26.03.2017
+
+Юлия Иванова | Громикус против Клокудры (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что делать двум талантливым волшебникам, если они не могут найти общий язык? Конечно, устроить великую магическую дуэль — техномагия против природного волшебства. И пусть победит сильнейший!
+
+А можно ли спасти Новый год, когда даже сам Дед Мороз уверен, что праздника не будет? Сделать это непросто, но всегда есть возможность изменить всё к лучшему, если рядом надёжный (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD13084AF2D6B8DF6B17BCF189B74E2B2F9494F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118674   (811653) от 26.03.2017
+
+Тамара Крюкова | Калоша Волшебника (2011) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Однажды рассеянный Волшебник потерял калошу, которая жила у него так долго, что и сама научилась творить чудеса. Отправившись в путешествие, Калоша встречается с разными ребятами. Среди них и забияка, и трус, и лентяй, и врунишка. Для каждого у Калоши припасена своя волшебная история. Она помогает ребятам взглянуть на себя со стороны и измениться к лучшему. Не зря (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F029F253F0E2132E98E78076483A0BE5F201ED26
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1446918   (1031952) от 12.02.2021
+
+100 тысяч минут вместе / 100 000 минут вместе (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+История о супругах, которые после 7 лет брака оказываются на 69 дней запертыми на карантине в собственном доме. Он — успешный пилот, она — фитнес-тренер, которой так же не занимать уверенности в себе. Смогут ли эти два лидера пройти все испытания самоизоляцией?Производство: Украина | «Квартал 95»Жанр: КомедияРежиссер: Руслан ХанумакАктеры: Руслан Ханумак, Дарья Рыбак, Альбина Гончар, Дария Кулиш, Людмила Кибенко, Василий Зверев, Тая ДмитренкоЯзык озвучки: РусскийПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263DC5E3B0C63EF38C184C26AB99583897FC3AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444872   (1031947) от 12.02.2021
+
+100 тысяч минут вместе / 100 000 минут вместе (2021) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+История о супругах, которые после 7 лет брака оказываются на 69 дней запертыми на карантине в собственном доме. Он — успешный пилот, она — фитнес-тренер, которой так же не занимать уверенности в себе. Смогут ли эти два лидера пройти все испытания самоизоляцией?Производство: Украина | «Квартал 95»Жанр: КомедияРежиссер: Руслан ХанумакАктеры: Руслан Ханумак, Дарья Рыбак, Альбина Гончар, Дария Кулиш, Людмила Кибенко, Василий Зверев, Тая ДмитренкоЯзык озвучки: РусскийПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2787260C913A252AE1D6D8516BD56BE6A97DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444602   (1031945) от 12.02.2021
+
+100 тысяч минут вместе / 100 000 минут вместе (2021) WEB-DLRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+После 7 лет брака супруги переживает непростой этап. Он – успешный пилот, она – фитнес-тренер, которой не занимать уверенности в себе. Как и все, пара на 69 дней закрывается на самоизоляцию из-за карантина.Производство: Украина / Студия Квартал 95Жанр: КомедияРежиссер: Руслан ХанумакАктеры: Руслан Ханумак, Дарья Рыбак, Альбина Гончар, Дария Кулиш, Людмила Кибенко, Василий Зверев, Тая ДмитренкоЯзык озвучки: РусскийПродолжительность: ~00:24:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA15128B2A0C8B1087C5589613B5E66FBA1B7234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448859   (1030447) от 19.02.2021
 
 Любовь без памяти (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
@@ -6,7 +84,7 @@
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029907.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028873.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026359.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024994.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023659.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021906.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -590,84 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:693025C097435ACB7ECE9A1F7E125EE8CA47535C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461319   (1021898) от 09.04.2021
-
-Гадалка (2021) WEBRip (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя работает медсестрой в областном городке. Девушка обладает даром ясновидения, но считает свои мистические способности психическим отклонением. Волею судьбы она переезжает в столицу и начинает работать в полицейском участке. Там она осознает, что ее дар – вовсе не недостаток, и с его помощью находит разгадки в самых запутанных криминальных делах. Приняв себя, (   Читать дальше...   )Производство: Украина / «IQ Production»Жанр: детектив, мелодрама, мистикаРежиссер: Олег ЗборовскийАктеры: Ирина Авдеенко, Антон Батырев, Анастасия Цымбалару, Леся Самаева, Владислав Никитюк, Александр Пожарский, Владимир Абазопуло, Григорий Бакланов, Юрий Высоцкий, Виктор Жданов и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9880047DD049ED75FF97500705D3AA522D26795B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460864   (1021875) от 09.04.2021
-
-Гадалка (2021) WEBRip [H.264] (сезон 1, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Катя работает медсестрой в областном городке. Девушка обладает даром ясновидения, но считает свои мистические способности психическим отклонением. Волею судьбы она переезжает в столицу и начинает работать в полицейском участке. Там она осознает, что ее дар – вовсе не недостаток, и с его помощью находит разгадки в самых запутанных криминальных делах. Приняв себя, (   Читать дальше...   )Производство: Украина | «IQ Production»Жанр: Мистика, детектив, драмаРежиссер: Олег ЗборовскийАктеры: Ирина Авдеенко, Антон Батырев, Анастасия Цымбалару, Леся Самаева, Владислав Никитюк, Александр Пожарский, Владимир Абазопуло, Григорий Бакланов, Юрий Высоцкий, Виктор ЖдановЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B75F09064328ABE41B1C0429D2EF90E852F08D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458887   (1021847) от 09.04.2021
-
-Папик (2021) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-16 из 16)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021847.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении истории актёр на пенсии Александр Меркулов снова пытается начать новую жизнь. Только теперь не со смены имиджа, а с выхода из тюрьмы. Ведь дольче вита в чужом особняке с гламурной охотницей за «папиками» Лизой обернулась заключением в камере. Тем временем Лиза после удачного выступления в телешоу попадает в поп-группу и уезжает в первое турне. Хотя (   Читать дальше...   )Производство: Украина / "Квартал 95"Жанр: комедия, мелодрамаРежиссер: Андрей ЯковлевАктеры: Станислав Боклан, Дарья Петрожицкая, Сергей Сипливый, Олеся Жураковская, Екатерина Кистень, Вера Кобзарь, Вячеслав Гиндин, Михаил Кукуюк и др.Язык озвучки: русскийПродолжительность: ~00:35:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E653A7E7EABEC6A36A661FFAFD7C4869C33CA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

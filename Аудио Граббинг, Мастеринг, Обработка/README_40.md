@@ -1,3 +1,137 @@
+###  Публикация: 1784185   (25211) от 09.03.2025
+
+Mario Nieto - Chord Generator 1.1.0 Standalone, VSTi 3 (x64) RePack by BUBBiX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Chord Generator — это MIDI-инструмент, который генерирует аккорды с неожиданными, волшебными вариациями.
+Раскройте весь потенциал вашего музыкального производства с помощью Chord Generator, инновационного инструмента для создания сложных гармоний и динамических ритмов. Благодаря таким функциям, как режим повторного запуска, бренчание и повторение нот, этот универсальный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2626C1D9ABE3DF9E96DBAE44534F41C63ED519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784305   (25091) от 10.03.2025
+
+EAS Audio - TapeStop 1.0.2 VST 3 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+TapeStop эмулирует эффект деформации, возникающий при остановке катушечного магнитофона во время воспроизведения. Остановка «виртуальной ленты» постепенно замедлит затронутую дорожку до полной остановки, а повторный запуск виртуальной ленты ускорит воспроизведение до нормальной скорости.
+Однако в отличие от физического магнитофона TapeStop гарантирует, что после (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789B771D4EE3E252CB027BA338CA30515884FB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784459   (24977) от 11.03.2025
+
+Sonic Academy - KICK 3 1.1.2 VSTi 3, AAX (x64) RePack by BUBBiX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Наш отмеченный многочисленными наградами плагин для ударных инструментов KICK получил монументальное обновление.
+KICK 3 позволяет вам без усилий создавать и формировать идеальную бас-бочку, адаптированную под ваши треки, теперь с новаторскими новыми функциями, которые выводят дизайн звука на новый уровень.
+Больше не ограничиваясь синтезом субэлементов самостоятельно, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:259D39D73C71665DB9B85CE89083A30F6A900BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785380   (24571) от 15.03.2025
+
+Plugin Alliance & Kiive Audio - Tape Face 1.1.1 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Tape Face - Реалистичная эмуляция ленты с дополнительными характерными и цифровыми функциями. Все вибрации настоящей аналоговой ленты и многое другое. Некоторые из наиболее распространённых на рынке эмуляторов высококачественных магнитофонов могут быть слишком незаметными, и возникает вопрос: «А эта штука вообще работает»? Вот почему Tape Face от Kiive Audio смоделирован (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E17ACF7AC255275B6E03EE7722FEE8C4A3FE95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785574   (24473) от 16.03.2025
+
+Tone Empire - ELUX 1.0.0 VST 3, AAX RePack by BUBBiX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в непревзойденную звуковую палитру с E-LUX — оптическим компрессором премиум-класса, тщательно разработанным для придания вашему вокалу и инструментам «дорогого» звучания лампового оборудования высокого класса. Используя наше запатентованное нейронное моделирование NM2, E-LUX достоверно передает суть классической компрессии на ламповых усилителях.​ (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E05CEC00B676AAA650ACF513CB6CD4F6D7F6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786176   (24150) от 19.03.2025
 
 Process Audio - Protility 1.1.0 VST 3, AAX [En]
@@ -6,7 +140,7 @@ Process Audio - Protility 1.1.0 VST 3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +166,7 @@ u-he - TyrellN6 3.0.0 rev.16947 Beta VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24148.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -59,7 +193,7 @@ Mixland - 280 PRE 1.0.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_24143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -85,7 +219,7 @@ GoldWave 7.02 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -111,7 +245,7 @@ GoldWave 7.02 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23451.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -137,7 +271,7 @@ u-he - Presswerk 1.1.6 VST, VST 3, AAX, CLAP (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -165,7 +299,7 @@ Sonic Academy - ANA 2 2.5.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -191,7 +325,7 @@ Synchro Arts Complete 27.03.2025 STANDALONE, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -217,7 +351,7 @@ nakst - Apricot 1.1.32 (x86/x64) FL Studio Native, CLAP [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -243,7 +377,7 @@ Supertone Clear 1.1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -270,7 +404,7 @@ Fors - Sala 1.0 VST 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23001.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -297,7 +431,7 @@ Forever 89 - Topos 1.0.0 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -323,7 +457,7 @@ Infected Sounds - Sphinx 7.0.3 VSTi 3 + Expansions [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21835.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -349,7 +483,7 @@ Steinberg - HALion 7 7.1.30 STANDALONE, VSTi 3, AAX (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20887.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -376,7 +510,7 @@ Mensla - Stereo Tool 1.1 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -402,7 +536,7 @@ BlepFX - Filtrr 1.0.0 VST 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -429,7 +563,7 @@ Kazrog - Retro STA-LEVEL 1.0.0 VST, VST 3, AAX (x64) Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -455,7 +589,7 @@ Audiority Complete Effects Bundle 2025.4.16 STANDALONE, VST, VST 3, AAX, CLAP (x
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20471.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -482,7 +616,7 @@ Arturia - Pigments 6.0.3 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -509,7 +643,7 @@ Arturia - Pure LoFi 1.0.0 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -536,7 +670,7 @@ Arturia - Jup-8000 V 1.0.0 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -548,139 +682,6 @@ Jup-8000 V впервые переносит культовый синтезат
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E810E505ACE1856C6208A9AFB702A10B96226C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793590   (20266) от 25.04.2025
-
-Excite Audio - Bloom Vocal Choir 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloom Vocal Choir представляет вам платформу для создания собственного хора и глубокого погружения в вокальную гармонию.
-Хоровая музыка охватывает столетия. От ранних классических композиторов, таких как Вивальди и Бах, до современных музыкантов, таких как Нильс Фрам, Джон Хопкинс и Ханс Циммер, вокальные хоры прокладывали свой путь через музыку как эмоциональные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BBFF41B540A72D92F2E1CD13828382E731F6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794565   (19880) от 29.04.2025
-
-Denise Audio - Bass XXL 1.3.0 VST, VST 3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bass XXL предлагает более эффективный способ добиться насыщенных и стабильных низких частот, характерных для современных миксов. Благодаря запатентованному алгоритму, создающему гармоники выше основной частоты, ваши басы будут звучать лучше даже в наушниках и небольших динамиках.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08718DD0DD2ED36B7BE6C7064261AAF2CEAE3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794564   (19845) от 29.04.2025
-
-Modern Music Solutions - Sub-Lif 1.0.0 VST 3, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите плотные и пробивные низкие частоты в каждой песне.
-Sub-Lift имеет два невероятно простых в использовании режима, которые используют гармоники и психоакустику для создания эффекта глубоких нижних частот — идеально подходит для усиления любого басового инструмента без потери запаса по громкости.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82FC10541A47C551A7B15E30A38795114438F0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794699   (19759) от 30.04.2025
-
-GForce Software & Oberheim - TVS Pro 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19759.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1975 году Том Оберхайм произвел революцию в дизайне синтезаторов, выпустив оригинальный TVS – Two Voice Synthesizer. Объединив два SEM и клавиатуру, он представил миру настоящую дуофонию, позволив музыкантам играть двумя независимыми голосами одновременно и исследовать гармонически богатые, развивающиеся звуковые ландшафты. Это был смелый шаг вперед, принятый такими (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8E5FE63CB033EDFFCA0669D5BD586C3929A90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794700   (19758) от 30.04.2025
-
-GForce Software & Novation - Bass Station 1.0.1 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальная Novation Bass Station, выпущенная в 1993 году, славится своим грубым, пробивным и безошибочно узнаваемым аналоговым характером. Разработанная в период доминирования цифровых синтезаторов, Bass Station вернула аналоговое тепло и зернистость в центр внимания, сделав его культовым фаворитом среди продюсеров.
-Novation Bass Station от GForce, оставаясь в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2B67DF5ECB7011CF37C7D06DF99A3DD45F9BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

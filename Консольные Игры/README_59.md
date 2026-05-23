@@ -1,29 +1,3 @@
-###  Публикация: 1345768   (165471) от 16.12.2019
-
-Brothers in Arms: Hell's Highway (2008) [PS3] [USA] 2.42 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
-
->>Консольные Игры
->>PS3
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Brothers in Arms занимает почетное место среди проектов, посвященных Второй мировой войне. Brothers in Arms: Hell's Highway является третьей частью в серии Brothers in Arms, в которой рассказывается о 101 воздушно-десантной дивизии во времена Второй мировой войны. Действие игры происходит через четыре месяца после операции «Оверлорд». Вы встретите известных (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action, Shooter, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287544D76AB059B9A0E77343A25A1850F9B1E527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346066   (164743) от 17.12.2019
 
 Final Fantasy X | X-2 HD Remaster (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PRO ISO] [Repack] [Ru/En]
@@ -32,7 +6,7 @@ Final Fantasy X | X-2 HD Remaster (2014) [PS3] [EUR] 4.53 [Cobra ODE / E3 ODE PR
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +33,7 @@ Manhunt (2003) [PS2] [NTSC] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +59,7 @@ Gray Matter / Gray Matter. Призраки подсознания (2011) [Xbox3
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +85,7 @@ Double Dragon Neon (2012) [Xbox360] [RegionFree] FreeBoot [XBLA] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +111,7 @@ Halo 3 (2007) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. DShock
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +137,7 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +164,7 @@ Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156093.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +190,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +216,7 @@ I Am Alive [PS3] [PSN] [RUS] [NTSC] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +242,7 @@ Red Dead Redemption (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +268,7 @@ Mario Kart 8 Deluxe (2017) [Switch] [EUR] 16.1.0 [NSZ] [License / 3.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +294,7 @@ Unravel Two (2019) [Switch] [USA] 9.1.0 [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +320,7 @@ Guitar Hero Van Halen (2009) [PS3] [USA] 3.01 [Cobra ODE / E3 ODE PRO ISO] [Lice
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153769.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +349,7 @@ Terraria (2013) [PSVita] [EUR] 3.60 [HENkaku][License] [En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -401,7 +375,7 @@ MX vs. ATV: Reflex (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -427,7 +401,7 @@ Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -453,7 +427,7 @@ Grid Autosport (2019) [Switch] [USA] 9.0.1 [NSZ] [License / DLC / 1.5_46790] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -479,7 +453,7 @@ FIFA 19 Legacy Edition / FIFA 19 Издание Legacy (2018) [PS3] [EUR] 4.82 [
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -505,7 +479,7 @@ Motorstorm: Pacific Rift [PS3] [PAL] [RUSSOUND] [2.42] [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -531,7 +505,7 @@ MotorStorm: Apocalypse [PS3] [PAL] [RUSSOUND] [3.56] [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -557,7 +531,7 @@ R.U.S.E. (2010) [PS3] [EUR] 3.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [MO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +557,7 @@ Back To The Future: The Game (2012) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO ISO
 >>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150983.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -610,7 +584,7 @@ I am Setsuna (2016) [PSVita] [JAP] 3.60  [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -636,7 +610,7 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -662,7 +636,7 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -673,6 +647,32 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A7F84A2853CE6EADC97353337DC09B481D998E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969537   (146477) от 27.12.2015
+
+Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Region Free] FreeBoot [Unofficial] [Ru] | R.G. X360Club
+
+>>Консольные Игры
+>>Xbox 360
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Юной сове-стражу по имени Шард (Shard) предстоит защитить Великое Дерево Га'Хуул от новой опасности, исходящей из темной страны Pure Ones. Станьте стражем - крылатым воином с острыми когтями и могучими крыльями. Отправляйтесь в путешествие по волшебному миру и защитите земли Га'Хуул, пока еще не стало слишком поздно.Тип издания: UnofficialРазработчик: Krome StudioЖанр: Arcade, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD167AFD967438856CCF85B0F36AF1D68C9CBA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

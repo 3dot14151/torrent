@@ -1,3 +1,85 @@
+###  Публикация: 1680809   (133772) от 30.11.2023
+
+Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cleric | Великий святой [2023, TV, 12 из 12] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Офисного клерка убивают перед долгожданным повышением, но милостивый Бог дарует ему новую жизнь в другом мире. Люциэль выбирает профессию целителя и решает в этот раз уж точно достичь успеха. Однако вскоре он узнает, что в этом мире целителей не слишком жалуют.
+© crunchyrollПроизводство: Япония / Студия Yokohama Animation Lab, Cloud HeartsЖанр: комедия, фэнтезиРежиссер: Тамагава МасатоЯзык озвучки: Японский, русский (AniLibria)Субтитры: Русские (Сrunchyroll)Продолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B7B1B9F703D7DB0BC0208121FFFDAF61593B17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680735   (132914) от 02.12.2023
+
+Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - The Laughing Man | Призрак в доспехах: Синдром одиночки - Дело о смеющемся человеке [2005, OVA] BDRip 1080p raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В будущем грань между виртуальный и физическим мирами заметно стёрлась, кибертроника изменила жизнь человечества до неузнаваемости, создав новый синтетический уровень существования и сведя людей в единую Сеть. Однако сближение живых организмов и машин оказалось чревато опаснейшими последствиями, предоставив злоумышленникам невиданные доселе возможности манипулирования (   Читать дальше...   )Производство: Япония / Production I.GЖанр: Киберпанк, фантастика, боевик, детектив, криминалРежиссер: Камияма Кэндзи / Kamiyama Kenji / 神山健治Перевод: Kametsu (английский, srt), Rei (русский, srt), toph (русский, srt + ass)Язык озвучки: Японский (оригинал), английский дубляж (Kametsu project), русский одноголосый любительский (Алекс Килька)Субтитры: Русские, АнглийскиеПродолжительность: один эпизод 2 ч. 40 м.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF39B35E66BEE23C48BC28FA0AEA4E341959010E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681477   (132641) от 03.12.2023
+
+Красавица: Унеси меня на Луну [ТВ-2] | Tonikaku Kawaii 2 | Tonikawa: Over the Moon for You 2 [2023, TV, 12 из 12] BDRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+История о милой паре молодожёнов продолжается! Однажды Наса Юзаки чуть не попал под грузовик, но его спасла загадочная девушка Цукаса. Он ей сразу же признался в чувствах, но она согласилась встречаться лишь в том случае, если они поженятся... Через несколько лет Цукаса и правда объявилась, и они начали жить вместе как самая настоящая семейная пара. С тех пор они (   Читать дальше...   )Производство: Япония / Студия Seven Arcs, Tengu KoubouЖанр: комедия, романтикаРежиссер: Икэхата ХиросиЯзык озвучки: Русский двухголосый, многоголосый закадровый; Японский
+- Cleo-chan, Nuts (AniLibria.TV)
+- GimerHade, Muroi, Vel, Rurirururi (ShikokuStudio)
+- Myaurik, WoZWaLD, Abe, Akemitsuki, Veda (AniBaza)(   Читать дальше...   )Субтитры: Русские (софтсаб на надписи и полные) (AniLibria.TV); (Crunchyroll)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57B4EAF4F6908A9C1901B86F6B1987BE1A9F92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681574   (132286) от 04.12.2023
 
 Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 1080p 10-bit raw+rus
@@ -6,7 +88,7 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +114,7 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -88,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -114,7 +196,7 @@ Dekoboko Majo no Oyako Jijou | The Family Circumstances of the Irregular Witch |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -140,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -167,7 +249,7 @@ Watashi no Oshi wa Akuyaku Reijou. | I`m in Love with the Villainess | Я пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -193,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -220,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126828.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -247,7 +329,7 @@ Arknights: Reimei Zensou | Arknights: Prelude to Dawn | Аркнайтс: Пре
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -273,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126800.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -300,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -327,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -354,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -381,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126387.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -408,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -435,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126295.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -462,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -489,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -516,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -543,7 +625,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -569,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125476.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -596,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125446.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -608,86 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA29EFB468B6A2766747A95C68102A6807F142B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667635   (125373) от 28.12.2023
-
-Я выживу с помощью зелий! | Potion-danomi de Ikinobimasu! | I Shall Survive Using Potions! [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нагасэ Каору, молодая офисная работница, неожиданно умерла из-за искажения пространства-времени. Представитель высшей расы, который оказался виноват в её смерти, решил загладить свои вину и отправить её в другой мир, наделив девушку молодым 15-летним телом и читерской способностью: варить невероятно мощные зелья! Но жизнь в ином мире оказалась совсем не такой, какой (   Читать дальше...   )Производство: Япония / Студия JumondouЖанр: Комедия, фэнтезиРежиссер: Наканиси НобуакиЯзык озвучки: Русский двухголосый, закадровый; Японский
-- Ditaro, Hekomi (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71A4CF7B83E988FC8E58FE2E8B27300BE1E7B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688265   (125344) от 28.12.2023
-
-Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сила святых вокруг нас [ТВ-1] [2021, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь — Сэй! Двадцати с хвостиком летняя трудоголичка и просто офисная работница. Одной прекрасной ночью, когда она вернулась с очередных сверхурочных, её опутал тёплый и яркий свет. Девушку призвали в другой мир, чтобы она стала святой… Однако ж, жертвой столь вероломного «похищения» оказалась не только она! Вместе с Сэй призвали ещё и старшеклассницу, которая (   Читать дальше...   )Производство: студия Diomedea / ディオメディアЖанр: повседневность, романтика, фэнтезиРежиссер: Ибата СётаЯзык озвучки: Японский, русский (AniLibria, Wakanim)Субтитры: Русские (Wakanim)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688274   (125342) от 28.12.2023
-
-Наш дождливый протокол | Bokura no Ame-iro Protocol | Protocol: Rain [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шун Токиноя — ученик старшей школы, живущий со своей матерью и младшей сестрой. После несчастного случая, в котором погиб его отец и была ранена сестра, он решил завязать с любимой игрой и начал работать в киберспортивное кафе "Фокс Ван". Всё своё время он стал проводить за учебой и работой, изредка общаясь со своими друзьями по играм. Но всё меняется, (   Читать дальше...   )Производство: Япония / Студия QuadЖанр: ПриключенияРежиссер: Ямамото ЯсутакаЯзык озвучки: Русский многоголосый, закадровый; Японский
-- Anzen, HectoR, NeoNoir (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9232AAC99A4604DC3E096223ABB6004F7270853
 ```
 
 https://mybot314.ru/tekegram_catalog/

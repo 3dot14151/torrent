@@ -1,3 +1,90 @@
+###  Публикация: 1516073   (165410) от 12.12.2021
+
+Renton - Birthday Mix (2018) [FLAC|Lossless|WEB-DL|image + .cue] <Chillout, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Babe Roots feat. Milly James - Sun Is Shinning (3:21)
+02. Twoom - Huntress (4:17)
+03. Kiimyo - Tehran's Rain (4:15)
+04. Mashti/Jean Von Baden feat. Fuat Talay - Bossamor (4:01)(   Читать дальше...   )Жанр: Chillout, Deep HouseПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A974D7DF1628CDF707420056D4CB32FC07082033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517268   (163719) от 14.12.2021
+
+Hodel - Live @ Monday Bar (God Rave The Queen Cruise), Tallink Silja, Sweden (2021-11-06) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto vs. Mark Norman - Flight 643 Overkill (Hodel's AMS Intro Mash)
+02. Randy Katana - Play Gemini Louder (Hodel's Phat Mash)
+03. Divini & Warning vs. Fable - 4LB Nightshift (Hodel Mashup)
+04. Armin vs. M.I.K.E. - Intruder (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327B3B7ABECD6B558BE14C53327DB6858A2E3030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517284   (163705) от 14.12.2021
+
+Tim van Werd - Live @ Pyramid of Austerlitz, Netherlands (2021-12-09) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+01. Tim van Werd - Come Back To Me
+02. Delhia De France, Anyma, Janus Rasmussen - Claire (feat. Delhia De France)
+03. Eel1ke Kleijn - Mont Saint-Michel
+04. Tim van Werd - Tell It All(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD5CB21ABA51E412BF923809D30711739ED5E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518181   (161143) от 18.12.2021
 
 VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP3|320 Kbps] <Progressive House, Deep House>
@@ -6,7 +93,7 @@ VER:WEST (Tiësto) - Tiësto's Club Life 767 (AFTR:HRS Yearmix) (2021-12-11) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -35,7 +122,7 @@ Markus Schulz - Global DJ Broadcast Year in Review (2021) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -64,7 +151,7 @@ Lane 8 - Winter 2019 Mixtape 2019-12-17 [MP3|320 Kbps] <Deep House, Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -93,7 +180,7 @@ Armada Music - Trance Year Mix (2021-12-18) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155848.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -122,7 +209,7 @@ Trance Wax & Genix - Live @ Anjunakitchen London, United Kingdom 2019-12-13 [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155791.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152036.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -209,7 +296,7 @@ Third Party - Live @ Party People, HERE at Outernet London, United Kingdom (2025
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -237,7 +324,7 @@ Nora En Pure - Live @ DJ Mag Top 100 DJs Awards, Bali, Indonesia (2023-11-15) [M
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +353,7 @@ VA - Armin van Buuren - A State Of Trance 1147 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +382,7 @@ David Guetta - Live @ DJ Mag Top 100 DJs Awards, Ibiza, Spain (2023-11-15) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +411,7 @@ Lucas & Steve - Live @ L&S and Friends, Escape, Amsterdam Dance Event (2023-10-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -351,7 +438,7 @@ Symphony of Unity - Live @ Atmosphere Stage, Tomorrowland, Belgium (2023-07-29) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -380,7 +467,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, ADE (2023-10-21) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149248.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -409,7 +496,7 @@ MORTEN - Live @ TESstudio954, United States (2020-12-23) [MP3|320 Kbps] <Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146739.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -438,7 +525,7 @@ Rencontre Nocturne - Recap 2021 (2021) [MP3|320 Kbps] <Electro House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -467,7 +554,7 @@ Armin van Buuren - A State of Trance 1048 XXL (Top 50 of 2021) (2021-12-23) [MP3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145551.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +583,7 @@ VA - Aly & Fila - Future Sound Of Egypt 528 (Top 30) (2017) [MP3|320 Kbps] <Tran
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144109.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -525,7 +612,7 @@ VA - Markus Schulz - Global DJ Broadcast (Classics Showcase 2019) (2018) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -554,7 +641,7 @@ VA - Armin van Buuren - A State Of Trance 1148 (2023) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -583,7 +670,7 @@ Third Party & Kryder - Live @ FUTURE x RELEASE, Ministry Of Sound London (2023-1
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134955.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -612,7 +699,7 @@ Nifra - Live @ Future Heroes of Bigroom Stage, Rave Culture, Q-Factory, ADE (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -641,7 +728,7 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -655,93 +742,6 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681071   (133127) от 02.12.2023
-
-VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zack Martino - Kill My Heart (Evoxel & Antrex Remix)
-02. Ferry Corsten & Diandra Faye - Stay Awake
-03. Alex Sonata & TheRio - Feels Like Home
-04. Ruben de Ronde & Farius & David Frank - Radiant(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681140   (133028) от 02.12.2023
-
-Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piero Pirupa - Change Your Mind (Korolova Remix)
-02. ID - ID
-03. ARTBAT - Remember
-04. ID - ID(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C7749E56E17739637F856F428E8108B1E93558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199034   (132447) от 03.12.2023
-
-Fonarev - Эфиры радиошоу/подкаста «Znaki / Digital Emotions» (2008-2023) [MP3|128-320 kbps]<Trance, House, Breaks>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132447.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Joan Retamero - Through Revival (Ezequiel Arias Remix) /Onedotsixtwo/
-2. Juan Sapia - Magic Moon /Or Two Strangers/
-3. Emika - Battles (Eleven Sins Remix) /Soundcloud/
-4. East Cafe - Being Kind Is Overrated (Sam Heyman Rmx) /Superordinate/(   Читать дальше...   )Жанр: Trance, House, Breaks, TechnoПродолжительность: 790:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3B025BD68B3826D2EFB905818CF4942CB15783
 ```
 
 https://mybot314.ru/tekegram_catalog/

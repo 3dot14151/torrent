@@ -1,3 +1,107 @@
+###  Публикация: 1807854   (10830) от 21.07.2025
+
+Who's at the door? (2025) [Ru/Multi] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в кошмарный мир "Who's at the door?", захватывающего симулятора ходьбы и приключения, где вы оказываетесь запертым в маленьком доме, страдая от психоза и потеряв память. Это не просто игра, это испытание вашей психики, где грань между реальностью и галлюцинациями размывается до предела. Вам предстоит внимательно исследовать окружение, чтобы (   Читать дальше...   )Тип издания: SceneРазработчик: SKONEC EntertainmentЖанр: Приключенческие игры, Инди, СимуляторыЯзык озвучки: Английский, Корейский, Японский, Китайский и другиеЯзык субтитров: Русский, Английский, Корейский, Французский и другиеЯзык интерфейса: Русский, Английский, Корейский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D31EDE953341080D64AB1C224BC6CEBDD1B4C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550250   (10736) от 22.07.2025
+
+Them and Us (2021) [Ru/Multi] (1.1.2/dlc) License GOG [Bundle]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Them and Us - классический хоррор на выживание с уклоном на погружение в атмосферу игры. Узнайте правду о прошлом Алиши, пока она всё глубже погружается в нескончаемый кошмар. На дворе 1978 год. Автобус попал в ужасную аварию на извилистых грунтовых дорогах бескрайней американской пустыни. Выжил лишь один человек.Тип издания: LicenseРазработчик: TendoGamesЖанр: Экшны, Survival, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BFC974F624146537B3FBF24C30908770802B7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775319   (10669) от 22.07.2025
+
+The Plucky Squire / Отважный паж (2024) [Ru/Multi] (1.50.17) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Plucky Squire - это очаровательная экшен-адвенчура, действие которой разворачивается в мире сказок. Игроки берут на себя роль Йота, героя книги сказок, которого выгнал из своей книги злобный Хамгрумп. Протагонист и его друзья открывают трехмерный мир и должны перемещаться между 2D и 3D царствами, чтобы спасти своих товарищей и восстановить хороший финал истории. (   Читать дальше...   )Тип издания: LicenseРазработчик: All Possible FuturesЖанр: Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7310D232832288C2A5D2AB558883CAE843BE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808312   (10506) от 24.07.2025
+
+Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в кошмарный мир "Who's at the door?", захватывающего симулятора ходьбы и приключения, где вы оказываетесь запертым в маленьком доме, страдая от психоза и потеряв память. Это не просто игра, это испытание вашей психики, где грань между реальностью и галлюцинациями размывается до предела. Вам предстоит внимательно исследовать окружение, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: SKONEC EntertainmentЖанр: Приключенческие игры, Инди, СимуляторыЯзык озвучки: Английский, Корейский, Японский, Китайский и другиеЯзык субтитров: Русский, Английский, Корейский, Французский и другиеЯзык интерфейса: Русский, Английский, Корейский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB6150D6637EE6CC26F939B344E5E72A337DFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808395   (10474) от 24.07.2025
 
 to a T (2025) [Multi] (1.0) Repack FitGirl
@@ -6,7 +110,7 @@ to a T (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dread: The Cold Case (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10195.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10176.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ Laser Tag Massacre (2025) [Ru/Multi] (1.2) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10147.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ My Friendly Neighborhood (2023) [Ru/Multi] (1.1.4) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9979.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Luto (2025) [Ru/Multi] (Build 19401226) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack FitGirl [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ Girls Made Pudding (2025) [Multi] (1.2.1) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9775.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Scene Tenoke [Supporter Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ UNDERWARD (2025) [Ru/Multi] (1.2.0.1/dlc) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ MythForce (2023) [Ru/Multi] (1.2.4.2) Repack Let'sРlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9581.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9525.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Wanterlude
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ South of Midnight - новое приключение от Compulsion Games. П�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785115   (9501) от 03.08.2025
-
-Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9501.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей культового хита Scratches и мистической Serena - новое леденящее душу путешествие в самые тёмные глубины вашего разума. ASYLUM - это амбициозное хоррор-приключение от первого лица, погружающее вас в психоделическую атмосферу Психиатрической Лечебницы Ханвелл. В роли бывшего пациента, страдающего от странных видений, вам предстоит исследовать запутанную (   Читать дальше...   )Тип издания: LicenseРазработчик: SenscapeЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F2D47C86267001A451237FDFC72D13DF8F09AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810287   (9459) от 03.08.2025
-
-One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283) Repack Wanterlude
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9459.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Лихо одноглазое» - это мистический хоррор от первого лица по мотивам мрачной народной сказки. Исследуйте таинственный мир игры и разгадывайте загадки, чтобы скрыться от своей лихой доли. Отправляйтесь в захватывающее путешествие по сказочным царствам и изучите странный мир забытых преданий. Погрузитесь в завораживающий кинематографичный черно-белый мир.Тип издания: RepackРазработчик: MorteshkaЖанр: Приключенческие игры, ИндиЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810112   (9438) от 03.08.2025
-
-South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели игр Contrast и We Happy Few представляют South of Midnight - захватывающее приключение от третьего лица, разворачивающееся среди пейзажей Глубокого Юга США. Играя за Хейзел, вы погрузитесь в мифы и легенды и познакомитесь с таинственными созданиями южного фольклора в этом мрачном и причудливом мире. Когда на ее родной город обрушивается катастрофа, Хейзел (   Читать дальше...   )Тип издания: RepackРазработчик: Compulsion GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808738   (9433) от 03.08.2025
-
-Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9433.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще на заре времен народы Башни перестали понимать друг друга и утратили единство. Согласно преданию, однажды некий Путник найдет в себе мудрость разрушить барьеры и восстановить баланс. Изучайте загадочный мир, давно забывший свое прошлое, и откройте для себя его тайны. Действие игры происходит в красочном поэтичном антураже, навеянном мифом о Вавилонском столпотворении. (   Читать дальше...   )Тип издания: LicenseРазработчик: RundiscЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A279299A2B4EF72C7484FDF9721123048CF467EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

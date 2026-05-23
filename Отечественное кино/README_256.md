@@ -1,3 +1,107 @@
+###  Публикация: 1616811   (49792) от 17.07.2024
+
+Не хороните меня без Ивана (2022) WEB-DL [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Якут Степан Бересеков периодически впадает в летаргический сон. Только сын священника Иван Попов может отличить его состояние от настоящей смерти. Но Попов уезжает в продолжительную этнографическую экспедицию. Степан решает последовать за своим спасителем, чтобы не быть похороненным заживо.Производство: Россия / Студия Автор, СахафильмЖанр: ДрамаРежиссер: Любовь БорисоваАктеры: Дариус Гумаускас, Александр Чичахов, Михаил Сажин, Вячеслав Югов, Елена Маркова, Нюргуяна Шадрина, Степан Петров, Вера Ефремова, Кира МаксимоваЯзык озвучки: РусскийСубтитры: Русские (Hardsub на якутскую речь)Продолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5CEC4EE5BFCF9F9EBB561353A67B935DB3CB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519551   (49785) от 17.07.2024
+
+Нормальный только я (2021) WEBRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в детском лагере «Красный сокол», который по корыстной договорённости директора Игоря Новожилова и местного мэра Виктора Рюриковича признают аварийным. Но их амбициозным планам не суждено сбыться, в лагерь, неожиданно, приезжает отряд детей с особенностями здоровья. Угрозы, подкуп, поджог — Игорь идёт на всё, чтобы выставить детей из лагеря. (   Читать дальше...   )Производство: Россия, Проспект МираЖанр: комедияРежиссер: Антон БогдановАктеры: Антон Богданов, Ольга Лерман, Константин Хабенский, Максим Виторган, Сергей Кутергин, Егор Гуськов, Софи Витаута, Игорь Гаспарян, Артур Новгородцев, Егор ЕговцевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E27E667AFAAD23ED1A7D490A09F295492A13F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737507   (49692) от 18.07.2024
+
+Семейный переполох (2024) WEBRip [H.264/720p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Обидевшись на вечно занятого мужа, Аня забирает детей и уходит от него. Вот только домохозяйка не ожидала, что устроить жизнь с двумя дочерьми и сыном будет так сложно. Недовольны новым положением дел и дети. Они привыкли, что мама всегда дома и все свое время посвящает им. А теперь Аня постоянно пропадает на работе и возвращается уставшая и раздражительная. Пытаясь (   Читать дальше...   )Производство: Россия | START, «Ол Медиа Компани», «Вита Актива»Жанр: Комедия, семейныйРежиссер: Евгения ЮстусАктеры: Зоя Бербер, Владимир Гуськов, Ева Смирнова, Полина Айнутдинова, Савелий Кудряшов, Александра Урсуляк, Наталья Земцова, Алексей Гришин, Никита Тарасов, Владимир СелезневСубтитры: ОтсутствуютПродолжительность: 01:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32F18ED468C125D0EDF7580A0789BA318944B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628976   (49679) от 18.07.2024
+
+О чем говорят мужчины. Простые удовольствия (2023) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Дело было в далеком 2019-м году… Встретившись субботним утром, чтобы выпить шампанского, друзья отправляются в новое путешествие по глубинам мужского подсознания. О чем же на этот раз говорят мужчины? Конечно, о личном. Леша пытается понять существует ли «женская дружба», Камиль рассуждает, можно ли уволить лучшего друга, ловелас Слава вспоминает первую любовь (или (   Читать дальше...   )Производство: Россия, Хэд Мэйд Продакшен, START, Стрела, Yellow, Black & WhiteЖанр: комедияРежиссер: Михаил ПоляковАктеры: Ростислав Хаит, Мария Ремер, Леонид Барац, Камиль Ларин, Александр Демидов, Михаил Полицеймако, Максим Виторган, Гарик Харламов, Дмитрий Нагиев, Мария Шамшина, Лия МамуховаПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C288DE89D2C30525BC841EC0F89D3F0AE31E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737871   (49399) от 20.07.2024
 
 Ресторан по понятиям. Фильм (2021) WEBRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49366.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49323.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_48031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47831.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47567.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47520.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47475.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46936.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46913.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46777.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46760.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -564,111 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1DE9A161168B27E92A77A26C8C6527687EAE508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743475   (46673) от 16.08.2024
-
-Майор Гром: Игра (2024) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майор полиции Игорь Гром известен всему Санкт-Петербургу пробивным характером и непримиримой позицией по отношению к преступникам всех мастей. Неимоверная сила, аналитический склад ума и неподкупность — всё это делает майора Грома самым настоящим супергероем. Его жизнь идеальна: днём он ловит преступников вместе с напарником Димой Дубиным, а вечера проводит в компании (   Читать дальше...   )Производство: Россия | Bubble Studios, Плюс СтудияЖанр: Боевик, приключенияРежиссер: Олег ТрофимАктеры: Тихон Жизневский, Александр Сетейкин, Алексей Маклаков, Любовь Аксёнова, Сергей Горошко, Дмитрий Чеботарёв, Константин Хабенский, Матвей Лыков, Ольга Сутулова, Андрей ТрушинСубтитры: Русские (Forced, Full, SDH), английскиеПродолжительность: 02:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D940B65880A4D7164C9C8363991A7CE6DB029E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743687   (46535) от 17.08.2024
-
-Сквозь время (2022) BDRip [H.264/720p] [GER Transfer]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46535.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе испытаний сверхскоростного самолета на новом источнике энергии изобретатель и бизнесмен Итан Блэйк и его брат Джейкоб оказываются на острове, не отмеченном на картах. Там они сталкиваются с таинственным туманом, в котором существует одновременно и прошлое, и будущее. Итану предстоит встретить своего отца, найти настоящую любовь и разгадать загадку острова, (   Читать дальше...   )Производство: Россия / KD StudiosЖанр: фантастика, триллер, приключенияРежиссер: Александр БогуславскийАктеры: Виктор Добронравов, Егор Корешков, Валерия Шкирандо, Никита Тарасов, Софья Присс, Дэниел Барнс, Егор Бероев, Платон Алексеев, Мирослав Аксёнов, Севастьян БугаевПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038C3EC591F92A963A1597E6E79458E3A8DAC789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461641   (46521) от 17.08.2024
-
-Ехай! (1995) DVDRemux
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сельский житель - экскаваторщик Петр Гаврилин - однажды понял, что из его жизни исчезла любовь, и жизнь для него потеряла всякий смысл. Презрев суету, Петр ушел из семьи и лег на рельсы…
-Простая история - трагикомичная и сентиментальная. История про то, как в зимней стуже маленькие люди шаг за шагом обретают надежду и веру в возвращение любви - незаметной, необходимой (   Читать дальше...   )Производство: Россия, Олдмор ИмиджЖанр: комедияРежиссер: Георгий ШенгелияАктеры: Владимир Ильин, Татьяна Кравченко, Евгений Серов, Сергей Арцибашев, Сергей Баталов, Лариса Шахворостова, Инна Ульянова, Вадим ЗахарченкоПродолжительность: 01:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDD496314ABA4EF4D357E6C7F30850F5056875D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743721   (46485) от 17.08.2024
-
-Южные ночи (2012) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красавица Юлия целиком сосредоточена на карьере. Ради очередного повышения она берется разрешить сложную задачу - выкупить виноградник. Помогает Юле ее жених Кирилл, однако владелец виноградника Виктор вовсе не намерен его продавать. И вот в один далеко не прекрасный день Юлия оказывается посреди южной приморской глуши, на шпильках и в деловом костюме. Но и это еще (   Читать дальше...   )Производство: Россия | Sputnik Vostok ProductionЖанр: Мелодрама, комедияРежиссер: Валентина ВласоваАктеры: Ксения Роменкова, Артём Ткаченко, Алексей Колубков, Екатерина Сахарова, Артем Артемьев, Александр Костелов, Александр Порываев, Алексей Крицкий, Виктор Куклин, Сергей СанаевСубтитры: РусскиеПродолжительность: 01:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481ADC0DDC3267A6670DF591E0940EB0FFCE7416
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,57 @@
+###  Публикация: 443291   (73298) от 31.01.2012
+
+Zero no Tsukaima: Futatsuki no Kishi / The Familiar of Zero: The Rider of the Twin Moons / Подручный Луизы-Нулизы: Рыцарь двух лун [2007, TV, 12 эпизодов] BDrip 1080p Hi10p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Всем знакомо обидное определение «ноль без палочки». С другой стороны, «ноль с палочкой», это тоже как-то... не слишком лестно. Главная героиня «Подручного Луизы...» и есть тот самый ноль с палочкой. Причем палочка – волшебная.
+
+ Луиза-Франсуаза де Лавальер учится в Академии волшебства королевства Тристейн. Правда, академические успехи обходят мадмуазель стороной: ей не удается правильно воспроизвести ни одного заклинания, у нее не выходит ни одна трансформация. Но самое тяжелое испытание Луизе (прозванной вредными (   Читать дальше...   )Жанр: комедия, романтика, фэнтези, эттиРежиссер: Ко ЮПродолжительность: 12 по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1ACC8DB3347DB16D3DABA276D696FDEE2918C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778532   (70933) от 08.02.2025
+
+Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | Мононокэ (фильм) [2024, Movie, 1 из 3 эп.] WebRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Между Асой и Каме сразу же завязывается дружба, когда они одновременно прибывают на свой первый день службы в Ооку - великолепный дворец удовольствий, где располагается гарем лорда Тенши. Обе девушки попадают туда вместе со многими сотнями других служанок - мужчинам вход воспрещен, а за нарушение границы полагается немедленное обезглавливание. Вскоре становится ясно, (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Накамура КэндзиПеревод: CrunchyRollЯзык озвучки: Японский;Субтитры: Английские; Русские; Японские; Multi-SubПродолжительность: 3 фильма по 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847D07D77FC7A1F871CED75A0E6E24A3929AB0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779867   (70596) от 15.02.2025
 
 Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Shaved and Took in a High School Runaway | Я побрился. И приютил школьницу [2021, TV, 13] BDRip 1080p 10-bit raw
@@ -6,7 +60,7 @@ Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +86,7 @@ Thunderbolt Fantasy: Seiyuu Genka | Thunderbolt Fantasy: Bewitching Melody of th
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +112,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki | Thunderbolt Fantasy: Sword Seekers | Гр
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +138,7 @@ Thunderbolt Fantasy: Touri-ken Yuuki 2 | Thunderbolt Fantasy: Sword Seekers 2 | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +164,7 @@ Juusenki L-Gaim II: Farewell My Lovely + Pentagona Dolls | Heavy Metal L-Gaim II
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68314.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +190,7 @@ Nomo no kuni | The Land of NOMO | Земля НОМО [2025, Web] WEB-DL 1080p r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68188.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +216,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66368.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +242,7 @@ Mononoke | Мононокэ [2007, TV, 12 эп.] BDRip 1080p raw+eng
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +268,7 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -241,7 +295,7 @@ Mahou Tsukai no Yome Season 2 | The Ancient Magus' Bride Season 2 | Невест
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -269,7 +323,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66338.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -295,7 +349,7 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -322,7 +376,7 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon'
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -349,7 +403,7 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66319.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -375,7 +429,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66318.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +456,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +482,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +509,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +535,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -510,7 +564,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -537,7 +591,7 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -565,7 +619,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -593,7 +647,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65124.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -619,7 +673,7 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -631,58 +685,6 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57DB52D725ED4A7E4CCC8ED6DE608D055A9422D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646159   (61467) от 29.03.2024
-
-Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61467.jpg" />
-</div>
-
-
-###  Подробнее
-
-2222 год. Год назад на Землю пролились «Слёзы Новой Луны» — загадочный ядовитый ливень, который стёр с лица планеты почти всё человечество. Зато он породил отвратительных монстров-людоедов, и выжившим пришлось спасаться бегством. Они построили подземное убежище и назвали его Амазия. Однако там они столкнулись с новыми трудностями: необходимостью уживаться с искусственным (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: фантастикаРежиссер: Ямамото ЮсукэПеревод: Funimation; AniLibriaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D468F040F96329ECD6395C867073A1E6E298C455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666549   (61229) от 31.03.2024
-
-Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61229.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где драконы правят на земле, в воздухе и даже на море, где им совершенно нет равных, существуют те, кто ищет возможность бросить вызов этим убийственным созданиям. Для того, чтобы одержать над ними победу, требуется начать с малого — превзойти предел человеческой силы. Спустя долгие годы тренировок и сражений это удалось сделать охотнику на драконов Рагне, (   Читать дальше...   )Производство: студия Silver LinkЖанр: приключения, фэнтeзиРежиссер: Такахаси КэнПеревод: YakuSubsЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 23 эп. по 25 мин, 1ый эп. 48 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E221977C5B4EE6879F30D9D98C0C6165CD5E0BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

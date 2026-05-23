@@ -1,3 +1,56 @@
+###  Публикация: 1003418   (1001502) от 12.01.2020
+
+Маленькие трагедии (1979) DVDRip [H.264] (серии 1-3 из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Экранизация произведений А. С. Пушкина - "Сцена из Фауста", "Египетские ночи", "Моцарт и Сальери", "Скупой рыцарь", "Каменный гость", "Пир во время чумы", "Гости съезжались на дачу...", "На углу маленькой площади...", "Мы проводили вечер на даче...", - входящих в цикл "Маленькие (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, ЭкранизацияРежиссер: Михаил ШвейцерАктеры: Георгий Тараторкин, Владимир Высоцкий, Сергей Юрский, Валерий Золотухин, Иннокентий Смоктуновский, Леонид Куравлёв, Николай Бурляев, Леонид Каюров, Наталья Данилова, Лидия Федосеева-Шукшина, Светлана Переладова, Лариса Удовиченко, Михаил Кокшенов и др.Язык субтитров: РусскийПродолжительность: 01:27:33 / 01:11:07 / 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD2CB59D25CF0FEC99FDF0EE4D9EE8990C3238A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488755   (1001144) от 14.08.2021
+
+Сибирь (1976) DVD5 (серии 1-6 из 6)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Телесериал по одноименному роману Георгия Маркова.
+1914-й год. Молодой ученый – Иван Акимов, племянник профессора Лихачева – бежит из нарымской ссылки. Интересы дела требуют от него незамедлительной поездки в Стокгольм, чтобы уберечь для будущего России уникальные труды Лихачева об использовании богатств сибирского края. С помощью одного из членов подпольной организации, (   Читать дальше...   )Производство: СССР / ТО "Экран"Жанр: драма, историяРежиссер: Виктор РыжковАктеры: Татьяна Веденеева, Софья Пилявская, Георгий Епифанцев, Евгений Лазарев, Владимир Самойлов, Николай Волков мл., Николай Волков, Антонина Дмитриева, Борис Кудрявцев, Лев ЗолотухинПродолжительность: ~01:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C395A1242E6E7536FB33F6EA28E1471CFFE1B21D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 433622   (988762) от 08.01.2012
 
 Звездочет (1986) DVDRip (серии 1-3 из 3)
@@ -6,7 +59,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_988762.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_964353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959982.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956924.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956795.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944230.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942139.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940679.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -348,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940575.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936997.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935908.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921440.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -620,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 
 Фильм по мотивам повести А.Азарова "Дорога к Зевсу". 3-и серии.
 Действие происходит во Франции и Германии в 1944 году. Советский разведчик, действующий под именем французского коммерсанта Огюста Птижана, «сдается» гестаповцам, которые принимают его за английского шпиона. Таким образом он получает возможность установить непосредственные контакты с высокопоставленными (   Читать дальше...   )Жанр: Военный, ПриключенияРежиссер: Тимур ЗолоевАктеры: Донатас Банионис (...Птижан / Леман), Лев Перфилов (...доктор Гук), Александр Лазарев (...Варбург), Анатолий Ромашин (...Карл Эрлих), Ирина Терещенко (...Лота Больц), Карлис Себрис (...Цоллер), Виктор Маляревич (...Люк), Георгий Дрозд (...Фогель), Эрвин Кнаусмюллер (...Фон Арвид), Лиля Макименко (...дама в вуалетке), Игорь Класс (...Тиле), Юрий Орлов (II), Владимир (   Читать дальше...   )Продолжительность: 01:05:59 + 01:15:53 + 01:11:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637552   (899709) от 31.03.2013
-
-Удивительные истории / Amazing Stories (1986-1987) TVRip [Сезон 2] [Серии 1-21 из 21]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известнейшая телеантология, к созданию которой приложили руку многие мастера кино, начиная от Стивена Спилберга (он поставил два эпизода, а также являлся носителем идеи и исполнительным продюсером всего сериала) до Мартина Скорсезе, Клинта Иствуда и Берта Рейнольдса в качестве режиссеров.Производство: США, Amblin Entertainment / Universal TVЖанр: Мистика, Приключения, Ужасы, КомедияАктеры: Чарльз Дёрнинг, Дуглас Сил, Пол Бартел, Джефф Коэн, Толизин Джаффе, Ройал Дэно, Гари Райли, Джон МакКук, Ларри Спинак, Джонатан ЛуриаПеревод: Многоголосый закадровый,Продолжительность: 21 серия по 00:22:00 минуты
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294916   (895626) от 13.02.2011
-
-Если наступит завтра (1-5 серии из 5) ( If Tomorrow Comes ) ( 1986 ) DVDRip
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионный минисериал, поставленный по одноименному бестселлеру Сидни Шелдона. Героиня – скромная служащая банка Трэйси Уитни стоит на пороге счастья и успеха. Она обручена с любимым человеком, который, к тому же, баснословно богат и принадлежит к высшим кругам общества. И вот, из-за страшных и нелепых обстоятельств все идет прахом: Трэйси оказывается в тюрьме, (   Читать дальше...   )Жанр: Мелодрама, приключения, триллер, детективРежиссер: Джерри ЛондонАктеры: Мэдолин Смит-Осборн, Том Беренджер, Дэвид Кит, Лиам Нисон, Джек Уэстон, Ричард Кайли, Джозеф Кортезе, Джордж ДиЧенцо, Сьюзен Хесс, Джеффри ДжонсПеревод: Многоголосый закадровыйПродолжительность: 5 серии по ~ 00:55:37
 
 ## Скачать торент
 ```bash

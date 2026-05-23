@@ -1,3 +1,352 @@
+###  Публикация: 1400591   (718536) от 05.08.2020
+
+3D модели - 3DDD - Benches & Poufs [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky.
+Количество моделей: 97 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FCD17F8C6475E9FC18F94A9505B47C239192B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051316   (718232) от 30.04.2017
+
+Шрифты - Astro cyr-lat [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный модульный шрифт.
+Количество: 3 шт.
+Разработчик: Gloria Flores Lleonart
+Поддержка кириллицы есть (Русская, Белорусская, Украинская, Молдавская), адаптация под кириллицу от "He Rez AD".Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A739A7327B3693EE9B829C18D364FB3CDF224C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218914   (717660) от 12.04.2018
+
+Векторный клипарт - Vector Drinks Collection #5 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Напитки
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99D182785FFF67EA84FC217E8BEF6A948163D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218913   (717529) от 12.04.2018
+
+Векторный клипарт - Vector Countries Collection #6 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Страны, континенты
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690C8C44C5BFEBAB2F726013DFCF8B08028E064F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218926   (717305) от 12.04.2018
+
+Растровый клипарт - Fotolia - Beautiful blonde girl in a blooming garden [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Красивая блондинка в цветущем саду с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3960x2286-4992x3703
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A14BF540263280096FF43C4999CBC22AACD70A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024293   (717243) от 08.06.2016
+
+Звуковые библиотеки - AudioJungle - Top 10 Best Sellers [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Top 10 Best Sellers - в этой небольшой коллекции от TimMcMorris только 10 треков, а у нее более чем 30 000 продаж. Скачивая этот сборник, вы выбираете лучшую музыку для вашего следующего проекта, которая имеет проверенную историю успеха!
+Сайт Автора коллекции.Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89676F5C316BE9349AAEB1A6DD055EE336D53F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218921   (717172) от 12.04.2018
+
+Векторный клипарт - Different World Maps 6 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Различные карты мира
+5 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98358FE772695642C8CE6855B5E0EE667C2195EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 328110   (717137) от 25.04.2011
+
+Шаблоны сайта - Шаблоны-заготовки для сайтов
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник шаблонов веб-сайтов самой разнообразной тематики - варез, софт, медиа, музыкальные, сайты для себя, о компьютерах, интернет, про политику, безопасность и др. Все шаблоны полностью рабочие и представлены всеми форматами. Имеют все необходимые файлы и картинки, от вас остается только залить их на сайт.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F3C101AC9857F57BD2E3FCC16459132CDCA1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218792   (716917) от 12.04.2018
+
+Звуковые библиотеки - Lens Distortions - Anticipation SFX [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Библиотека кинематографических звуковых эффектов.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941750D64844CA2B757BDD65BB46B93BD27E7811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218793   (716913) от 12.04.2018
+
+Звуковые библиотеки - Lens Distortions - Archetype SFX [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Библиотека кинематографических звуковых эффектов.Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C3A3D60F6F100BFE2988F96FC806CDF5468861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400610   (716607) от 06.08.2020
+
+Фоны - 700 Abstract High Resolution Backgrounds [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Создавайте потрясающие дизайны, которые не только привлекут внимание каждого, но и позволят вам работать с воображением, создавая что-то игривое и классное. Используйте их для работы над брендом, полиграфического дизайна и многого другого. Придайте подлинную атмосферу вашей графике.Формат: JPGРазрешение файлов: 3998×2500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C006CF239270B7D075348153AB72A2B983182A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669654   (716587) от 18.06.2013
+
+Футажи - VideoHive - Leaks 3 (12-Pack) - 2601271 [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Сборник из 12 Full HD файлов, для цветовых решений с альфа каналом.Формат: MOVРазрешение файлов: 1920×1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F335C834A5F90A5F587B03ED61C9449A1ED534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285912   (716562) от 28.02.2019
+
+Шрифты - FontBundles - ZP A Dorky Print - 132867 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Коммерческий шрифт для Вашего творчества. Он идеально подходит для логотипов, личного брендинга, подписей, плакатов и любого другого дизайна, который нуждается в роскошном оформлении.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC1A6CE587C5047DF47AFB6799D000CA4F6A834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285929   (716558) от 28.02.2019
 
 Шрифты - Creative Fabrica - Circuitra [OTF]
@@ -6,7 +355,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716435.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716434.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715731.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +514,7 @@ Boom Library - CLOSE COMBAT [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +569,7 @@ Boom Library - CINEMATIC TRAILERS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -330,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714966.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -341,355 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3B0878CE06CFD49639BC1750FF09C4A28748B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 670165   (714770) от 19.06.2013
-
-Шаблоны - GraphicRiver - Tropical Spring Summer Beach Night Flyer Party - 2224106 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тропический пляж Весна Лето Night Flyer Party - сексуальный и современный PSD шаблон для создания эксклюзивных флаеров, плакатов, приглашений.Формат: PSDРазрешение файлов: 1240х1826
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525FE7C97601DDD976B6611F8D17849224D90358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286087   (714616) от 01.03.2019
-
-Фоны и наложения - Creative Market - Northern Lights Photo Overlays - 2816316 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Northern Lights Photo Overlays - 45 наложений, различных видов северного сияния. Добавьте текстуры к вашим проектами и получите то, что может предложить ночное небо: блеск, великолепие и сверкающий эффект.Формат: JPGРазрешение файлов: 4162x2774 - 4700x3133
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9582FC6F2D2634914B0FD20A2E2A7284A1C8715B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219351   (713909) от 14.04.2018
-
-Векторный клипарт - Vector Fruits Collection #10 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фруктовая коллекция
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8B8016115E94ADA9493A13DC550A0C74145B4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025032   (713677) от 10.06.2016
-
-Экшены - GraphicRiver - Fire Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61DCF2F8A331B69745AFA785437BB287367FFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219360   (713653) от 14.04.2018
-
-Векторный клипарт - White Realistic Planes [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Белые реалистичные самолеты
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED24199E5F01F122C504D02C36BE230800279682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219350   (713647) от 14.04.2018
-
-Векторный клипарт - Ornamental Floral Dividers 49 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Декоративные цветочные делители
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E9DA5BD8B2F3C85B1443B5AD786227D4209198E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219353   (713640) от 14.04.2018
-
-Векторный клипарт - Vector City Streets Collection #4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Городские улочки
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38EDF807D74EC66E72AEC976B5D09081920C7243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219352   (713635) от 14.04.2018
-
-Векторный клипарт - Delivery Infographics 14 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Доставка Инфографика
-5 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542E24FCB82A16F7A5033066FEABEB26C06D0E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025041   (713546) от 10.06.2016
-
-Экшены - GraphicRiver - Flex Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flex - экшен для Вашего творчества.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E391DD6274FE2BF1DDF9B8D7C879AC7C2A0C747A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219364   (713304) от 14.04.2018
-
-3D модели - Daz 3D - Penny 8 Pro Bundle - 50913 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Penny 8 Pro Bundle - это окончательная коллекция, которая поможет покорить Голливуд. Каждый предмет поможет придать реализма  Пенни в ваших рендерах!. для DAZ 3D
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DF15533DF272DC7D23524BA8F1E7B850A05121F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219345   (713180) от 14.04.2018
-
-3D модели - Daz 3D - Сборник 3D моделей #7 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 150шт, категории Animation, Clothing, People, Props, Hair.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10440D65FB20AB71223519C1600AB0C2E8F8C93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401117   (712722) от 08.08.2020
-
-Фоны - Creative Market - Dandelion Overlays - 5219806 [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте эти очаровательные одуванчики для создания более интересных и красивых фонов в пейзажных снимках или портретах.Формат: PNG, JPGРазрешение файлов: 652x427 - 5581x2930
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4741D35749552B613C9762685C72BEC6A5EB8047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400985   (712622) от 08.08.2020
-
-3D модели - KitBash3D - Props: Secret Labs [OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оживите свои высокотехнологичные правительственные лаборатории и подземные научные миры с помощью герметичных камер этого набора, коллайдеров частиц, компьютеров, серверов, операционных столов, рентгеновских аппаратов, криокамер, сборочных линий роботов, а также десятков и десятков других предметов. Вы можете создавать безобидные хранилища данных, злые фермы клонирования, (   Читать дальше...   )Формат: OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A32769A0F4A411C851478223BB9A1FBFD693EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

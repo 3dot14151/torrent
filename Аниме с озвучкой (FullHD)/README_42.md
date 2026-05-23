@@ -1,3 +1,82 @@
+###  Публикация: 1769795   (24436) от 17.03.2025
+
+S Rank Monster no Behemoth Dakedo, Neko to Machigawarete Elf Musume no Pet to Shite Kurashitemasu | Beheneko | Я мoнстр S-клaссa Бeгeмoт и мeня пeрeпутaли с котом [2024, TV, 12 из 12] WEBRip 1080p Rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+После героической гибели в битве с силами зла благородный рыцарь перерождается в одного из самых могучих чудовищ в мире — бегемота. Но чтобы войти в полную силу ему сначала предстоит вырасти. А детёныши бегемотов выглядит удивительно похоже на обычных домашних котиков. И однажды главный герой привлекает внимание эльфийки-авантюристки, которая решает сделать его своим (   Читать дальше...   )Производство: Япония, студия Zero-GЖанр: приключения, фэнтезиРежиссер: Хиракава ТэцуоЯзык озвучки: Русский закадровый (Dream Cast), (AniLibria.TV)Субтитры: Русские надписи, русские (софтсаб), английскиеПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5049899833FC34D5B284A3183C332D5BFE6797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586363   (24413) от 17.03.2025
+
+Genjitsu Shugi Yuusha no Oukoku Saikenki 2 | How a Realist Hero Rebuilt the Kingdom 2 | Герой-рационал перестраивает королевство [ТВ-2] [2022, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Когда Кадзуя Сома неожиданно переносится в другой мир, он понимает, что людям нужен новый герой. Но идея героизма Сомы более практична, чем у большинства — он хочет восстановить слабеющую экономику новой земли, на которой оказался! Внезапно очутившись на троне, обрученный с принцессой, этот герой-реалист объединит талантливых людей, которые помогут ему поставить (   Читать дальше...   )Производство: J.C. StaffЖанр: приключения, фэнтезиРежиссер: Ватанабэ ТакасиЯзык озвучки: Японский, русский (DEEP, AniLibria)Субтитры: Русские (AniLibria, DEEP)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F3B75622161EAD3484C834BF59BB057EA4ABE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772673   (24315) от 18.03.2025
+
+Переродившись аристократом-неудачником | Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete Mita [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Порой, вместо заслуженного отдыха после очередного рабочего дня, жизнь заносит тебя совсем не туда.
+И вот так, простой японский работяга перерождается в ином мире в теле Лиама Гамильтона, младшего сына дворянской семьи, которая находится на грани распада. Посреди всех этих семейных интриг, хаоса и разрухи Лиам неожиданно осознаёт, что ему выпал шанс научиться магии, (   Читать дальше...   )Производство: Япония / Студия Studio Deen, Marvy JackЖанр: Приключения, комедия, фэнтезиРежиссер: Исикура КэнъитиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9B4FD57EC3B64AFA7DF4544C4F75657A4DBA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771927   (23996) от 21.03.2025
 
 Однажды я стану величайшим алхимиком? | Izure Saikyou no Renkinjutsushi? | Possibly the Greatest Alchemist of All Time [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +85,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi | Истoрия o сл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +137,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta | Kura-Kon | Я жени
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +163,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +189,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23267.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23259.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23164.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23086.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -325,7 +404,7 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Пeрeрoждeн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -351,7 +430,7 @@ Gosick | Готика [2011, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23018.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -377,7 +456,7 @@ Ubel Blatt | Übel Blatt | Клинoк злa [2024, TV, 12 из 12] WEBRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +508,7 @@ Sentai Red Isekai de Boukensha ni Naru | Крaсный рeйнджeр стaнoв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -455,7 +534,7 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -481,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22923.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -508,7 +587,7 @@ Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten St
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22569.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -534,7 +613,7 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 | Сто деву
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -560,7 +639,7 @@ Juusenki L-Gaim | Heavy Metal L-Gaim | Тяжёлая артиллерия Л-Г
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -586,7 +665,7 @@ Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -597,85 +676,6 @@ Arafou Otoko no Isekai Tsuuhan | The Daily Life of a Middle-Aged Online Shopper 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE2A1D95D3084126F9EBE58D6BBC86B3BF6928F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771692   (22404) от 05.04.2025
-
-Карта детектива Такао Амэку | Ameku Takao no Suiri Karte | Ameku M.D.: Doctor Detective [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отделение диагностики больницы Теникай известно по всей Японии. Сюда направляют пациентов, которых другие врачи считают практически неизлечимыми, а главный диагност больницы, гениальный врач Такао Амэку, способна обнаружить самые редкие и сложные заболевания, и может померяться знаниями в медицине даже с самим доктором Хаусом.
-Более того, деятельность её отделения (   Читать дальше...   )Производство: Япония / Студия Project No.9Жанр: ДетективРежиссер: Ивата КадзуяЯзык озвучки: Русский (AniLibria.TOP); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CECACBAFFEEE3F4CFD101D637190CC51BBD069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789505   (22401) от 05.04.2025
-
-Ore dake Level Up na Ken: Arise from the Shadow | Solo Leveling: Arise from the Shadow | Поднятие уровня в одиночку 2: Восстаньте из тени [2025, TV, 13 из 13] WEB-DL 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22401.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента внезапного появления "врат" - путей в другие миры - прошло уже больше десяти лет. За это время очень важной стала профессия "охотников" - людей, получивших сверхъестественные способности и зарабатывающих зачисткой подземелий внутри врат. Сон Джин Ву приобрёл печальную известность как "слабейший охотник человечества". Так что (   Читать дальше...   )Производство: Япония / Студия A-1 PicturesЖанр: Приключения, фэнтези, экшенРежиссер: Накасигэ СюнсукэЯзык озвучки: Русский (StudioBand, AniLibria, TVShows, ТО Дубляжная, LDA TEAM, AniBaza), Английский, ЯпонскийСубтитры: Русские (Crunchyroll, Alvakarp), Английские (CrunchyrollПродолжительность: 13 серий по 24 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F68687E8550B191E397A24E071278675E7B04BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753426   (22339) от 06.04.2025
-
-Re:Zero kara Hajimeru Isekai Seikatsu 3 | Жизнь в альтернативном мире с нуля [ТВ-3] [2024, TV, 16 из 16] WEBRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Субару Нацуки, ничем не примечательный затворник, вдруг попадает в другой мир! Казалось бы, всё теперь ему по плечу, а рядом будет красавица-призывательница. Да только вот реальность оказалась жестока: с магией он всё ещё не в ладах, сил не прибавилось, да и никакой красавицы рядом не предвидится. А тут ещё и разбойники напали! Вот только на помощь ему пришла сребровласая (   Читать дальше...   )Производство: White FoxЖанр: драма, фэнтези, триллерРежиссер: Синохара МасахироПеревод: Crunchyroll (полные и надписи)Язык озвучки: Японский; Русский (AniBaza), (AniLibria), (Дубляжная)Субтитры: Английские, Русские и другиеПродолжительность: 16 эп. по 25 мин. (1 эп. - 90 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD25B6FBF2D1CFB64C0BB703B6BE444E9277B8E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

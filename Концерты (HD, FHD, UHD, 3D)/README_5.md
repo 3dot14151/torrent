@@ -1,3 +1,60 @@
+###  Публикация: 1089673   (950217) от 04.01.2017
+
+Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert der Wiener Philharmoniker 2017 (2017) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Новогодний концерт Венского филармонического оркестра проводится ежегодно 1 января. Это самый известный новогодний концерт классической музыки в мире.
+ Концерт проходит в «Золотом зале» Венского музыкального общества (Wiener Musikverein), собирает около 2000 слушателей в зале, а более 90 миллионов слушателей всего мира следят за его телевизионной трансляцией.
+ Начало (   Читать дальше...   )1. Franz Lehar - Nechledil March
+2. Emile Waldteufel - Les Patineurs, Walzer, Op. 183
+3. Johann Strauss (Sohn) - 's Gibt Nur A Kaiserstadt, 's Gibt Nur A Wien, Polka, Op. 291
+4. Josef Strauss - Winterlust, Polka Schnell, Op. 121(   Читать дальше...   )Производство: ORF, Austria; Eurovision.Жанр: Музыкальный концертПродолжительность: 02:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA9ABD80247FD449040736A7F3D8B3F4C032CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089796   (950207) от 04.01.2017
+
+Дискотека 80-х 15 лет. Авторадио (полная версия) (26.11.2016) (2017) HDTVRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+26 ноября в московском спорткомплексе «Олимпийский» состоялся 15-й международный музыкальный фестиваль «Авторадио» «Дискотека 80-х». Организаторы шоу подготовили уникальную программу с участием любимых исполнителей. На сцене такие звезды как С.С. Catch, Сандра, Dschinghis Khan, Ricchi e Poveri, Тото Кутуньо, Secret Service. Из отечественных - Олег Газманов, Юрий (   Читать дальше...   )Производство: РоссияЖанр: МузыкаПродолжительность: 04:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A01F03ECAF661B84808EF5949C8ECF6B43C26DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089672   (950100) от 04.01.2017
 
 Дискотека 80-х 15 лет. Авторадио (полная версия) (26.11.2016) (2017) HDTV [H.264/1080p-LQ]
@@ -6,7 +63,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950100.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +115,7 @@ Al Di Meola - 37. Leverkusener Jazztage (2016) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +144,7 @@ The Steve Miller Band - Avo session Basel (2012) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -117,7 +174,7 @@ Queen + Adam Lambert - Rock Big Ben Live (2015) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945596.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -146,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -175,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -204,7 +261,7 @@ The Piano Guys: Концерт на Красном холме сада / The Pia
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -233,7 +290,7 @@ The Chemical Brothers: «Не думай» / The Chemical Brothers: Don’t Thin
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -259,7 +316,7 @@ Sting: Live in Berlin (2010) BDRip [H.265/1080p-LQ] [10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -285,7 +342,7 @@ Metallica - Orgullo, Pasion Y Gloria - Tres Noches En La Ciudad De Mexico (2009)
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -311,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941129.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -340,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -366,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -392,7 +449,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939421.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -421,7 +478,7 @@ Helene Fischer – Best of Live/So wie ich bin (2010) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -447,7 +504,7 @@ Eric Clapton - Slowhand at 70: Live at The Royal Albert Hall (2015) BDRemux [H.2
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936530.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -473,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -500,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -528,7 +585,7 @@ Nine Inch Nails - Another Version Of The Truth, part 1: The Gift (2008) Blu-ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +615,7 @@ Eric Clapton's Crossroads Guitar Festival (2010) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932806.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -587,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -616,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -642,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -656,64 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36694F06EF8DC079E43DACAC8BAB19EAC7DE728A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365837   (926989) от 09.03.2020
-
-Дискотека 80-х (полная версия) (2019) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная дискотека страны состоялась уже в 18-й раз и, как и прежде, подарила зрителям невероятные визуальные эффекты, качественный звук и, конечно же, выступления самых любимых российских и зарубежных звезд диско на одной сцене.01. Альянс - На Заре
-02. Bad Boys Blue - Come Back And Stay
-03. Bad Boys Blue - Pretty Young Girl
-04. Bad Boys Blue - You’re a Woman(   Читать дальше...   )Производство: РоссияЖанр: DiscoРежиссер: 1 каналПродолжительность: 03:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F940B091B4C2E35D70D4F2A439DE6B8512FCAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986857   (925674) от 17.02.2016
-
-Адель на BBC / Adele at the BBC (2015) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая молодая и самая титулованная певица Великобритании возвращается спустя почти три года со специальным выступлением. Адель исполнит всеми любимые хиты и совершенно новые композиции, а также расскажет о своей карьере и жизни вне сцены.01. Rolling In The Deep
-02. Hello
-03. Rumour Has It
-04. Skyfall(   Читать дальше...   )Телекомпания: Великобритания, BBC Events Production, LondonЖанр: Концерт, МузыкаПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9571F717DD225AAEDDB5227D5D65B11E15687D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

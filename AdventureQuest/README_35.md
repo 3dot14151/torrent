@@ -1,3 +1,107 @@
+###  Публикация: 1145418   (584895) от 11.05.2019
+
+The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Long Dark - хардкорный симулятор выживания в бескрайних лесах Северной Канады! Вы будете играть за пилота по имени Вил Маккензи, самолет которого потерпел крушение после мистического геомагнитного шторма.Тип издания: SteamRipРазработчик: Hinterland StudioЖанр: Action (Survival), 3D, 1st PersonЯзык озвучки: Не озвученаЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4263091478E5906CDF6F62A33CDD20C0AC6DDABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485025   (584505) от 23.05.2022
+
+Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save the World Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Убийство. Взлом. Взрыв. И вот уже в Солнечной системе полыхает война - но вы можете её остановить. В этом нуарном 2D-квесте перед сотрудником бюро расследований, Нилом Конрадом, встают всё более сложные вопросы, и Вам предстоит помочь ему найти решения. В издание Save the World входит не только игра Lacuna, но и саундтрек, который погрузит вас в атмосферу научно-фантастического (   Читать дальше...   )Тип издания: LicenseРазработчик: DigiTales InteractiveЖанр: Приключение, ДетективЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C073FDCC9DFE2DC036F0F1FBB03FFC19212EC2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553122   (583688) от 24.05.2022
+
+LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Поклонники LEGO, приготовьтесь стать свидетелями величайшего приключения знаменитого Индианы Джонса. Все лучшее из оригинальной серии фильмов, новые уровни, ваши любимые моменты из «Королевства хрустального черепа» и... уровни, которые можно создавать самостоятельно - в стиле LEGO. Новые режимы, среди которых есть также режим игры на одном экране, позволят разделить (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Экшн. Приключение, КомедияЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D91891CBE98523E2ED982A208F7C1FDAB00A63C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041454   (583123) от 08.08.2016
+
+Apartment 666 (2016) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Apartment 666 — цикличный инди-хоррор по мотивам P. T., где вы окажетесь в роли 12-летнего мальчика, который однажды проснулся в своей квартире и обнаружил, что все его родные пропали!Тип издания: RepackРазработчик: I Need PlayЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D3C7072088E9A83C7F8AF011446B2A73B0C2F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553320   (582748) от 25.05.2022
 
 LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
@@ -6,7 +110,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +136,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Niko: Through The Dream (2015) [Ru/En] (1.0) RePack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582549.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +190,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +216,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577392.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +242,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +268,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +294,7 @@ The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +320,7 @@ Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573755.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +346,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -272,7 +376,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +406,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +432,7 @@ Observation (2019) [Multi] (1.04) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +458,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +484,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -406,7 +510,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -432,7 +536,7 @@ American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -458,7 +562,7 @@ Gone Home (2013) [Ru/En] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568346.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +588,7 @@ Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +614,7 @@ PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566715.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +640,7 @@ Dollhouse (2019) [Multi] (1.1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564976.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +666,7 @@ You Deserve (2016) [En/Es] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -573,110 +677,6 @@ You Deserve - игра в приключенческом жанре. Вы ник
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044570   (564670) от 20.08.2016
-
-You Deserve (2016) [En/Es] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564670.jpg" />
-</div>
-
-
-###  Подробнее
-
-You Deserve - игра в приключенческом жанре. Вы никогда не думали, что все, что вы делаете, возможно, вернется к вам назад? Группа подростков преследовала сокурсника из средней школы. В конце концов, молодой человек был не в состоянии больше выносить все эти издевательства и в конечном итоге решил покончить с собой. Кто за это ответит?Тип издания: RepackРазработчик: TGA CompanyЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA15E81667F96E94D09914C5C4028354CD3E860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152847   (563028) от 24.07.2017
-
-Reflecting Fate (2017) [En] (1.0) Repack Covfefe
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет из себя детективный триллер от первого лица с элементами мистики. Действия разворачиваются в 1996 году на острове Denwood, Северная Европа, и игроку отдана роль его коренного жителя. На острове внезапно начал пропадать сельский скот. Животные исчезали по ночам абсолютно бесследно и, казалось бы, никто не в силах был этому помешать. Но в один день (   Читать дальше...   )Тип издания: RepackРазработчик: KxONE, Andrew Drumov, starmopsЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70625388EC69381B0D5274BFB61B5D8A0BD39E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044966   (562857) от 21.08.2016
-
-Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном маньяке (2014) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братьям Пилотам предстоит новое увлекательное дело. В беду попал их друг и соратник кот Мышьяк. Он похищен поваром-испытателем Сумо для безответственных кулинарных экспериментов. На протяжении всей игры будьте готовы к запутанным и сложным ситуациям, иначе будет готов Мышьяк с картофельным гарниром.Тип издания: RepackРазработчик: 1C WirelessЖанр: Adventure, CasualЯзык озвучки: Русский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD49E9C19EB08E7456CBBDCEEB26E29E9B5E42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152307   (562743) от 24.07.2017
-
-Dreamfall Chapters (2017) [Multi] (5.7.2.1/dlc) License CODEX [The Final Cut Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamfall Chapters - это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах.Первый выдержан в стиле мрачного футуристического киберпанка, другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread GamesЖанр: Adventure, IndieЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BD216B2130494CA7E0E7B38DFE2AC720A51AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

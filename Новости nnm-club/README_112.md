@@ -1,3 +1,193 @@
+###  Публикация: 675219   (683746) от 04.07.2013
+
+AVG Internet Security 2013.0.3345 [x86+x64] [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Обнаружение и устранение вирусов, угроз и вредоносного ПО.
+Блокирует небезопасные ссылки и файлы.
+Защита от спама и мошеннических действий в Интернете.
+В комплект входит бесплатная система защиты для мобильных устройств.
+Защищает от программ-шпионов и кражи данных.
+Защита личных данных от злоумышленников.
+Обеспечивает оптимальную производительность ПК.
+Обеспечивает стабильную работу компьютера.
+Ускоряет работу в Интернете.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029036   (683679) от 25.06.2016
+
+DxO Optics Pro 11.0.0 Build 11397 Elite RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+DxO Optics Pro - профессиональное приложение, способное улучшить и скорректировать вашу коллекцию цифровых фотографий. DxO Optics Pro содержит множество прогрессивных технологий, с помощью которых можно настроить яркость, контрастность, цветовой баланс, избавиться от искажений и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699FEA0455DFD74FCD537C66E5916B8509DEC951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029043   (683678) от 25.06.2016
+
+Adobe Muse CC 2015.2.0.877 RePack by D!akov [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Adobe Muse – визуальный конструктор сайтов, функционирующий по принципу «отображение внесённых изменений в реальном времени». Таким образом, разработчику не требуется открывать HTML-код сайта - панель редактирования позволяет работать с веб-страницей, как с изображением. Очевидно, что такой подход ориентирован на создание среды разработки, доступной пользователю (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31131782AEBE0868FE8B6FCC03689DBA85B841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947508   (683667) от 25.06.2016
+
+This War of Mine (2014) [Ru/Multi] (2.2.2/dlc) License GOG [Soundtrack Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В «This War of Mine» вы играете не за солдата элитных войск, а за группу мирных жителей, пытающихся выжить в осажденном городе, испытывая нехватку еды, лекарств и постоянную опасность со стороны снайперов и мародеров. Игра дает возможность прочувствовать войну с абсолютно новой перспективы. Игровой процесс в «This War of Mine» зависит от смены дней и ночей. Снайперы (   Читать дальше...   )Тип издания: LicenseРазработчик: 11 bit studiosЖанр: Strategy, 3D, LifestyleЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770C973AF6D54275CCCA970CBE34823A5DCABED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643591   (683637) от 04.07.2013
+
+Kakumeiki Valvrave | Valvrave the Liberator | Валврейв Освободитель [TV-1][2013, TV, 12 эп.] HDTV 720p raw
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В далеком будущем люди живут в околоземном пространстве, вокруг Солнца раскинулась огромная сфера Дайсона, а человечество все так же рвут на части междоусобицы. Главными силами конфликта являются германская империя Доруссия, Атлантическая Федерация Арус и экономически успешный, но не богатый военными ресурсами Джиор, наследник маленькой, но гордой островной нации. (   Читать дальше...   )Жанр: приключения, фантастика, мехаРежиссер: Мацуо КоСубтитры: русские отПродолжительность: 12 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B8437CBDCC0B18B5A0811CF77F3774C5B492F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221666   (683494) от 17.03.2019
+
+BATTLETECH (2018) [Ru/En] (1.5.0/dlc) Repack xatab
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Battletech - это пошаговый ролевой экшен с роботами от создателей вселенной BattleTech и серии MechWarrior, который создается силами Harebrained Schemes, создателей последних частей Shadowrun, которые объединили усилия вместе с создателем оригинальной серии, Джорданом Вейманом.Тип издания: RepackРазработчик: Harebrained SchemesЖанр: Action, Strategy (TBS), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608D111192336633C549F6468349DDE276B78836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289819   (683491) от 17.03.2019
+
+Microsoft Windows 7 Максимальная Ru x86-x64 Orig w.BootMenu by OVGorskiy® 03.2019 1DVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+обновленные оригинальные русские образы ОС "Windows® 7™ Максимальная" от Microsoft разных разрядностей (x86 и x64), объединенных в один образ стандартными средствами от Microsoft (DISM, AIK) на 1 DVD. Включает в себя "чистые" не модифицированные образы ОС Windows 7 Ultimate x86/x64 и расширенный загрузчик-установщик Stop SMS Uni Boot от Core-2. (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC515C1F88ADA88178663277B7B30127A0750A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284248   (682282) от 12.05.2011
 
 Южная Территория / Southland (Сезон 1, 2, 3 полные) (2009-2011) WEB-DLRip
@@ -6,7 +196,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_682282.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +222,7 @@ Adobe Premiere Pro CC 2017 (v11.1.1) Multilingual Update 3
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682260.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +250,7 @@ Adobe InDesign CC 2017 (v12.1.0) x86-x64 RUS/ENG Update 1
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +276,7 @@ The Final Station (2016) [Ru/Multi] (1.4.3/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +329,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4498.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +355,7 @@ AliExpress 5.2.9 [Rus/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +382,7 @@ The Flame in the Flood (2016) [Ru/Multi] (1.3.002) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +408,7 @@ Hunt Down The Freeman (2018) [En] (1.0/upd2) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +434,7 @@ Adobe Photoshop CC 2015.5.0 (20160603.r.88) RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +460,7 @@ Microsoft Windows 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 06.2016 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681048.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +569,7 @@ Kingsman: Секретная служба / Kingsman: The Secret Service (2014) 
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680767.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -405,7 +595,7 @@ Apple Final Cut Pro X 10.2.1,  Motion 5.2.1 & Compressor 4.2 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -434,7 +624,7 @@ This War of Mine (2014) [Ru/En] (4.0.0 (u2)/dlc) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +650,7 @@ Anthropics Portrait Professional Studio 10.9.5 + Portable [MULTi + Русски�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -486,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_680104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -500,188 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290066   (679826) от 19.03.2019
-
-BELOFF 2019.3 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5A6ED511A404845D04D68DF593EDC97739524D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290234   (679825) от 19.03.2019
-
-Windows 7 SP1 х86-x64 by g0dl1ke 19.3.15 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по март 2019 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA81843CE07750132238C071FCE8015000227FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267432   (679819) от 19.03.2019
-
-X4: Foundations (2018) [Ru/En] (2.20/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679819.jpg" />
-</div>
-
-
-###  Подробнее
-
-X4: Foundations - это космический симулятор, продолжающий знаменитую серию X3. Новая часть позволяет игрокам управлять не только космическими кораблями, но и целой империей, сражаясь, торгуя, и развивая свою территорию.Тип издания: RepackРазработчик: EgosoftЖанр: Action, Simulation, 3DЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F321D0A32FF7C5FD7F72FE3E9DA50264A900F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029635   (679756) от 27.06.2016
-
-Идеальные незнакомцы / Perfetti sconosciuti (2016) HDRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семеро старых друзей собираются вместе на ужин. Когда они решают начать игру, заключающуюся в том, что им придется читать все поступающие смс вслух, а на звонки отвечать по громкой связи, они и представить себе не могут, к чему приведет такая откровенность.Производство: ИталияЖанр: Драма, КомедияРежиссер: Паоло ДженовезеАктеры: Джузеппе Баттистон, Анна Фольетта, Марко Джаллини, Эдоардо Лео, Валерио Мастандреа, Альба Рорвахер, Касия СмутнякПеревод: Одноголосый закадровый, любительский (LetEatBee)Продолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F67402C2EE26B81CEBF40EC1DBA66ADD0F601D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676295   (679731) от 06.07.2013
-
-Форсаж 6 / Furious 6 (2013) WEB-DLRip [H.264/720p] [hand made 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679731.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как Доминик и Брайн побывали в Рио, где они ограбили и свергли империю вора в законе, их команда получила 100 миллионов, и наши герои оказались разбросаны по всему миру. Но их привычка вечно жить в бегах не даёт им покоя. Между тем, Хоббс отслеживал организацию смертельно опасных наёмников-водителей по двенадцати странам. Единственный способ остановить (   Читать дальше...   )Жанр: Боевик, Триллер, КриминалРежиссер: Джастин ЛинАктеры: Вин Дизель, Пол Уокер, Дуэйн Джонсон, Мишель Родригес, Люк Эванс, Тайриз Гибсон, Лудакрис, Санг Кенг, Галь Гадот, Джордана Брюстер...Перевод: ДублированныйСубтитры: Русские (Forced), Русские, EnglishПродолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62CB9E2199348894F5DA990B6ABC9D35550B95A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676576   (679729) от 06.07.2013
-
-VA - Этот великолепный и незабываемый Японский саксофон. 31 альбом (1965-1975) [MP3|256-320 кб/с]<Instrumental, Saxophone>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, SaxophoneПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAAE1512041CBB9C86CE19C5CA895B2B2E39EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 775008   (679035) от 17.06.2014
-
-Игра престолов / Game of Thrones (2014) HDTVRip [720p] (Сезон 4 / Серии 1-10 из 10) Fox
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гражданская война в Семи королевствах подходит к концу. Один король сражен тенью собственного брата, другой убит на свадьбе, третий царит на море, но на суше он никто. Четвертый по воле Владыки Света отправился к границе, разделяющей мир живых и мертвецов. Пятый же — на Железном троне и готовится к свадьбе и союзу, который навсегда покончит с притязаниями на престол (   Читать дальше...   )Жанр: фэнтези, драма, приключенияРежиссер: Дэвид Беньофф, Дэн Вайс, Алекс ГрейвзАктеры: Лена Хиди, Николай Костер-Валдау, Питер Динклейдж, Йен Глен, Эмилия Кларк, Кит Харингтон, Стивен Диллэйн, Лиам Каннингем, Кэрис ван Хаутен, Натали Дормер, Гвендолин Кристи, Ханна Мюррей и др.Перевод: Многоголосый закадровый, профессиональный - FoxФормат: MKVПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4542D124F63C3748E44949ED3A7D6741B61CB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1725608   (45631) от 26.08.2024
+
+Планета обезьян / Planet of the Apes (2011 - 2024) BDRip [H.264/1080p] [Коллекция]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Молодой ученый испытывает на обезьянах новое лекарство от болезни Альцгеймера. У препарата обнаруживается удивительный побочный эффект: он повышает в несколько раз интеллект приматов.Производство: США, Великобритания, Канада, Новая Зеландия / 20th Century Fox Film Corporation, APJAC Productions, Chernin EntertainmentЖанр: фантастика, боевик, триллер, драмаРежиссер: Уэс БоллАктеры: Оуэн Тиг, Питер Макон, Фрейя Аллан, Кевин Дюран, Трэвис Джеффри, Уильям Х. Мэйси, Дичен Лакмэн, Ика Дэрвилл, Лидия Пекхэм, Нил СэндилэндсПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:44:56 / 02:10:24 / 02:20:09 / 02:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826FF05D77448DC7FB3A471CF69F43B051F10A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483796   (45628) от 26.08.2024
+
+Обитель зла / Resident Evil (2002-2021) BDRip [H.265/1080p] [10-bit] [Коллекция]
+
+>>След.
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Серия фильмов Resident Evil основана на одноименных играх Capcom. Фильмы следуют за героиней Элис, персонажем, созданным для фильмов. Корпорация Umbrella выступает в качестве основного антагониста - биоинженерной фармацевтической компании, ответственной за апокалипсис зомби в результате создания T-вируса.Производство: США, Германия, Франция, Канада, Великобритания, Австралия / Capcom Company, Capcom Entertainment, Constantin Film International, Constantin Film Ltd., Constantin Film Produktion GmbH, Davis-Films, Impact Pictures, New Legacy, Resident Evil ProductionsЖанр: ужасы, боевик, фантастика, триллерРежиссер: Йоханнес РобертсАктеры: Кая Скоделарио, Ханна Джон-Кэймен, Робби Амелл, Том Хоппер, Эван Джогиа, Донал Лог, Нил Макдона, Лили Гао, Чад Рук, Марина МазепаПеревод: дублированный, многоголосый профессиональный, двухголосый профессиональный, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:31 / 01:33:48 / 01:34:05 / 01:36:52 / 01:35:37 / 01:46:40 / 01:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3BA9C1D35F71EE01EE7818E3DF60CF4D8DC264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382882   (43537) от 15.09.2024
 
 Плохие парни  / Bad Boys (1995 - 2024) BDRip [H.264/720p] [Квадрология]
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42056.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41344.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36292.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36288.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34763.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8F01FF4211767030501968F100461C1A13970D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677377   (33945) от 17.12.2024
-
-Миссия невыполнима / Mission Impossible (1996 - 2023) BDRemux [H.264/1080p] [Коллекция]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33945.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Миссия невыполнима» — серия фильмов-боевиков, состоящая из шести частей, выпущенных с 1996 по 2018 год и основанная на одноимённом телесериале. В центре сюжета — история агента Итана Ханта, которого на протяжении всех фильмов играет Том Круз. Формально фильмы основаны на двух старых телесериалах «Миссия невыполнима» (1966—1973, 1988—1990). В них небольшая команда (   Читать дальше...   )Производство: США, Германия, Китай, Италия, Франция, Норвегия, Великобритания, ОАЭ, Чехия, Россия, Индия, Канада / Paramount Pictures, Cruise/Wagner ProductionsЖанр: боевик, триллер, приключенияРежиссер: Брайан Де Пальма, Джон Ву, Джей Джей Абрамс, Брэд Бёрд, Кристофер МакКуорриАктеры: Том Круз, Джон Войт, Эммануэль Беар, Генри Черни, Жан Рено, Винг Реймз, Кристин Скотт Томас, Ванесса Редгрейв, Ингеборга Дапкунайте, Эмилио Эстевес, Хейли Этвелл, Ребекка Фергюсон, Пом Клементьефф, Ванесса Кирби, Саймон Пегг, Кэри Элвес, Ши Уигхэм, Индира Варма, Марк ГэтиссПеревод: дублированный, многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:50:13 / 02:03:35 / 02:05:25 / 02:12:56 / 02:11:34 / 02:27:25 / 02:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A587A4AE2C5B3BBBF060AA77F46294F6C6E5D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702797   (33939) от 17.12.2024
-
-Джеймс Бонд. Агент 007 / James Bond (1962-2021) BDRip [H.265/1080p] [10-bit] [Коллекция]
-
->>След.
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Бонд, коммандер ВМФ Великобритании, также известный как «агент 007» - главный персонаж романов британского писателя Яна Флеминга о вымышленном агенте MI6. Получил широкую популярность после начала экранизации романов Флеминга. Серия фильмов о Джеймсе Бонде именуется «бондианой» и является одной из самых продолжительных серий фильмов в истории. С 1962 по 2012 (   Читать дальше...   )Производство: США, Великобритания, Таиланд, Франция, Германия (ФРГ), Мексика, Чехия, Багамы / United Artists, Columbia Pictures Corporation, Famous Artists Productions, MGM/UA Entertainment Co., MGM/UA Distribution Co., Metro-Goldwyn-Mayer, 20th Century Fox, EON Productions, B25, Cinesite, Danjaq, Universal PicturesЖанр: боевик, триллер, приключенияРежиссер: Вэл Гест, Гай Хэмилтон, Джон Глен, Ирвин Кершнер, Ли Тамахори, Льюис Гилберт, Майкл Аптед, Марк Форстер, Мартин Кэмпбелл, Питер Р. Хант, Роджер Споттисвуд, Сэм Мендес, Теренс Янг, Кэри Дзёдзи ФукунагаАктеры: Шон Коннери, Джордж Лэзенби, Питер Селлерс, Роджер Мур, Тимоти Далтон, Пирс Броснан, Дэниэл КрэйгПеревод: дублированный, многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:49:50 / 01:55:12 / 01:50:01 / 02:10:23 / 01:56:58 / 02:11:08 / 02:22:18 / 02:00:08 / 02:01:38 / 02:05:13 / 02:05:40 / 02:06:28 / 02:07:59 / 02:10:48 / 02:14:05 / 02:11:18 / 02:10:53 / 02:13:20 / 02:10:00 / 01:59:20 / 02:08:20 / 02:12:34 / 02:24:33 / 01:46:14 / 02:23:09 / 02:28:06 / 02:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F16C6A5DC12EB62C9889D38C1B86AFD05075C31
 ```
 
 https://mybot314.ru/tekegram_catalog/

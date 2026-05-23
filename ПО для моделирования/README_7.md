@@ -1,3 +1,164 @@
+###  Публикация: 1705453   (63516) от 09.03.2024
+
+Reconstruct Subdiv script for Autodesk Maya v1.3 by Nick Barre [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+"Reconstruct/Reverse Subdiv" - это скрипт для Maya, который позволяет вернуть модель, с накинутым сабдивом в предыдущее состояние.
+Хотите отредактировать высокополигональную модель, но у вас нет несглаженной версии?
+С помощью Reconstruct Subdiv это не проблема! Получайте низкополигональную модель в любое время!Язык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8299552D9F982989B3A6BEE54524EBA8F98B990C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707103   (62904) от 15.03.2024
+
+Bondware Poser Pro 13.3.686 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Poser - программа трехмерной компьютерной графики, оптимизированная для трехмерного моделирования человеческих фигур. Она известна тем, что позволяет цифровым художникам легко создавать 3D-анимацию и цифровые изображения, а также широкой доступностью цифрового контента сторонних производителей.
+
+С 1995 года Poser является основным программным инструментом для создания (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA66B9BD491A5D5CDB1CDB8867C62244AD7E5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710911   (61512) от 28.03.2024
+
+Room Arranger 9.8.3.645 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BD0AD5D5EC0083629E3A3A949C36D2BFB44078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710741   (61488) от 28.03.2024
+
+Room Arranger 9.8.3.645 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0EE8D4B022A2C7F14529F02ED21BBF3FF1701E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715525   (59953) от 12.04.2024
+
+Мой Дом 3D 1.31 Portable by 7997 [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мой Дом 3D -  - это программа для самостоятельного проектирования домов. Вы сможете создать поэтажный план здания с мансардой и цокольным этажом, пристроить крыльцо, лестницу. Внешнюю и внутреннюю отделку меняйте по своему усмотрению. В каталоге есть 1150+ материалов и возможность загрузить свое фото обоев, линолеума и прочих покрытий.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60AA12F69F6363DD3B1FF0B4D2968C2C6F8F6EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718418   (58386) от 27.04.2024
+
+SIGERSHADERS XS Material Presets Studio 6.2.0 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+SIGERSHADERS XS Material Presets Studio - это обновлённая библиотека материалов для 3ds Max + V-ray/Corona/Redshift, включающая в себя User Library material manager.
+Коллекция состоит из различных категорий материалов. Будь то: металлы, ткань, стекло и т.д.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD03E5BE4AED755652107EA7BBDBDF16029DE622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719842   (57989) от 01.05.2024
 
 Adobe Substance 3D Designer 2024 13.1.2 (x64) Portable by 7997 [Multi]
@@ -6,7 +167,7 @@ Adobe Substance 3D Designer 2024 13.1.2 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +193,7 @@ Marvelous Designer Personal 2024.0.125.47553 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +219,7 @@ CLO Standalone 7.3.240.46861 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57544.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +245,7 @@ Forester v1.5.5 For Cinema 4D R18-2024 Win 1.5.5 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57447.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -112,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -139,7 +300,7 @@ Adobe Substance 3D Painter 10.0.0 build 3640 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55912.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -165,7 +326,7 @@ SideFX Houdini 20.0.547 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -191,7 +352,7 @@ Arnold for Houdini 6.2.5.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -217,7 +378,7 @@ Octane Render 2022.1 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -243,7 +404,7 @@ Arnold Render for Cinema 4D (C4DtoA) 4.7.3 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -272,7 +433,7 @@ Corona Renderer 12 for Cinema 4D R17-2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50790.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +459,7 @@ Adobe Substance 3D Sampler 2024 4.5.0 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49130.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -324,7 +485,7 @@ RizomUV Virtual Spaces / Real Space 2024.0.100 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49123.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -350,7 +511,7 @@ Sweet Home 3D 7.5 + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46062.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -376,7 +537,7 @@ Adobe Substance 3D Stager 2024 3.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -402,7 +563,7 @@ Adobe Substance 3D Modeler 2024 1.13.0.53 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -428,7 +589,7 @@ Adobe Dimension 2024 4.0.3 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +616,7 @@ Blender 3.6.17 LTS + Portable [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -483,7 +644,7 @@ Chaos Enscape 3D 4.2.1.88 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -509,7 +670,7 @@ Lumion Pro 2024.4.2.0 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33014.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -520,171 +681,6 @@ Lumion Pro 2024.4.2.0 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F41FB7D924CF4069AEC1D8B1DE2F984B57252C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779451   (27739) от 13.02.2025
-
-LuBan 3D 06.02.2025 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27739.jpg" />
-</div>
-
-
-###  Подробнее
-
-LuBan 3D - это программное обеспечение для автоматического генеративного дизайна, которое помогает дизайнерам и производителям быстро создавать свои творения.
-LuBan автоматически создает 3D-модели в различных формах, таких как литофан, стопка, решетка, пластина, рельеф, модуль и каркас. Созданная модель может быть позже изготовлена с помощью 3D-печати, лазерной резки (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD78A24607EE0E8B0E7A361233A2505EAE9E605B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779837   (27537) от 15.02.2025
-
-SolidRocks 2.5.0 for 3ds Max repack by MSI [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27537.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolidRocks автоматизирует весь сложный процесс настройки визуализации. Вам необходимо лишь выбрать необходимый размер и качество изображения.
-Цель SolidRocks состоит в том, чтобы с легкостью достигать наилучших результатов визуализации с помощью V-Ray без необходимости в каких либо углубленных знаниях V-Ray.
-SolidRocks регулирует все параметры настроек Vray согласно (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271FE2BF23DC19C84FFD071F23500B2F213ABA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791941   (21280) от 16.04.2025
-
-Blender 4.2.9 LTS + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50235FC106D04595CE126BB8FAFC66797367D2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792105   (21176) от 17.04.2025
-
-Blender 4.4.1 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blender - бесплатный редактор трехмерной графики и анимации. Несмотря на относительно небольшой размер, функций этого пакета вполне достаточно для работы как обычным пользователям, так и профессионалам.
-
-В программе есть все основные инструменты, которые используются в профессиональных 3D-редакторах. Программа включает в себя средства 3D-моделирования, анимации, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8E5C194FC5E64C2BBEA1D66EF174153D2C5CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795243   (19497) от 03.05.2025
-
-Chaos Vantage 2.8.0 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рендерите самые сложные сцены V-Ray 3D в режиме трассировки лучей в реальном времени. С Chaos® Vantage нет необходимости в трудоемких преобразованиях. Просто перетащите всю сцену V-Ray в Vantage и приступайте к работе. Быстро создавайте высококачественные визуализации или предварительные визуализации для архитектуры, кинопроизводства, автомобилестроения и т. д.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F953578FA43DBBAFD267BCAD1242066E5388BEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797276   (18273) от 15.05.2025
-
-Autodesk 3ds Max 2026 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk 3ds Max предоставляет все необходимые инструменты для проектирования 3D-моделей, анимации и рендеринга. 3ds Max позволяет создавать реалистичные трехмерные сцены и яркие эффекты, естественных 3D-персонажей с правдоподобными движениями, выполнять визуализацию проектов изделий, архитектурных объектов и окружения.
-
-В 3ds Max возможно моделирование разнообразных (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1147FD0A9077FF54D40BECC2C7D317C2B888514F
 ```
 
 https://mybot314.ru/tekegram_catalog/

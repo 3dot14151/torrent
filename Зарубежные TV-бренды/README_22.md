@@ -1,3 +1,57 @@
+###  Публикация: 1504479   (811699) от 23.10.2021
+
+BBC: Восхождение нацистов / Rise of the Nazis (2019) WEBRip [H.264/1080p-LQ] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В начале тридцатых годов ХХ века Германия была парламентской республикой, где действовали демократические институты, была развитая судебная система и свободная пресса. В 1933 году власть перешла в руки диктатора, под чьим руководством совершились худшие зверства в истории, свободе слова пришел конец, а большая часть оппозиции оказалась за решеткой.
+
+В документальном (   Читать дальше...   )Производство: Великобритания / BBC Studios, 72 FilmsЖанр: Документальный, ИсторияРежиссер: Джулиан ДжонсПеревод: Многоголосый профессиональный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883B02F047AE64D55B12AD2F0BBE25E3041699E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008879   (811639) от 20.04.2016
+
+BBC: Завтра нашего мира / Tomorrow's World: A Horizon Special (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Научные идеи изменяют наш мир с поразительной скоростью и эффективностью. Специальный выпуск документального цикла Horizon от телекомпании BBC посвящен четырем направлениям науки, которые сулят человечеству неслыханные блага: освоение ближнего космоса, нанотехнологии, биоинженерия, альтернативная энергетика. Ведущая программы Лиз Бонин познакомит нас с удивительными (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйРежиссер: Грехам Стронг / Graham StrongПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74193EAE96B21CFF1CEA6D6C885FAF8DB279F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504617   (811534) от 23.10.2021
 
 Колыбель богов / Cradle of the Gods (2012) WEB-DL [H.264/1080p]
@@ -6,7 +60,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +112,7 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +164,7 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +190,7 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810274.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +225,7 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809988.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +251,7 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Одиссея Жака Кусто
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +303,7 @@ BBC: Как это работает. Таинственный Мир Матер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809918.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -275,7 +329,7 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809842.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -301,7 +355,7 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809736.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +407,7 @@ Discovery. Динозавры: Возвращение к жизни? / Dinosaurs
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -379,7 +433,7 @@ Discovery. Беар Гриллс: Как остаться в живых / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_809553.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -405,7 +459,7 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809222.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -431,7 +485,7 @@ History Channel. Вселенная (2 сезон: 1-18 серии из 18) / Th
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +511,7 @@ Discovery. Техногеника. Вертолеты-гиганты (2017) HDTV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809012.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +537,7 @@ BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807946.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807219.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806834.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -563,7 +617,7 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +643,7 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806340.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +669,7 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806224.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -626,58 +680,6 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFEA989CBD2E363F829B713ABE1EDF3E39784DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545880   (805968) от 18.04.2014
-
-BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDRip [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеческий глаз - один из самых могущественных инструментов на свете. Но то, что он видит - неполная картина. Бок о бок со знакомым нам миром есть совсем другой мир. Невидимый мир. Он влияет на все аспекты жизни на земле. C помощью современной техники создатели этого научно-популярного фильма смогли проникнуть в этот тайный мир, раскрыть его секреты и показать (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC), Discovery ChannelЖанр: Документальный, научно-познавательныйРежиссер: Дэн Клифтон, Гэвин Максвелл, Мэтью ВортманПеревод: Двуголосый закадровый, профессиональный (студия "Кипарис")Субтитры: РусскиеПродолжительность: 3 x ~ 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A2A1B5913403C53516FCBA88AC86F0D6A29A549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731450   (805843) от 23.04.2016
-
-NG. Файлы секретных служб: Охрана президента / Secret Service Files: Protecting the President (2012) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ об элитарной группе мужчин и женщин, чья работа - охранять президента США, даже если при этом их собственная жизнь подвергается риску.Жанр: Документальный, спецслужбы, историяПеревод: Одноголосый закадровый (профессиональный, студия АРК-ТВ)Продолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9877764E85223FDA2F239E2CF122D9385FEF9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

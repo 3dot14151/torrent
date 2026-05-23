@@ -1,3 +1,83 @@
+###  Публикация: 1750071   (43179) от 18.09.2024
+
+Джимми Нейтрон: Мальчик-гений / Jimmy Neutron: Boy Genius (2001) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пришельцы решили совершить массированный налет на мирный и благополучный Ретровилль! В то время, как Джимми развлекался в луна-парке со своими друзьями, инопланетяне обрушились с небес, похитив при этом родителей всех детишек!
+
+Жизнь без строгих пап и мам, поначалу казавшаяся раем, стала совершенно невыносимой и тоскливой. Отважный Джимми Нейтрон решает спасти любимых (   Читать дальше...   )Производство: США, Австралия / DNA Productions Inc., Nickelodeon Animation Studios, Nickelodeon Movies, O Entertainment, Paramount PicturesЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Джон А. ДэвисАктеры: Деби Дерриберри, Меган Кавана, Марк ДеКарло, Джеффри Гарсиа, Боб Гоен, Мэри Харт, Кэролин Лоуренс, Андреа Мартин, Кэнди Мило, Роб ПолсенПеревод: ДублированныйЯзык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E163A0C10660A7822CBDA6AD4D4343493BBA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750379   (43070) от 19.09.2024
+
+Сирокко из страны ветров / Sirocco et le royaume des courants d'air / Sirocco and the Kingdom of the Winds (2023) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Кармен и ее младшая сестра Жюльетта проводят день в гостях у соседки, детской писательницы, чьи захватывающие истории посвящены обитателям фантастического Королевства Ветров. Пока хозяйка отдыхает, девочки обнаруживают ожившую фигурку, которая открывает им портал в сказочную страну.Производство: Франция, Бельгия / Sacrebleu Productions, Take Five, Ciel de Paris ProductionЖанр: мультфильм, фэнтези, приключенияРежиссер: Бенуа ШьёАктеры: Пьер Лонье, Лоис Шарпентье, Марин Бертье, Лоран Морто, Эрик Де Старке, Дэвид Дос Сантос, Жеральдин Асслен, Tallula Dinsmoore, Селия, Элия Сен-ПьерПеревод: Дублированный (Студийная банда)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC67EA92A9C82537E8A3864C381F68E1323BAA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750442   (42990) от 20.09.2024
+
+200% Волк / 200% Wolf (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Пудель Фредди Люпин мечтает стать волком. Волки смеются над ним, полагая, что пудель не может совершать героические поступки и помогать людям, как они. Однажды Фредди загадал желание, но напутал с ним, и на Землю прилетел озорной лунный дух. Тот рассказал, что Земля и Луна должны скоро столкнуться, но Фредди может помочь предупредить катастрофу. Собрав друзей-собак, (   Читать дальше...   )Производство: Австралия, Германия, Испания, Мексика, США / 200 Wolf La Pelicula AIE, 20th Century StudiosЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Алекс СтадерманнАктеры: Илай Суинделлс, Элизабет Наббен, Дженнифер Сондерс, Sarah Georgina, Питер МакАллум, Самара Уивинг, Janice Petersen, Heather Mitchell, Michael Bourchier, Алекс СтадерманнПеревод: Профессиональный многоголосый (RGB)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E8784A6B3AC3BCF8DE48E5A5D91E636927DA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073970   (42580) от 24.09.2024
 
 В поисках Дори / Finding Dory (2016) BDRip [H.264/1080p-LQ]
@@ -6,7 +86,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42580.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42442.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42430.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42162.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41049.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40757.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39728.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39198.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38961.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7377705111E6147435381443D20802AEFDCE74B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757895   (38848) от 30.10.2024
-
-Гадкий я 4 / Despicable Me 4 (2024) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грю, Люси и их девочки — Марго, Эдит и Агнес — приветствуют нового члена семьи, Грю-младшего, который намерен мучить своего отца. Грю сталкивается с новым врагом в лице Максима Ле Маля и его роковой подруги Валентины, в связи с чем семья вынуждена бежать.Производство: США / Universal Pictures, Illumination EntertainmentЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Крис Рено, Патрик ДелажАктеры: Стив Карелл, Пьер Коффан, Уилл Феррелл, София Вергара, Крис Рено, Дэна Гайер, Мэдисон Скай Полан, Миранда Косгров, Кристен Уиг, Стив КуганПеревод: Дублированный, Профессиональный многоголосыйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced), английские (Full, SDH), украинские (Forced, Full) и др.Продолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55D0C0A5B3722104E5F1AC26B0FF6FE2E3738C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758520   (38420) от 03.11.2024
-
-Гадкий я / Despicable Me (2010-2024) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision P7, 10-bit] [Квадрология]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гадкий снаружи, но добрый внутри Грю намерен, тем не менее, закрепить за собой статус главного архизлодея в мире, для чего он решает выкрасть Луну при помощи созданной им армии миньонов. Дело осложняют конкуренты, вставляющие высокотехнические палки в колеса, и семейные обстоятельства в виде трех сироток, о которых Грю вынужден заботиться.Производство: США, Франция, Япония / Universal Pictures, Illumination EntertainmentЖанр: мультфильм, фантастика, комедия, криминал, приключения, семейныйРежиссер: Пьер Коффан, Крис Рено, Кайл Балда, Эрик ГуильонАктеры: Стив Карелл, Пьер Коффан, Уилл Феррелл, София Вергара, Крис Рено, Дэна Гайер, Мэдисон Скай Полан, Миранда Косгров, Кристен Уиг, Стив КуганПеревод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:34:40 / 01:37:58 / 01:29:39 / 01:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE76C96AEE89CC1FC9B5F7D290FE8D4A6F619B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758672   (38414) от 03.11.2024
-
-Маленький принц / Le petit prince / The Little Prince (2015) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир невозможен без фантазии и приключений. По крайней мере в это верит добродушный старик авиатор, по соседству с которым недавно поселилась одна очень педантичная мама со своей прилежной дочкой. Все в жизни ребенка подчинено строгому графику ради главной цели — поступления в академию. Так решила мама. Но однажды девочка знакомится с чудаковатым стариком, и он открывает (   Читать дальше...   )Производство: Франция, Канада, Италия, США, Китай / Method Animation, ON Animation Studios, Orange Studio, LPPTV, M6 Films, Lucky Red, Paramount Animation, Wild BunchЖанр: мультфильм, фантастика, фэнтези, драма, приключения, семейныйРежиссер: Марк ОсборнАктеры: Джефф Бриджес, Рэйчел МакАдамс, Пол Радд, Марион Котийяр, Джеймс Франко, Бенисио Дель Торо, Рики Джервэйс, Бад Корт, Пол Джаматти, Райли ОсборнПеревод: Дублированный (CPI Films)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E159632FAB3E2C386BCB5D0EB76F665D7F4944CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

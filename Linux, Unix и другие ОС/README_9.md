@@ -1,3 +1,137 @@
+###  Публикация: 1275754   (789225) от 13.01.2019
+
+Phoenix OS 3.0.7.508, 1.5.0.297 x86/x64 [En]
+
+>>Linux, Unix и другие ОС
+>>Другие ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбукЯзык интерфейса: Английский (русский включается в настройках после установки)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830C5AF293B1315832BDA7C6D876FA4ECBD397F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204617   (783987) от 08.02.2018
+
+Parrot Security OS 3.11 [Хакинг, аудит, безопасность] [i386, amd64] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Parrot Security OS предназначен для пентестинга (тестирования на проникновение), обратного инженеринга, взлома, облачного пентестинга, конфиденциальности, анонимности и криптографии. Набирающий популярность security-дистрибутив, основанный на стабильной ветке Debian-linux. Довольно простой в освоении, подходит и для новичков и для профессионалов. Этот дистрибутив (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FF4F5B2053C85D0422FD9B2D874D432060DC25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390823   (782211) от 17.06.2020
+
+CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Как сообщает OpenNet: представлен выпуск дистрибутива CentOS 2004, вобравший в себя изменения из Red Hat Enterprise Linux 8.2. Дистрибутив полностью бинарно совместим с RHEL 8.2, внесенные в пакеты изменения, как правило, сводятся к ребрендингу и замене художественного оформления. Сборки CentOS 2004 подготовлены (7 Гб DVD и 550 Мб netboot) для архитектур x86_64, (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343F8F1A7BF2F327E377A016EE478BC72E49DA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209524   (779195) от 27.02.2018
+
+BlackArch Linux 2017.12.11 [Хакинг, аудит, безопасность] [i686, x86-64] 1xDVD, 1xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+BlackArch - «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
+ (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279F3FB454B0D10102B6D1497EF1F0DECC577F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209979   (778904) от 01.03.2018
+
+NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bits) versions only] 1xCD
+
+>>Linux, Unix и другие ОС
+>>Специализированные ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+NAS4Free - встраиваемая (embedded) операционная система с открытым исходным текстом (Open Source) для сетевого хранилища NAS (Network-Attached Storage).
+
+NAS4Free основана на ОС FreeBSD, поддерживает обмен между ОС семейств Windows, Apple и UNIX-подобных.
+ОС включает: Sun ZFS v5000 (Feature Flags) (RAID-Z, RAIDZ-2 & RAIDZ-3), программный RAID (0,1,5), JBOD, шифрование, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659995   (774653) от 23.05.2013
 
 Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
@@ -6,7 +140,7 @@ Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774653.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +168,7 @@ BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +198,7 @@ OpenBSD 6.1 [alpha,amd64,arm64,armv7,i386,loongson,luna88k,macppc,octeon,sparc64
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -82,6 +216,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 886491   (769957) от 09.04.2015
+
+JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.76.2.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FF5200A2734470F5909BB8A3DC8F7AA7E1A8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125245   (768453) от 14.04.2017
 
 Parrot Security OS 3.5 [Хакинг, аудит, безопасность] [i386, amd64, arm] 5xDVD
@@ -90,7 +250,7 @@ Parrot Security OS 3.5 [Хакинг, аудит, безопасность] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768453.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -116,7 +276,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766746.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -142,7 +302,7 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +328,7 @@ SystemRescueCD 6.1.6 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +354,7 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +380,7 @@ OpenMediaVault (Usul) 5.3.9 [amd64] 1 CDxCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +407,7 @@ pfSense Community Edition 2.4.5p1 [amd64] 1xCD, 3xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764212.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +433,7 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764207.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +459,7 @@ OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +487,7 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762499.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -347,6 +507,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887830   (759054) от 12.04.2015
+
+JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Вышел очередной корректирующий релиз дистрибутива JonDo  - 0.9.77.  Устранены выявленные баги, обновлена пакетная база. Jondo Live-DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. Firefox (Firefox+JonDoFox) предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EF6BA7AA6169FFA39DA0CC95A3807C9835B7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215219   (757774) от 26.03.2018
 
 Proxmox VE 5.1 [x64] 1xCD
@@ -355,7 +541,7 @@ Proxmox VE 5.1 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +569,7 @@ Debian Edu - Skolelinux 10.4.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756859.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +595,7 @@ Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -439,7 +625,7 @@ Calculate Linux 15.17 [i686] 1xCD, 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -467,7 +653,7 @@ Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754886.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -493,7 +679,7 @@ Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -506,196 +692,6 @@ Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280521   (754698) от 06.02.2019
-
-Phoenix OS 3.0.8.529 x86/x64 [En]
-
->>Linux, Unix и другие ОС
->>Другие ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phoenix OS - проект по портированию ОС Android на персональные компьютеры с архитектурой Intel и x86, использует кодовую базу Android-x86. Позволяет запускать мобильную операционную систему от Google на ПК, будь то стационарная машина или ноутбукЯзык интерфейса: Английский (русский включается в настройках после установки)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC63E0E0EEFA2B46869E9D104C562ABF4E90C012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018710   (753546) от 21.05.2016
-
-Calculate Linux 15.17 [x86-64] 1xCD, 6xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_753546.jpg" />
-</div>
-
-
-###  Подробнее
-
-На серверах размещена следующая версия российского дистрибутива Calculate Linux - 15.17. Calculate Linux 15.17, построен на основе Gentoo Linux, поддерживает непрерывный цикл выпуска обновлений и оптимизирован для быстрого развёртывания в корпоративной среде.
-
-Дистрибутив доступен в нескольких редакциях, собранных для архитектур i686 и x86_64: Calculate Linux Desktop (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01049717A7AB24746FEC30FE0F2817C712BCC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663342   (752897) от 01.06.2013
-
-ZevenOS 3.1 Neptune [x64] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_752897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла Neptune-редакция дистрибутива ZevenOS 3.1. Этот Debian-based настольный дистрибутив для 64-битных компьютеров отличается использованием последней версии рабочей среды KDE.
-
-В Neptune 3.1 задействовано ядро Linux 3.9.2. Базовой системой релиза является стабильная версия Debian, 7.0 Wheezy. Версия KDE Plasma Desktop в этом выпуске Neptune – 4.10.3. В списке программного обеспечения – Chromium 26, Kdenlive 0.9.6, Amarok 2.7.1, LibreOffice 4.0.3, предустановлены медиакодеки и flashplayer. Для диагностики беспроводных сетей в состав Neptune включены Wireshark, Aircrack-ng и kismon.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664439   (749241) от 03.06.2013
-
-Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя месяц после предыдущего релиза вышел новый релиз -  Manjaro Linux 0.8.6 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутиве сохранено окружение рабочего стола openbox.
-
-В текущий релиз были включены некоторые новые пакеты, ядро версии Linux 3.9, исправлена ошибка установщика, Openbox требует меньше ресурсов и размещен на меньшем по размеру носителе; обновлен Pamac и проприетарные драйверы для AMD и NVIDIA; Installer переведен на арабский, каталанский, немецкий, греческий, английский, испанский, фарси, индонезийский, итальянский, португальский, румынский, словацкий и турецкий. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664566   (747243) от 04.06.2013
-
-Snowlinux 4.0 Frosty [Cinnamon, Mate] [i386 + amd64] (4xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747243.jpg" />
-</div>
-
-
-###  Подробнее
-
-SnowLinux Frosty 4 базируется на Ubuntu 13.04 и использует ядро Linux 3.8. DE Cinnamon и Mate (MATE 1.6 and Cinnamon 1.8) являются средами рабочего стола по умолчанию, а LightDM - менеджером входа в систему. Дистрибутив дополнен новым функционалом:  Snowlinux Metal theme; Nemo 1.8; Caja 1.6; Firefox 21.0 and Thunderbird 17.0.5, а также произведено много других обновлений.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020004   (746485) от 25.05.2016
-
-OSGeo-Live 9.5 (Дистрибутив для географов, картографов, кризисного управления) [i386, amd64] 2xDVD, 1xVM
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен очередной релиз OSGeo-Live — живого диска в виде DVD, образа для записи на USB-носитель и образа для виртуальной машины. Основан на Linux-дистрибутиве Lubuntu текущей LTS версии. Также может быть установлен на жесткий диск. Содержит обновленное до актуальных версий открытое/свободное ПО для работы с пространственными данными (ГИС, СУБД, веб-картография (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020008   (746244) от 25.05.2016
-
-Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
-
-Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5D9C1273A392742F71A699A691531DE62F5296
 ```
 
 https://mybot314.ru/tekegram_catalog/

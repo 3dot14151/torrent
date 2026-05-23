@@ -1,3 +1,108 @@
+###  Публикация: 1089385   (865912) от 21.09.2021
+
+The Town of Light (2016) [Ru/Multi] (2.2/dlc) Repack Other s [Limited Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+The Town of Light - психологическое приключение с повествованием от первого лица. События игры развиваются в первой половине 20-го века, в Италии, в реально существовавшем месте, аспекты и детали которого были тщательно реконструированы. Исследование окружающего мира и взаимодействие с ним - ключ к раскрытию тайны судьбы главного персонажа, история которого будет (   Читать дальше...   )Тип издания: RepackРазработчик: LKAЖанр: Adventure, 1st Person, 3DЯзык озвучки: Английский, Итальянский, Немецкий, ЯпонскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778168CE9006CFA17444377350828F52528D9C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107777   (865475) от 23.02.2017
+
+NecroVision (2009) [Ru] (1.2) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Война — это ад. NecroVision — это шутер от первого лица, который проведет игроков через безумные поля сражений Первой мировой войны и сквозь темные подземелья, полные вампиров, демонов и темной магии. В поисках приключений, молодой американец Саймон Бакнер присоединился к британской армии в разорванной войной Европе в 1916 году. Во время особенно ожесточенного сражения, (   Читать дальше...   )Тип издания: RepackРазработчик: The Farm 51Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0C77181E47152BE4C112818452EC5E54310BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999462   (861963) от 23.03.2016
+
+Burn / Пекло (2007) [Ru] (1.0) License
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в пекло беспощадных сражений будущего!
+Год 2055. Отгремела мировая война, и загадочный Дарк, непобедимый наемник, презревший убеждения, за деньги сражающийся на чьей угодно стороне, ни разу не потерпевший поражения, стал неугоден бывшим нанимателям. Правительства стран-участниц конфликта объявили награду за голову Дарка, но чтобы заслужить право (   Читать дальше...   )Тип издания: LicenseРазработчик: Destan EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4510F71CC8F58ADB039039E0C8EBC54F8B0715B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108666   (861903) от 25.02.2017
+
+Absent Mind (2017) [En] (1.0) License HI2U
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Absent Mind — игра, рассказывающая короткую историю человека проводящего остаток жизни в больнице перед смертью, которая служит мостом к загробной жизни. Предполагается, что эта история есть ничто иное, как воображение, которое позволяет увидеть какие-то ранее недоступные вещи. Это игра-головоломка с элементами ужаса. Вам придется увидеть больницу с совершенно другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Dylan LathamЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABD41D7E207B05B483B502A519FCC530D106C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497938   (860902) от 24.09.2021
 
 Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
@@ -6,7 +111,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ Far Cry Franchise [Ru/En/Multi] (Steam-Rip) 2004-2012 | R.G. Игроманы
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ DESYNC (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851389.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Quake: Enhanced (2021) [Ru/Multi] (7211438/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850670.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ Rogue Warrior (2009) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Revenants 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ One Sole Purpose (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ Nether: Resurrected (2014) [Ru/En] (2014 June) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -293,7 +398,7 @@ S.T.A.L.K.E.R. Shadow of Chernobyl - Конец Света 2: Последний
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -319,7 +424,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -345,7 +450,7 @@ Follia Dear Father (2020) [Ru/Multi] (3.86) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835537.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -371,7 +476,7 @@ Far Cry 3: Blood Dragon (2013) [Ru/En] (1.0.1) RePack R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -397,7 +502,7 @@ Stairs (2015) [En] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -423,7 +528,7 @@ Crysis 2 (2011) [Ru] (1.9) Repack/Mod Agastan [HD Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -449,7 +554,7 @@ Resilience: Wave Survival (2015) [En] (Build 26) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828215.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -475,7 +580,7 @@ Outlast Dilogy (2013-2017) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -501,7 +606,7 @@ Obscuritas (2016) [Ru/Multi] (1.0) Repack ARMENIAC
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -527,7 +632,7 @@ Cold Fear (2005) [Ru/Multi] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_824030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +658,7 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Delu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_823829.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -564,110 +669,6 @@ Deus Ex: Mankind Divided (2016) [Ru/En] (1.19hf/dlc) Repack  xatab [Digital Delu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C587FB87C8661861432A99A64353718BC7CC1180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007281   (822826) от 14.04.2016
-
-The Tape (2015) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822826.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Tape является медленной и жуткой игрой от первого лица. Это ужас, с мистической историей и абстрактными психологическими элементами. Что касается главного героя, то на этот раз вы станете детективом прошлого, то есть, история игры перенесет вас на несколько веков назад, где вы должны отправиться в заброшенный дом и отыскать улики, которые помогут понять, что (   Читать дальше...   )Тип издания: LicenseРазработчик: Kazakov OlegЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3B00C0725676A57277B5BDD4B223FE1B9423CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007297   (822600) от 14.04.2016
-
-Putrefaction (2015) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Putrefaction это Шутер от первого лица с элементами хоррора, который вдохновлен старыми олдскульными шутерами вроде Дума или Квейка.Тип издания: LicenseРазработчик: Kazakov OlegЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC4FD5BF92AC5F9731532407DA8BCEA6300805E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007343   (822599) от 14.04.2016
-
-Dead Secret (2016) [En] (1.0) Rip Unleashed
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Secret – мистический триллер, созданный для шлемов виртуальной реальности. Вы окажитесь на месте преступления и окунетесь в жуткое прошлое мертвого мужчины. Вам предстоит раскрыть загадку его гибели и сбежать, прежде чем стать новой жертвой.Тип издания: RipРазработчик: Robot InvaderЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E112E959BFD3E7640305626BC2F9D3AE90DD5D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381328   (822093) от 09.05.2020
-
-Deus Ex: Human Revolution (2013) [Ru/Multi] (2.0/dlc) Repack West4it [Director's Cut]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_822093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший оперативник Адам Дженсен занимал пост начальника охраны одной из крупнейших мировых корпораций, специализирующейся на биотехнологиях. И все шло хорошо, пока однажды офис компании не подвергся нападению. Большинство ученых погибло, а сам Адам был тяжело ранен. Чтобы сохранить ему жизнь, руководство приняло решение подвергнуть его механическому усовершенствованию.Тип издания: RepackРазработчик: Eidos MontrealЖанр: Action (Tactical), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C78E943054115D3AE1E5764CBDE2FF9C8E4F1EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

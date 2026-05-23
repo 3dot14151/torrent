@@ -1,3 +1,31 @@
+###  Публикация: 1392102   (769811) от 24.06.2020
+
+Dheeva (Asura & Lestesie) - Discography 2 Releases (2020) Multiversal Records, Flangerine Records [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Not From This World (07:30)
+ 02. New Order (07:22)
+ 03. Le Mur De Planck (07:39)Тип издания: WebЖанр: Psy-Trance, Goa Trance •Продолжительность: 00:54:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C43DC5E905FA87A012EBCD8ADC25F2F83A26920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393219   (768354) от 29.06.2020
 
 VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
@@ -6,7 +34,7 @@ VA - Voyager: Third Plateau (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768354.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -35,7 +63,7 @@ Tamlin - Spectrogram (2008) [FLAC|Lossless|tracks + .cue] <Breaks, Psy-Trance, P
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763718.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -64,7 +92,7 @@ Heisenberg - Thoughts (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757181.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -93,7 +121,7 @@ Monolock - Best Of RELOOPED (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757118.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -122,7 +150,7 @@ Flegma - Echoes From Jangala (2018) [FLAC|Lossless|tracks] <Psy-Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752517.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -151,7 +179,7 @@ Shakti - Psychedelic Experience (2016) [FLAC|Lossless|image + .cue] <Psychedelic
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -180,7 +208,7 @@ GMS - The G.M.S. Experiment (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746764.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -209,7 +237,7 @@ VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -238,7 +266,7 @@ VA - Goa Trance, Vol. 43 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -267,7 +295,7 @@ VA - Exposure, Vol.1-4 (2015 - 2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tran
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +324,7 @@ VA - Goa Festival Sounds, Vol.4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tr
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +353,7 @@ E-Mantra - 15 Years Of Music Special Release Vol 1 (2020) [FLAC 2.0|44.1/24|trac
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -354,7 +382,7 @@ Goasia - Landed On Wrong Planet LP (2020) [FLAC|Lossless|WEB-DL|tracks] <Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732875.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +411,7 @@ VA - The Sound Of Psy-Trance, Vol.1-4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -412,7 +440,7 @@ VA - Mysteries of Psytrance Vol. 6 (Compiled By Ovnimoon)(2017) [FLAC|Lossless|t
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -441,7 +469,7 @@ VA - Be One (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695680.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -470,7 +498,7 @@ VA - Summer Seeds (Selection By Cubixx & Sun) (2020) [FLAC|Lossless|WEB-DL|track
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694028.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -499,7 +527,7 @@ VA - Goa Culture - Season 4 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691931.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +556,7 @@ Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -557,7 +585,7 @@ Nostromosis - My Way (The Next Step) (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa T
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -586,7 +614,7 @@ Cybered - Acid Box (2014) Horns & Hoofs Entertainment [FLAC|Lossless|WEB-DL|trac
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627316.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,7 +643,7 @@ Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -644,7 +672,7 @@ Asia 2001 - Eternal (2022) [FLAC|Lossless|WEB|tracks] <Goa Trance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -673,7 +701,7 @@ VA - Uncharted Vol. 24 (Compiled By Koen) (2022) [FLAC|Lossless|WEB|tracks] <Psy
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -702,7 +730,7 @@ VA - Top 30 Progressive Tracks Vol.1 & Vol.2 (Compiled by DJ Zen) (2015) [FLAC|L
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -716,35 +744,6 @@ VA - Top 30 Progressive Tracks Vol.1 & Vol.2 (Compiled by DJ Zen) (2015) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C1D1398F684437EA1D7EA40D4B9D459805E98C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314162   (520334) от 13.07.2019
-
-VA - Trance Wars (1-3) (2000-2002) [FLAC|Lossless|tracks] <Goa Trance, Psy-Trance, Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darma - TILT
- 02. Demendia - 7th Status
- 03. Darma - W.L.B.
- 04. Demendia - Miklorion(   Читать дальше...   )Жанр: Psy-Trance, TranceПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A7F92443A65001A95E989BCEC6E56BB44AA272
 ```
 
 https://mybot314.ru/tekegram_catalog/

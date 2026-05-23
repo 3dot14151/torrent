@@ -1,3 +1,136 @@
+###  Публикация: 1793590   (20266) от 25.04.2025
+
+Excite Audio - Bloom Vocal Choir 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Bloom Vocal Choir представляет вам платформу для создания собственного хора и глубокого погружения в вокальную гармонию.
+Хоровая музыка охватывает столетия. От ранних классических композиторов, таких как Вивальди и Бах, до современных музыкантов, таких как Нильс Фрам, Джон Хопкинс и Ханс Циммер, вокальные хоры прокладывали свой путь через музыку как эмоциональные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BBFF41B540A72D92F2E1CD13828382E731F6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794565   (19880) от 29.04.2025
+
+Denise Audio - Bass XXL 1.3.0 VST, VST 3, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Bass XXL предлагает более эффективный способ добиться насыщенных и стабильных низких частот, характерных для современных миксов. Благодаря запатентованному алгоритму, создающему гармоники выше основной частоты, ваши басы будут звучать лучше даже в наушниках и небольших динамиках.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08718DD0DD2ED36B7BE6C7064261AAF2CEAE3D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794564   (19845) от 29.04.2025
+
+Modern Music Solutions - Sub-Lif 1.0.0 VST 3, AAX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Получите плотные и пробивные низкие частоты в каждой песне.
+Sub-Lift имеет два невероятно простых в использовании режима, которые используют гармоники и психоакустику для создания эффекта глубоких нижних частот — идеально подходит для усиления любого басового инструмента без потери запаса по громкости.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FC10541A47C551A7B15E30A38795114438F0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794699   (19759) от 30.04.2025
+
+GForce Software & Oberheim - TVS Pro 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+В 1975 году Том Оберхайм произвел революцию в дизайне синтезаторов, выпустив оригинальный TVS – Two Voice Synthesizer. Объединив два SEM и клавиатуру, он представил миру настоящую дуофонию, позволив музыкантам играть двумя независимыми голосами одновременно и исследовать гармонически богатые, развивающиеся звуковые ландшафты. Это был смелый шаг вперед, принятый такими (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8E5FE63CB033EDFFCA0669D5BD586C3929A90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794700   (19758) от 30.04.2025
+
+GForce Software & Novation - Bass Station 1.0.1 STANDALONE, VSTi, VSTi 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная Novation Bass Station, выпущенная в 1993 году, славится своим грубым, пробивным и безошибочно узнаваемым аналоговым характером. Разработанная в период доминирования цифровых синтезаторов, Bass Station вернула аналоговое тепло и зернистость в центр внимания, сделав его культовым фаворитом среди продюсеров.
+Novation Bass Station от GForce, оставаясь в (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2B67DF5ECB7011CF37C7D06DF99A3DD45F9BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796884   (18427) от 13.05.2025
 
 Black Salt Audio - Telos Drums 1.0.3 VST 3, AAX RePack by SEnki [En]
@@ -6,7 +139,7 @@ Black Salt Audio - Telos Drums 1.0.3 VST 3, AAX RePack by SEnki [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -33,7 +166,7 @@ AQusmatiq Audio - Dedalus Delay  1.1.0 VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18395.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -60,7 +193,7 @@ Pubbas - Sheepadoodle Phaser 1.0.2 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -86,7 +219,7 @@ Pubbas - Vallhund 1.0.6 VST 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -112,7 +245,7 @@ discoDSP - OB-Xd 3.10.2 STANDALONE, VSTi, VSTi 3 (x64) Free [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -139,7 +272,7 @@ D16 Group - Lush 2 2.1.5 VSTi, VSTi 3, AAX (x86/x64) RePack by TCD (Rev.1) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -166,7 +299,7 @@ AIR Music Technology - Hybrid 3.1.1 STANDALONE, VSTi, VSTi 3 (x64) RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17419.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -192,7 +325,7 @@ KORG - Modwave Native 1.3.6 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -219,7 +352,7 @@ KORG - Wavestate Native 1.4.6 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16648.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -246,7 +379,7 @@ KORG - multi/poly native 1.0.5 Standalone, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16647.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -272,7 +405,7 @@ Press Play - Wave Observer Pro 2.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16557.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -298,7 +431,7 @@ Mario Nieto - Harmony Bloom 1.3.5 Standalone, VSTi 3 (x64) RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -324,7 +457,7 @@ Mario Nieto - Chord Generator 1.1.1 Standalone, VSTi 3 (x64) RePack by BUBBiX [E
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -351,7 +484,7 @@ CyberLink AudioDirector Ultra 2025 15.5.5321.0 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16104.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -377,7 +510,7 @@ TheWaveWarden - Odin 2 2.4.0 VSTi 3, CLAP (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -403,7 +536,7 @@ Excite Audio - Motion Fractal 1.0.0 STANDALONE, VST, VST 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -429,7 +562,7 @@ Beatsurfing - CHEat Code 1.1.1 VST, VST 3, AAX RePack by BUBBiX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -455,7 +588,7 @@ Sonible smart:EQ 4 1.1.0 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16059.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -481,7 +614,7 @@ Sonible smart:deess 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16026.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -507,7 +640,7 @@ Sonible smart:reverb 2 1.0.1 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_15999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -533,7 +666,7 @@ Arturia - MiniFreak V 4.0.1 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -544,139 +677,6 @@ Arturia - MiniFreak V 4.0.1 STANTALONE, VSTi, VSTi 3 (x64) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23BF6983B917F68F1FD541C3F1FFFD1D74FC4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800653   (15251) от 08.06.2025
-
-Knif Audio & Plugin Alliance - Knifonium 1.4.1 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватите звучание бутик-синтезатора с 26 вакуумными лампами. Knifonium — это аналоговый синтезатор с исключительно красивым звучанием, в котором используются целых 26 вакуумных ламп. Этот высококлассный синтезатор оснащён двумя ламповыми генераторами, лестничным фильтром 4-го порядка, кольцевым модулятором и великолепным дизайном в стиле «стимпанк».Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DAC320E4E69FBC1B647E4D6869B226F882A198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801115   (15250) от 08.06.2025
-
-Wavesequencer - Hyperion 1.65 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неограниченная игровая площадка для звукового дизайна, вдохновленная легендами 80-х, такими как Вангелис, Жан-Мишель Жарр и Брайан Ино, Hyperion — это современный цифровой модульный шедевр. С момента запуска было выпущено более 40 обновлений, Hyperion эволюционировал и продолжает совершенствовать свои звуковые возможности, функционал и графический интерфейс, многие (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6350BD59F0061839911DED6A8BC2D02E6683C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801397   (15051) от 10.06.2025
-
-AIR Music Technology - Sub Factory 1.2.1.11 Standalone, VSTi, VSTi3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15051.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIR Sub Factory — это синтезатор для создания мощных басовых звуков.
-Сделайте свои басовые партии глубокими и насыщенными.
-AIR Sub Factory для тех продюсеров, которые понимают силу и воздействие идеально выстроенной басовой партии.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D803AD960845F54ADB9C20F8C6AEFE7E59BB9C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801399   (15049) от 10.06.2025
-
-Stone Voices - Ambient Reverb 7 7.1.7 VST, VST 3 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный плагин Ambient Reverb 7 — больше, чем реверберация.
-Управляя им с помощью MIDI-контроллера, можно получить фантастический звук. В его основе лежит принцип высококачественной алгоритмической реверберации с расчетом достаточно плотных отражений звука во времени, что позволяет получить реалистичную реверберацию без эффекта грануляции.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E2C439DC56E640134536698C3AE246572B2A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801506   (14951) от 11.06.2025
-
-Cockos REAPER 7.40 + Portable (x86/x64) [Ru/En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088BCAF9229EC75FF036C401C535672B8220FF77
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 926218   (534937) от 09.08.2015
+
+Вот это да!!! - Watts Zap. Смешные моменты в спорте (08.08.2015) HDTVRip [EN]
+
+>>Юмор (ТВ)
+>>Приколы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Что такое WATTS Zap? Все самое хорошее и плохое, страшное и смешное в спорте.
+Сборник курьезных, смешных, трагических и загадочных моментов из спортивной жизни.Телекомпания: EUROSPORT HDЖанр: Спортивный курьёзыПеревод: ОтсутствуетПродолжительность: ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC4A934A7F884F866540557AD08D20D3349CC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051211   (534369) от 10.09.2016
+
+Деньги. Sex. Радикулит (10.09.2016) SATRip
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В комедийном шоу «Деньги. Sex. Радикулит» на телеканале «Че» не будет места стереотипам, неловкостям, «розовым пони» и прочим глупостям. Только суровый юмор, только смелые и точные шутки! Ведущие шоу не психологи – они просто отличные парни с большим опытом за плечами. Они знают: какие бы проблемы не наваливались на тебя со всех сторон, о них всегда можно честно (   Читать дальше...   )Телекомпания: ЗАО "ТВ ДАРЬЯЛ", Телеканал ЧеЖанр: Юмор, комедийное шоуРежиссер: Никита СнеговПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872CF35664D7F8CC947DC1FB7C2B3A6077CA569A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299715   (531970) от 04.07.2019
+
+Осторожно, Модерн - 2! (2001-2003) DVDRip (сезон 1, серии 1-94 из 94)
+
+>>Юмор (ТВ)
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Целый подъезд типовой многоэтажки населен их острохарактерными персонажами. Каждый вечер, на радость зрителю, они заняты такими узнаваемыми и «типичными» бытовыми проблемами, как связь с зарубежными разведками, полеты на Марс или сбыт обогащенного урана…Производство: ООО "3-ТВ", ООО "ТО "Мега"Жанр: КомедияРежиссер: Анна Пармас, Андрей БалашовАктеры: Дмитрий Нагиев и Сергей РостПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CC7EA5921A47EFF6D0CBEC1FA3EDF5F3200696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926353   (529511) от 12.08.2015
+
+Кабачок "13 стульев" (1968) DVDRip [H.264]
+
+>>Юмор (ТВ)
+>>нет
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Юмористическая телепередача, выходившая в эфир с января 1966 по октябрь 1980 года, местом действия которой, по сюжету, являлось польское кафе (кабачок). Телеспектакль имел в СССР колоссальный успех, поскольку обладал острой критической направленностью и искрометным юмором. Третьей беспроигрышной составляющей стали лучшие европейские шлягеры, которые актеры, участвовавшие (   Читать дальше...   )Телекомпания: ТО "Экран"Жанр: ТелепередачаПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5C42C754EF22ED144D9AE1AD8C087D09542449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053318   (525922) от 17.09.2016
 
 Камеди Клаб / Комеди Клаб / Comedy Club (16.09.2016) WEB-DL [H.264/720p-LQ]
@@ -6,7 +111,7 @@
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +189,7 @@ Comedy Баттл (2022) WEBRip [H.264/1080p] (сезон 12, выпуски 1-2
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524092.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +215,7 @@ Stand Up (2018.08.19) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516999.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514897.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сатирики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499949.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499917.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приколы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499914.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +449,7 @@ Stand Up (2018.08.26) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 2)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489799.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +501,7 @@ Stand Up. Сезон 3. Выпуск №1 (2015.09.13) WEB-DL [H.264/720p-LQ]
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489276.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487733.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -502,7 +607,7 @@ Stand Up (30.08.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 1)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480950.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>КВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -554,7 +659,7 @@ Stand Up (2016.09.25) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 2)
 >>ПостКВН
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479184.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -565,110 +670,6 @@ Stand Up (2016.09.25) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 2)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:525367757960E11B3303F6C943961C4A01604814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244754   (477828) от 03.09.2018
-
-Stand Up (2018.09.02) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 3)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное.Телекомпания: ТНТЖанр: ЮморАктеры: Стас Старовойтов, Дмитрий Романов, Роман Косицын, Алексей Щербаков, Гурам Амарян, Расул ЧабдаровСубтитры: ОтсутствуютПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A8421D8BDB3E121660AF5797E425D3F55CB5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939297   (475269) от 21.09.2015
-
-Stand Up. Сезон 3. Выпуск №2 (2015.09.20) WEB-DL [H.264/720p-LQ]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинПродолжительность: ~ 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F007609382DF5F1BBD1049CF0B215014C9AA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216319   (471406) от 06.09.2018
-
-Осторожно, Задов! Или похождения прапорщика (2004) DVDRip [H.264] (29 серий из 29)
-
->>Юмор (ТВ)
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471406.jpg" />
-</div>
-
-
-###  Подробнее
-
-История повествует о прапорщике Задове, довольно известном для многих персонаже. Он - сборник самых типичных клише про военнослужащих, которые собраны в этом персонаже. Вместе с ним в этой сюжетной линии рассказывается история его жены, детей, коллег и соседей. Все это снято с сарказмом, отборным юмором и большим количеством сцен, которые высмеивают человеческие (   Читать дальше...   )Жанр: юморРежиссер: Андрей БалашовПеревод: Оригинальная русскоязычная озвучкаПродолжительность: около 30-ти часов
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4A67EA38CFEA7F5D6E01E09D85224BAFFF6EDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407348   (466128) от 07.09.2020
-
-Stand Up (06.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 2)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED36102C3A8C1C80D39909176FFAB49D181F6DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1120348   (802918) от 30.03.2017
+
+Идеальные незнакомцы / Perfetti sconosciuti (2016) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Семеро закадычных друзей, собравшись за ужином, в шутку начинают игру — читать все смс вслух, а на звонки отвечать по громкой связи. Они и представить себе не могут, какие скелеты вылезут из их шкафов и какие удивительные открытия им предстоит сделать.Производство: ИталияЖанр: драма, комедияРежиссер: Паоло ДженовезеАктеры: Джузеппе Баттистон, Анна Фольетта, Марко Джаллини, Эдоардо Лео, Валерио Мастандреа, Альба Рорвахер, Касия Смутняк, Бенедетта Поркароли, Элизабетта Де Пало, Томмазо ТатафьореПеревод: Дублированный (iTunes)Субтитры: Русские,  Итальянские,  АнглийскиеПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B73443ABC722BF7C012F0F35D3B9AEAFC895F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198987   (802821) от 14.01.2018
 
 Борг/Макинрой / Borg McEnroe (2017) WEB-DL [720p] ATV
@@ -6,7 +32,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802745.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801986.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801882.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +191,7 @@ VA - Chillout Orange, Vol. 5: Relaxing Chillout Vibes (2021) [AAC|~316 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801822.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +220,7 @@ VA - Free Floating: Chillout Your Mind (2021) [AAC|~320 Kbps] <Lounge, Chill Out
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +249,7 @@ VA - Chillout Orange, Vol. 4: Relaxing Chillout Vibes (2021) [AAC|~323 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801815.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -252,7 +278,7 @@ Hazell Dean - The Dean & Ware Collection, Vol. 1 (2021) [AAC|~311 Kbps] <Pop, Di
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -281,7 +307,7 @@ VA - Chillout Orange, Vol. 7: Relaxing Chillout Vibes (2021) [AAC|~340 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801812.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -310,7 +336,7 @@ VA - Chillout Orange, Vol. 6: Relaxing Chillout Vibes (2021) [AAC|~315 Kbps] <Lo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -339,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -365,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -391,7 +417,7 @@ Tony Bennett, Lady Gaga - Love For Sale (Deluxe) (2021) [AAC|~294 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801578.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -420,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -446,7 +472,7 @@ Ad Infinitum - Chapter II - Legacy (2021) [AAC|~311 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801390.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -475,7 +501,7 @@ VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 2 (2021) [AAC|~327 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +530,7 @@ VA - Living Lounge (Music For Your Soul) (2021) [AAC|~318 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -533,7 +559,7 @@ VA - Chill out Mood, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +588,7 @@ VA - Vanlife Chill, Vol. 8 (2021) [AAC|~312 Kbps] <Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801157.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -591,7 +617,7 @@ Electric Light Orchestra - Ballads (2021) [AAC|~338 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801154.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801119.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -646,7 +672,7 @@ VA - Spiritual Spa, Vol. 3 (2021) [AAC|~295 Kbps] <Downtempo, Balearic, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -675,7 +701,7 @@ VA - Ibiza Winter Session 2022 (The House Hotties) (2021) [AAC|~328 Kbps] <Elect
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801103.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -689,32 +715,6 @@ VA - Ibiza Winter Session 2022 (The House Hotties) (2021) [AAC|~328 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A50B80AE3CE4CE0ED64DDA4AA924B46EAA17E8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199524   (800954) от 16.01.2018
-
-Дозор джунглей / Les as de la jungle (2017) BDRip [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пингвин Морис тигрового окраса уверен, что он и в самом деле тигр — герой, в котором нуждаются джунгли. Вместе со своей энергичной командой разношерстных животных под названием «Дозор джунглей» он неусыпно стоит на страже справедливости и покоя. С переменным успехом, конечно, но они стараются. Однако вскоре ему предстоит столкнуться с невероятно коварным и безжалостным (   Читать дальше...   )Производство: ФранцияЖанр: Мультфильм, приключения, семейныйРежиссер: Дэвид АлоАктеры: Paul Borne, Филипп Бозо, Паскаль Касанова, Эммануэль Кюртиль, Мишель Меля, Селин Монсарра, Лоран Морто, Жан-Филипп Пюмартин, Барбара Тиссье, Алексис ТомассианПеревод: Дублированный (Лицензия)Субтитры: НетПродолжительность: 01:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C62943F442BC98F9656D91CFE7CC1A36E7C6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1690385   (62104) от 23.03.2024
+
+Нежеланно бессмертный авантюрист | Nozomanu Fushi no Boukensha | The Unwanted Undead Adventurer [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В течение последних десяти лет Рент Файна каждый день охотился на монстров, но, к сожалению, выходило это у него так себе. Его хватало лишь на убийство всякой мелочи по типу слаймов и гоблинов, и это приносило ему сущие гроши. И вот однажды, когда парень в очередной раз проходил по комнатам лабиринта, он волей судьбы наткнулся на ранее неизведанный проход. Пройдя (   Читать дальше...   )Производство: Япония / Студия ConnectЖанр: Приключения, фэнтезиРежиссер: Акитая НориакиЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E00102A50AB03AD3DC98097228B8D41C27F2A43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700687   (62048) от 23.03.2024
+
+Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключений в космосе [1986, TV, 6 из 77] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Работая в многоцелевом космическом агентстве, Топпи и Рана подружились с ученым Жирафом и проходя через множество приключений в космосе. Время от времени все трое сталкиваются с опасностью, но их дружба всегда спасает их в самый последний момент.Производство: Япония / Nippon AnimationЖанр: приключения, комедия, фантастикаРежиссер: Ёкота КадзуёсиПеревод: Al SeverinЯзык озвучки: Русский (Кинозал Мааниша - Одноголосый); ЯпонскийСубтитры: Русские (Софтсаб на песни )Продолжительность: ТВ, 77 эпизодов по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207BF54615C57D4F1A999FC4C1532D08E043C8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708700   (62045) от 23.03.2024
+
+Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the Dead | Предсмертный список зомби [2023, TV, 12 из 12] WEBRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Три года назад Акира Тэндо смотрел в будущее с высоко поднятой головой. Он нашёл отличную работу и был полон надежд и амбиций. Но работа мечты оказалась сущим адом: бесконечные переработки и давление со стороны начальства и старших коллег доводили беднягу до предела. Работа высасывала из парня всю жизненную энергию, и по прошествии нескольких лет он оказался истощён (   Читать дальше...   )Производство: Япония, Bug FilmsЖанр: триллер, комедия, фэнтези, приключенияРежиссер: Кавагоэ КадзукиПеревод: CrunchyrollЯзык озвучки: Японский и русскийСубтитры: РусскиеПродолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB86A5998A97947CE8FD950C5FFB57BAA25939E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690232   (61964) от 24.03.2024
 
 Mato Seihei no Slave | Chained Soldier | Раб элитного корпуса демонической столицы [2024, TV, 12 из 12] WEBRip 1080p raw+rus
@@ -6,7 +84,7 @@ Mato Seihei no Slave | Chained Soldier | Раб элитного корпуса 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61944.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Triage X | Искусственный отбор [2015, TV, 10 из 10 + OVA] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Kekkon Yubiwa Monogatari | Легенда свадебных колец | Скa�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61577.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen | Зл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61345.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Oroka na Tenshi wa Akuma to Odoru | Глупый ангел пляшет с де
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61023.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61000.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Hime-sama "Goumon" no Jikan Desu | Время пытки, принцесса | T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Sousou no Frieren | Frieren: Beyond Journey's End | Фрирен, провожа
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59996.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59866.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ Yuragi-sou no Yuuna-san | Yuuna and the Haunted Hot Springs | Юна из гос
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59652.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Gaikotsu Kishi-sama, Tadaima Isekai e Odekake-chuu | Skeleton Knight in Another 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59582.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Sono Bisque Doll wa Koi o Suru | My Dress-Up Darling | Эта фарфорова
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,86 +667,6 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72908385EEE62906846A45DD6235022EAE422C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719072   (58252) от 28.04.2024
-
-Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The Separation |  Блич: Тысячелетняя кровавая война - Прощание [2023, TV, 13 из 13 эп.] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пока Сообщество душ, понесшее колоссальные потери и разрушения в битве с «Ванденрейхом», пытается держаться на плаву, Яхве избирает преемника, чем вызывает недовольство некоторых штернриттеров. В это же время Ичиго Куросаки, который узнал о своём истинном происхождении и отправился во владения Короля душ, восстанавливает силы и старается стать сильнее для борьбы (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: комедия, приключения, сёнен, экшен, фентезиРежиссер: Тагути ТомохисаЯзык озвучки: русский и японскийСубтитры: Перевод1: ASS, Встроенные | RusПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6E3ABA02F8A5DF7CD2FBF88BC132701810C101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638207   (58063) от 30.04.2024
-
-Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная жизнь уволенного тёмного солдата (30-ти лет) [2023, TV,  12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тёмный воин Дариэль верой и правдой служил всю свою жизнь в тёмной армии, пока вдруг новое руководство не выгнало его. Так он оказался без работы и крыши над головой, начинать новую жизнь после тридцати непросто, но альтернатива ещё хуже. Да и может быть ему улыбнётся удача?Производство: Encourage FilmsЖанр: приключения, фэнтезиРежиссер: Оидзаки ФумитосиЯзык озвучки: Японский, русский (AniLibria, AniPlague)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC93A672992453C6C991FB7351468FB700A05B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720396   (57714) от 03.05.2024
-
-Размеренная жизнь фармацевта-читера: Открыть аптеку в другом мире | Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another World: The Slow Life of a Cheat Pharmacist [2021, ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды Кирио Рейджи попадает в другой мир, чему он несказанно рад, ведь теперь не будет ни надоевшей работы, ни толкучки в поездах!
-Размышляя о том, как ему повезло, он натыкается на раненую волчицу и тут же решает вылечить её завалявшимся в сумке зельем. Но вот незадача: зелье так отвратительно пахнет, что волчица отказывается его пить!
-Тогда Рейджи решает сам (   Читать дальше...   )Производство: Япония / Студия EMT SquaredЖанр: комедия, фэнтези, повседневностьРежиссер: Сато МасафумиПеревод: (Crunchyroll)Язык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные); Английские (софтсаб полные) (внешним файлом)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B134C2C76962A330A13DC01FB4CA384ADF0AF7FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

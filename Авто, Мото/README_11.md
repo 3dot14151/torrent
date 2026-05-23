@@ -1,3 +1,170 @@
+###  Публикация: 1568278   (464096) от 07.08.2022
+
+MotoGP. Этап 12. Гран-при Великобритании. Квалификация (06.08.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+6 августа 2022, суббота. 16:10 МСК. Этап 12, Сильверстоун, Гран-при Великобритании. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9827DDCD7067CA1FC96AC1664B89F68D34BFA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568438   (462095) от 08.08.2022
+
+MotoGP. Этап 12. Гран-при Великобритании. Гонка (07.08.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+7 августа 2022, воскресенье. 15:00 МСК. Этап 12, Сильверстоун, Гран-при Великобритании. Гонка (20 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0D5A4025BD93683ECBA49EFB0CC9949148449E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408545   (455913) от 12.09.2020
+
+Формула-3. Сезон 2020. 9-й Этап. Гран-при Тосканы. Гонка 1 (12.09.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2-й чемпионат ФИА Формула-3. Сезон 2020 года
+12 сентября 2020, суббота. 11:25 МСК
+9-й Этап. Гран-при Тосканы. Скарперия-э-Сан-Пьеро (Италия)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBFDA6BC945972F7D3FF0C56712BEFF948F95EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408575   (455776) от 12.09.2020
+
+Формула-2. Сезон 2020. 9-й Этап. Гран-при Тосканы. Гонка 1 (12.09.2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+12 сентября 2020, суббота. 17:45 МСК
+9-й Этап. Гран-при Тосканы. Скарперия-э-Сан-Пьеро (Италия)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F95924CA992E90591DFEB5DA2500F920C3A9E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408767   (453915) от 13.09.2020
+
+Формула-3. Сезон 2020. 9-й Этап. Гран-при Тосканы. Гонка 2 (13.09.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+2-й чемпионат ФИА Формула-3. Сезон 2020 года
+13 сентября 2020, воскресенье. 11:30 МСК
+9-й Этап. Гран-при Тосканы. Скарперия-э-Сан-Пьеро (Италия)
+Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EBCEA08F6FF9DBFFD85D311D32A32027778F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408754   (453795) от 13.09.2020
+
+Формула-2. Сезон 2020. 9-й Этап. Гран-При Тосканы. Гонка 2 (13.09.2020) HDTVRip [H.264/720p-LQ] [ hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат мира по авто гонкам в классе Формула 2. 13 сентября 2020, воскресенье. 12:55 МСК
+Этап 9, Скарперия-э-Сан-Пьеро, Италия
+Гран-при Италии. Гонка 2 (23 круга)Телекомпания: Матч Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116B10EE3F248C100582FE3CA2F33DC22AC38517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408780   (453779) от 13.09.2020
 
 Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Нюрбургринг, Гонка 1-2 / DTM. Nurburgring Grand Prix, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
@@ -6,7 +173,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453610.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443270.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443269.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -144,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438559.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -173,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438558.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -202,7 +369,7 @@ MotoGP. Этап 13. Гран-при Австрии. Квалификация (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -228,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -254,7 +421,7 @@ MotoGP. Этап 13. Гран-при Австрии. Гонка (21.08.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433952.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -280,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431978.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -309,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431977.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431925.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -367,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -425,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423153.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -483,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +679,7 @@ WRC 2020: Этап 5. Ралли Турции. Обзор (18-20.09.2020) / WRC 
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -538,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420631.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,171 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2323337B89480427B8E5B523250F9E6594F7FD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412286   (420451) от 28.09.2020
-
-Серия Кубков NASCAR 2020. Плей-офф. 30-й Этап. Лас-Вегас. Гонка / NASCAR Cup Series 2020. Playoffs. Round 30. South Point 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
-27 сентября 2020 года. Лас-Вегас (штат Невада, США).
-30-й Этап. Лас-Вегас (South Point 400)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94181ED51064CD4C2C5B1F74C8E749CF58677DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412252   (420449) от 28.09.2020
-
-Мотоспорт. Спидвей. Гран-При 2020. Прага (Чехия). 5-й Этап (2020) IPTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по спидвею 2020 — международные соревнования между сильнейшими спидвейными гонщиками мира. Победитель определяется в гонках серии Гран-При.
-18 сентября 2020 года
-5-й Этап. Прага (Чехия)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Спорт,  МотоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6A051AD98997A0E85CDAD4EA30077B6D2684E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413392   (408354) от 04.10.2020
-
-Дрэг-рейсинг. Чемпионат NHRA 2020. Этап 7 / NHRA Drag Racing Championship 2020. Event 7 - AMALIE Motor Oil NHRA Gatornationals, Gainesville Raceway (27.09.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дрэг-рейсинг — гоночное соревнование, являющееся спринтерским заездом на дистанцию в 402 метра. Реже проводятся заезды на (~804 м), 1/8 мили (201 м) либо на мерную милю (1609 м). По сути дрэг-рейсинг является гонкой на ускорение, проводящейся на прямой трассе.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9244275D0729C430DC0444A6A4E3127B1190A110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413917   (406818) от 06.10.2020
-
-Серия Кубков NASCAR 2020. Плей-офф. 31-й Этап. Талладега. Гонка / NASCAR Cup Series 2020. Playoffs. Round 31. YellaWood 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Кубков NASCAR 2020 года. Плей-офф чемпионата NASCAR Cup Series
-04 октября 2020 года. Линкольн (штат Алабама, США).
-31-й Этап. Талладега (YellaWood 500)
-Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B73AAF5AF3137C133E8EF582796A21ACEEB243A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169528   (402233) от 28.09.2017
-
-Возвращение / The Return (2017) WEBRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402233.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Возвращение" - это документальный фильм, режиссером которого является обладатель премии Эмми, Эрих Джойнер. В фильме приводится хроника возвращения Ford GT на гонку "24 часа Ле-Мана" после триумфальной победы в 1966 году, когда американцы заняли первое, второе и третье места.Производство: Франция, США, Великобритания, Tool of North AmericaЖанр: Документальный, приключения, спортРежиссер: Эрих ДжойнерПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4087D2E522A697897DEE596439CD0F1871354C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574416   (388043) от 04.09.2022
-
-MotoGP. Этап 14. Гран-при Сан-Марино. Гонка (04.09.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388043.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 сентября 2022, воскресенье. 15:10 МСК, Этап 14, Мизано-Адриатико, Италия. Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D260D22719A245EA045DD02519385B2A289D9A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

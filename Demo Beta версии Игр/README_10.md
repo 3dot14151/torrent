@@ -1,3 +1,81 @@
+###  Публикация: 1770587   (24641) от 15.03.2025
+
+Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Уникальный симулятор, погружающий в роль бармена в тенистом, тускло освещенном заведении, где обман и повествование занимают центральное место. Бар становится местом сбора разнообразных персонажей с индивидуальными историями, секретами и лживыми рассказами. В роли бармена требуется вступать в разговоры с посетителями, выслушивать их истории и отделять правду от вымысла.Тип издания: RepackРазработчик: Curve AnimationЖанр: Казуальные игры, Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Турецкий, Китайский (упрощенный)Язык интерфейса: Русский, Английский, Турецкий, Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730479   (23818) от 23.03.2025
+
+SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+События SpaceBourne 2 начинают от момента окончания первой части, только теперь игроку необходимо построить собственную космическую империю и развивать ее во всех направлениях. Впрочем, с этим глобальным заданием можно не спешить. Мир игры полностью открыт для исследований каждой солнечной системы, где пользователь может сначала прославиться или наоборот стать врагом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Burak DabakЖанр: Экшены, Приключенческие игры, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Турецкий, Бразильский ПортугальскийЯзык интерфейса: Английский, Турецкий, Бразильский Португальский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787028   (23725) от 23.03.2025
+
+Starground (2024) [Ru/Multi] (0.11.1.2) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Starground отбрасывает все правила. Это игра с видом сверху вниз, которая сочетает в себе элементы автоматизации и рогуэлиты, создавая уникальный опыт. Здесь вы не будете зациклены на каком-то одном игровом стиле. проект может похвастаться независимыми деревьями развития, так что вы можете углубиться в автоматизацию или исследовать опасные подземелья - выбор за вами. (   Читать дальше...   )Тип издания: RepackРазработчик: Big Boy GamesЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Немецкий, Нидерландский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD74B61CC32650B61EAB0CDBA34D47173410E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787755   (23343) от 27.03.2025
 
 Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Access]
@@ -6,7 +84,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23343.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +110,7 @@ Endzone 2 (2024) [Ru/Multi] (0.8.9203.21231/dlc) Repack Wanterlude [Early Access
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_23079.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +136,7 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_22009.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +162,7 @@ Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.3.1.10846) Repack seleZen [
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +188,7 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.7ea) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +214,7 @@ Sacred Fire: A Role Playing Game (2021) [En] (2.6.4.f6) License GOG [Early Acces
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +240,7 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +266,7 @@ Derail Valley Simulator (2019) [Ru/Multi] (Build 99.4) Repack Other s [Early Acc
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +292,7 @@ Arms Trade Tycoon: Tanks (2024) [En] (1.1.8.4) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20667.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Forever Winter (2024) [Ru/Multi] (0.1.45959.0) Repack Pioneer [Early Access 
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +344,7 @@ Hyperviolent (2023) [En] (0.9.0.6) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -292,7 +370,7 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.96.0/dlc) Repack Let'sРlay [Ear
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20116.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +396,7 @@ Necesse (2019) [Ru/Multi] (0.32.0) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_20063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -344,7 +422,7 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +448,7 @@ inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack seleZen [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19929.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +474,7 @@ Scarlet Hollow (2021) [En] (1.2l) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +500,7 @@ Volcanoids (2019) [Ru/Multi] (1.33.502.0) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18804.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +526,7 @@ Phasmophobia (2020) [Ru/En] (0.12.1.2) Repack Pioneer [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18772.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +552,7 @@ SpaceEngine / Space Engine (2019) [Ru/Multi] (0.990.48.2065/dlc) License GOG [Ea
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17216.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +578,7 @@ The Killing Antidote (2023) [Ru/Multi] (0.5.3.2a) Repack Other s [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +604,7 @@ Occupy Mars: The Game (2023) [Ru/Multi] (0.199.7) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16623.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +630,7 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -578,7 +656,7 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 >>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15708.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -589,84 +667,6 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B6F65F0C1AAE7407FD65C43E4579BFFB9AF6E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800592   (15700) от 04.06.2025
-
-inZOI (2025) [Ru/Multi] (20250428.2678.W) Repack Other s [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15700.jpg" />
-</div>
-
-
-###  Подробнее
-
-inZOI - игра в жанре симулятора жизни, в которой игроки примеряют на себя роль создателей, формируя мир согласно своему видению и наблюдая за разнообразными историями, которые разворачиваются в нем. С помощью иммерсивного интерфейса мы стремимся показать игрокам, что жизнь стоит ценить, как великий дар, как путешествие, где каждый шаг имеет значение.Тип издания: RepackРазработчик: inZOI StudioЖанр: Приключенческие игры, Казуальные игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757292   (15280) от 08.06.2025
-
-Lethal Company (2023) [Ru/En] (72) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lethal Company - захватывающая кооперативный хоррор, который погружает в жуткие глубины заброшенных лун в неустанной погоне за пригодным для спасения металлоломом. В черных просторах космоса игроков ждет зверинец из небесных тел, инопланетных форм жизни и незаменимых инструментов, которые нужно найти и использовать. Своеобразный подход к геймплею гарантирует бесконечную (   Читать дальше...   )Тип издания: RepackРазработчик: ZeekerssЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1783BEF1FFE4DE7C94DAC23DEBEDFB74CAFEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801119   (15271) от 08.06.2025
-
-Synchro (2025) [Ru/En] (0.1.6 Beta) Repack Let'sРlay [Playtest]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Synchro - пошаговая RPG о борьбе со зловещей корпорацией, ставящей бесчеловечные эксперименты над людьми. Вы - молодой лидер сопротивления, чьи родители погибли от рук жадных технократов. Собирайте команду из обычных людей, в которых дремлют истинные герои. Исследуйте мрачные закоулки мрачного мегаполиса и сражайтесь с андроидами, мафией и жуткими мутантами по правилам (   Читать дальше...   )Тип издания: RepackРазработчик: KomisoftЖанр: Инди, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

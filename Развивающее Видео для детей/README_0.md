@@ -1,3 +1,56 @@
+###  Публикация: 625062   (948672) от 02.03.2013
+
+Загадки Джесса (48 серий) / Guess with Jess (2009-2010) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Забавный кот по имени Джесс, верный спутник почтальона Пэта, главный герой познавательного мультсериала.
+Джесс и его друзья-зверушки — типичные непоседливые малыши, любопытство которых может быть удовлетворено лишь на практике. Они хотят познать окружающий мир и разгадать все его загадки. Энтузиазм и непреодолимая жажда знаний Джесса приводят к тому, что он всегда (   Читать дальше...   )Жанр: РазвивающийРежиссер: Mike Shiell, Донни Андерсен, Алан СимпсонПеревод: ДублированныйПродолжительность: 48х~00:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A55DF9019BF0D6F1DE91C20900BDA2891FF65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625837   (945422) от 04.03.2013
+
+Карусель. Служба спасения домашнего задания. (78 выпусков) (2012) SATRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Развивающее Видео для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Служба спасения домашнего задания» избавит тебя от плохих оценок! Пропустил урок в школе? Возникли сложности с выполнением задания? Ничего не успеваешь и не понимаешь? А домашку-то все равно придется делать! На помощь к тебе придут агенты «Службы спасения домашнего задания». Быстро и увлекательно они объяснят, чем дерево отличается от кустарника, каково строение Солнечной системы, что такое синонимы и антонимы, и как можно играючи запомнить таблицу умножения. С ними тебе станет легко и, главное, интересно учиться!Жанр: Детский, ОбучающийРежиссер: Михаил Кондалов, Артур Богатов, Ольга МузалеваПродолжительность: 78 x ~13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB45F32C049C65F67A4F01C57627EBA111616056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859228   (942536) от 15.01.2015
 
 Спокойной ночи, малыши! (2015) HDTV [1080i] (выпуск 1-3 из ?) (Обновляемая)
@@ -6,7 +59,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936844.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911158.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905947.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901568.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +242,7 @@ Foxford, Гаяне Курятова | Мнемотехника. Развити�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -244,7 +297,7 @@ Foxford, Коллектив авторов | Серия развивающих �
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891899.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_885265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -306,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884355.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -334,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -360,7 +413,7 @@ InternetUrok | Видеоуроки 4 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -389,7 +442,7 @@ InternetUrok | Видеоуроки 3 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -418,7 +471,7 @@ InternetUrok | Видеоуроки 2 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878171.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -447,7 +500,7 @@ InternetUrok | Видеоуроки 5 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878169.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -476,7 +529,7 @@ InternetUrok | Видеоуроки 6 Класс. Биология. Литера
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -505,7 +558,7 @@ InternetUrok | Видеоуроки 7 Класс. Алгебра. Английс
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -534,7 +587,7 @@ InternetUrok | Видеоуроки 9 Класс. Алгебра. Английс
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -563,7 +616,7 @@ InternetUrok | Видеоуроки 8 Класс. Алгебра. Биологи
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -592,7 +645,7 @@ InternetUrok | Видеоуроки 1 Класс. Математика. Окру
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -621,7 +674,7 @@ InternetUrok | Видеоуроки 10 Класс. Алгебра. Англий�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876311.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -650,7 +703,7 @@ InternetUrok | Видеоуроки 11 Класс. Алгебра. Биолог�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -664,58 +717,6 @@ InternetUrok | Видеоуроки 11 Класс. Алгебра. Биолог�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D725512B54F39C011B0E614BD47D3CDC39BDCDB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646304   (861629) от 20.04.2013
-
-Fairy Tale видеокурс. Про пони, мышонка и хвастливого зайчонка (2010) DVD5
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический видеокурс по изучению английского языка для детей. Fairy Tale - добрые сказки для самых маленьких. Дети учат английский, слушая сказки и следя за рисунками, которые художник создает на глазах телезрителей цветными карандашами. Рисование вызывает положительные эмоции у ребенка, он не только наблюдает за процессом, но и учится рисовать вместе с художником (   Читать дальше...   )Производство: Россия, English Club TVЖанр: Детский, РазвивающийПродолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125FE41AD5711869493B205FF6839113976BF201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304852   (858145) от 06.03.2011
-
-Профессор Карапуз. Водная одиссея (2006) DVDRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Развивающее Видео для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858145.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Водная Одиссея» - второй фильм серии «Профессор Карапуз», который дает малышу представление о разнообразных ситуациях, связанных с водой. Куклы-перчатки поливают цветы, прячутся под зонтиком от дождя, ловят рыбу. Фильм знакомит малыша с обитателями водного мира, а также с игрушками для игры в воде. Это увлекательный микс из смешных кукольных сценок, ярких игрушек (   Читать дальше...   )Производство: Украина,Жанр: Детский, Видеоуроки, РазвивающийПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598AE1A804BB8026F01299A16266F503AEA7F907
 ```
 
 https://mybot314.ru/tekegram_catalog/

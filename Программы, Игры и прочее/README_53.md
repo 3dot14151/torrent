@@ -1,3 +1,82 @@
+###  Публикация: 1521853   (763342) от 04.01.2022
+
+Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+🔊 Ultimate Guitar Tuner - это не просто гитарный тюнер. Это точный, отзывчивый и простой в использовании хроматический тюнер, который удовлетворит все ваши потребности. Вы можете настроить свою гитару, бас, гавайскую гитару или мандолину в считанные секунды благодаря вашему мобильному телефону.Тип издания: Пиратка (Pro)Релиз состоялся: 3 января 2022 г.Разработчик: Tabs4Acoustic - Ultimate Guitar ToolsПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EECEC9553C3FAA06407D6F3D6C0FADA7236ACCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521898   (763341) от 04.01.2022
+
+SD Card Test Pro v1.9.2 [Ru/En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Воспользуйтесь лучшей на сегодняшний день утилитой для тестирования SD-карт. Протестируйте скорость как внутреннего, так и внешнего хранилища Вашего устройства!
+Простота в использовании даже для начинающих. Быстрые тесты.Тип издания: Пиратка (Paid)Релиз состоялся: 22 декабря 2021 г.Разработчик: Zoltán PallagiПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE27A93021F6809453B49C085DE44C8A83CFF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521878   (763327) от 04.01.2022
+
+File Manager - Local and Cloud File Explorer v5.0.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Smart File Manager (File Explorer) - это самое простое, мощное, маленькое, бесплатное и идеальное приложение для управления файлами, такими как изображения, фильмы, документы, музыка, приложения на вашем мобильном телефоне.Тип издания: Пиратка (Premium)Релиз состоялся: 4 января 2022 г.Разработчик: LufickПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD3C8387592A6B9DF76C1A8CE8C153018A70E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521969   (761773) от 05.01.2022
 
 Headway: Краткие содержания из книг v1.6.2.0 [En]
@@ -6,7 +85,7 @@ Headway: Краткие содержания из книг v1.6.2.0 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761650.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -88,7 +167,7 @@ Weather Live Wallpapers v1.74 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -115,7 +194,7 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +220,7 @@ Malwarebytes Anti-Malware v3.9.1.68 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759639.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +247,7 @@ Piggly v1.10ggl + Mod [En/De]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759529.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +273,7 @@ Money Pro v1.6.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759462.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -220,7 +299,7 @@ ProPilkko 2.7 [Ru/Multi] - Мультиплеерный online симулято�
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758920.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -248,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756521.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +353,7 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754984.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754911.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -352,7 +431,7 @@ Listonic v6.44.4 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_754811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +457,7 @@ Garmin: Ukraine Topo Map v1.06 (Топографическая карта Укр
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +483,7 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753290.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +509,7 @@ Tomorrow.io: Прогноз погоды v2.10.0 [Ru/Multi]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -457,7 +536,7 @@ AccuWeather - прогноз погоды v7.17.1-2 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -484,7 +563,7 @@ Unit Converter Plus v1.4.5.19.2 [Ru/Multi] - многофункциональн
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753208.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -510,7 +589,7 @@ Weather Underground v6.11.0 [Ru]
 >>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752870.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -588,7 +667,7 @@ Garmin: City Navigator North America NT 2017.20 [En]
 >>Карты для навигационного ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -599,86 +678,6 @@ Garmin: City Navigator North America NT 2017.20 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94F89603891F62336A1B55F6D3AC2C5E3D6ADF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019100   (751516) от 22.05.2016
-
-Garmin: Crimea Navigator 2014.1 (Крым Навигатор 2014.1) [Ru]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карта Крыма для навигаторов Гармин.Тип издания: карты не блокированыРелиз состоялся: апрель 2014Разработчик: М1 Центр Навигационных ТехнологийПоддерживаемая ОС: GarminЯзык интерфейса: РусскийФормат: .IMG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A397B442A67217B4BD2FABD5C56012A1A81B79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523277   (751282) от 11.01.2022
-
-Прогноз погоды v3.054 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_751282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами необычное приложение "Прогноз Погоды". Оно не похоже на другие приложения потому что обладает особой "атмосферой".
-Точность Погоды обеспечивается двумя поставщиками данных (на выбор). Плюс информация о качестве воздуха, геомагнитном индексе, точке росы (и это не все). Плюс виджеты для главного экрана с возможностью настройки.
-Пользователей (   Читать дальше...   )Тип издания: Пиратка (AdFree - удалена реклама)Релиз состоялся: 12 декабря 2021 г.Разработчик: Noel MegaПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C977D389C4CE9A86A2C87AF05B815C5C3E9119A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523667   (749674) от 12.01.2022
-
-Corel Painter Mobile v2.2 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впечатляющее арт приложение с возможностью создавать на ходу скетчи и рисунки используя профессиональные инструменты.Тип издания: Пиратка (Pro)Релиз состоялся: 8 апреля 2018Разработчик: CorelПоддерживаемая ОС: Android: 4.0.3+Перевод: от papasha55Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C893D98359129BE5AFF6695F653903DBB4D00CB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

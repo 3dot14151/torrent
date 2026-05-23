@@ -1,3 +1,29 @@
+###  Публикация: 1259384   (320281) от 03.11.2018
+
+Meow Motors (2018) [Ru/Multi] (1.0) License HOODLUM
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Встречайте аркадные Go-Kart гонки, где главные герои - это коты. Вы будете играть за одного из уникальных котов, которые безусловно запомнятся вам своим неповторимым характером и нравом. Вам предстоит преодолевать сложности треков, минуя мины и бомбы, останавливать конкурентов при помощи удивительных орудий и собирать усилители по пути к финишу.Тип издания: LicenseРазработчик: ArtVostokЖанр: Racing, Casual, IndieЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4DABAF09845F8DF09C06A9537423158B692FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918439   (311347) от 26.11.2015
 
 Need for Speed: Hot Pursuit 2 (2002) [Ru/En] Repack R.G. Механики
@@ -6,7 +32,7 @@ Need for Speed: Hot Pursuit 2 (2002) [Ru/En] Repack R.G. Механики
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311347.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +58,7 @@ MotoGP 18 (2018) [Multi] (1.0) Repack R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311175.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +84,7 @@ Rise: Race The Future (2018) [Multi] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +110,7 @@ GRIP: Combat Racing (2018) [Ru/Multi] (1.3/dlc) Repack xatab
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308967.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +136,7 @@ Drift King: Survival (2016) [Ru/En] (1.0) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +162,7 @@ Road Rage (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +188,7 @@ Trucker 2: Reboot / Перевозчик 2: Перезагрузка Колле�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -189,7 +215,7 @@ ATV Drift and Tricks (2017) [Multi] (1.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304964.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -215,7 +241,7 @@ Steel Rats (2018) [Ru/Multi] (1.01/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300356.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -241,7 +267,7 @@ WRC: FIA World Rally Championship [Ru] (L) 2010 | R.G. Игроманы
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -273,7 +299,7 @@ FIM Speedway Grand Prix 15 (2015) [En] (1.0.0) License RELOADED
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -299,7 +325,7 @@ Valentino Rossi The Game (2016) [Multi] (1.000/dlc) License CODEX [Special Editi
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -325,7 +351,7 @@ WRC: FIA World Rally Championship [Ru] (L) 2010 | TRiViUM
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -357,7 +383,7 @@ WRC: FIA World Rally Championship [Ru/En] (RePack) 2010 | R.G. Catalyst
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294968.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -389,7 +415,7 @@ Juiced 2: Hot Import Nights [Ru] (RePack) 2007 | SkeT
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293007.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -419,7 +445,7 @@ Formula Fusion (2017) [En] (1.2.0) License CODEX
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -445,7 +471,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.103.1840/dlc) SteamRip R.G. Игроман
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -471,7 +497,7 @@ Screamer (1995) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -497,7 +523,7 @@ Screamer 2 (1996) [En] (1.00) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283937.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +549,7 @@ D Series OFF ROAD Driving Simulation 2017 (2015) [En] (1.0) License SKIDROW
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -549,7 +575,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/Multi] (1.1.0) Repack =nemos=
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -575,7 +601,7 @@ Juiced [Ru] (P) 2005
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -603,7 +629,7 @@ Need for Speed: SHIFT (2009) [Ru/Multi] (1.02) Repack Other s
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -629,7 +655,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.5.1.2s) Repack Other s [VR Oculus]
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275364.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -655,7 +681,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.36.1.0s/dlc) Repack R.G. Меха�
 >>Racing
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273253.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -666,32 +692,6 @@ American Truck Simulator это симулятор вождения америк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E7339ED0FB659F9AEDDF8C9AE69DF5E713114C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265717   (272718) от 29.11.2018
-
-Need for Speed Most Wanted (2012) [Ru] (1.5.0.0/dlc) Repack xatab [Limited Edition]
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed: Most Wanted – безумные гонки по огромному открытому городу, полному как уличных гонщиков, так и полицейских. При этом обновленный Autolog позволяет легко отслеживать все действия (заезды, прыжки на трамплинах, проезды на огромных скоростях мимо камер и т.д.) ваших друзей и сравнивать их со своими достижениями.Тип издания: RepackРазработчик: Criterion GamesЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173283ABC46A9D9BB306B197281DB796DD9DD9C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

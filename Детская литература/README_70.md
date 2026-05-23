@@ -1,110 +1,3 @@
-###  Публикация: 1219623   (710051) от 16.04.2018
-
-Ю. Жадовская и др. | Бабушкина книжка (1915) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов для детей младшего возраста.Жанр: Детская проза, СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173410CFA6082AD344CB39A4C9B52D41EDBC8FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219619   (710042) от 16.04.2018
-
-Максимиллиан Эберман (худ.) | Царевна-лягушка (1914) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская народная сказка.
-Царевна лягушка - это сказка, по сюжету которой Иван Царевич женится на лягушке, так как в неё попадает стрела, выпущенная им по велению отца. Лягушка оказывается Василисой Премудрой, которая выполняет все задания царя, но Иван сжигает лягушечью кожу и ему приходиться спасать жену от Кощея Бессмертного...Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589524D9D16504DDC812165281A5B6860E615533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025712   (709940) от 12.06.2016
-
-Джуд Уотсон | 39 ключей. Некуда бежать (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман межавторского цикла «Неудержимые» из серии «39 ключей».
-Пять столетий клан Кэхиллов стережёт страшную тайну – тридцать девять компонентов сыворотки, способной превратить любого в самого могущественного человека на земле. Если сыворотка попадёт не в те руки, мир окажется на грани катастрофы...
-Эми и Дэн Кэхиллы – последние хранители секрета. Казалось, (   Читать дальше...   )Жанр: ФэнтезиПеревод: АннаПетрушинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CB432BBC4A498017D629B81E39A04562A959C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401568   (709548) от 10.08.2020
-
-Ким Макаров | Необычайное происшествие в зоопарке (1991) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сказка для маленьких - о том, как каждый зверь в зоопарке затосковал по своей родине: крокодил плачет о родном Ниле, медведь о тайге, жираф тоскует об Африке… Но вот свершилось чудо, двери клеток открылись, и что из этого вышло.Жанр: Стихи для детей/СказкаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312D3621BE2590806A38C6DDEA480258BE86D145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401557   (709542) от 10.08.2020
 
 Анна Джеймс | Тилли и книжные странники. Потерянные сказки. Книга 2. (2020) [FB2, EPUB, MOBI]
@@ -113,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709541.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -219,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -245,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709017.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708204.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707699.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707515.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707205.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -481,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -507,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706545.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -589,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706187.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -617,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706151.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -643,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -672,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706073.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -684,6 +577,114 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:445A21AB56B6C14F69C46CA7B6983235C449A227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026204   (706062) от 14.06.2016
+
+Брайан Чик | Нападения и спасения (2016) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Пятый роман цикла «Секретный Zooпарк»
+Однажды Ной, Меган, Ричи и Элла узнали секрет городского зоопарка, и теперь жизни ребят тесно связаны с этой тайной. Пока их сверстники решают, как провести выходные, боевые скауты готовятся к рискованной вылазке. Разве могут они остаться в стороне, когда друзья нуждаются в помощи?! Полярного медведя Бурана и носорога по имени (   Читать дальше...   )Жанр: ФэнтезиПеревод: А. ДеминаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF5EA1153C24393F521E5BECB35A161D50C42A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026197   (706048) от 14.06.2016
+
+Брайан Чик | Сюрпризы и опасности (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Секретный Zooпарк»
+Ещё месяц назад Ной и не подозревал, что внутри городского зоопарка, рядом с которым он прожил всю свою жизнь, находится вход в волшебный мир. Вернее, даже не вход, а входы – ведь в Секретный зоопарк ведёт множество путей, надёжно скрытых от посторонних глаз. Но теперь Ной и его друзья посвящены в тайну – и забыть о ней им не (   Читать дальше...   )Жанр: ФэнтезиПеревод: А. ДеминаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1BF339B1F2FE10B56F8639A19606BA0AFFDA15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026189   (706044) от 14.06.2016
+
+Брайан Чик | Загадки и подсказки (2015) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Секретный Zooпарк»
+Четверо друзей – Ной и его сестра Меган, Элла и Ричи – жили рядом с городским зоопарком и давно привыкли к такому соседству. Ребята ходили в школу, гуляли, играли в домике на дереве… пока однажды Меган не исчезла. Ее ищут все: родители, соседи, полиция – но девочка пропала, не оставив и следа. Только у Ноя есть ключик к разгадке: (   Читать дальше...   )Жанр: ФэнтезиПеревод: А. ДеминаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176C7C61272CE241FA32935B98DF56B43B0D040D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026198   (705863) от 14.06.2016
+
+Григорий Остер | Все сказки Григория Остера (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Замечательные сказки Г.Остера, иллюстрированные Сутеевым В., Шварцманом Л., Алимовым Г. и другими художниками.
+Когда ты будешь читать сказки про слоненка и удава, попугая и мартышку, котенка Гава и щенка, ты обязательно узнаешь в них своих друзей. Слоненок - добрый, скромный и... осторожный. Попугай - важный, самоуверенный и очень любит командовать. Мартышка - шустрая, (   Читать дальше...   )Жанр: СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F841697433BD387FFCD0281B09E51DB363609BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

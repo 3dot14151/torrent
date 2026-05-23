@@ -1,3 +1,83 @@
+###  Публикация: 1383056   (790570) от 03.06.2020
+
+Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai | Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13 ep + 5 SP] BDRip 1080p raw+rus
+
+>>След.
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ничем не примечательный школьник Сакута Адзусагава проводит всё своё свободное время в библиотеке. Однажды он встречает девушку в костюме кролика, которая старше его на год. Она представляется как Маи Сакурадзима — прославленная актриса и первая красавица школы. Девушка рассказывает, что все вокруг перестали «видеть» её, поэтому она оделась так вызывающе. По мнению (   Читать дальше...   )Производство: CloverWorks, ЯпонияЖанр: Комедия, РомантикаРежиссер: Масуй СойтиОзвучка: Двухголосая, Многоголосая закадровая; ДублированнаяСубтитры: Надписи, ПолныеЯзык: Продолжительность: 13 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D05C5FB5D46610A198726CA83C70E6431A3382A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388046   (789963) от 04.06.2020
+
+Umi ga Kikoeru | Ocean Waves | Здесь слышен океан [1993, Movie] BDRip 1036p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассники Таку и его друг Мацуо полны раздумий над своей будущей жизнью, когда красавица Рикако переводится в их провинциальную школу из Токио.
+Рикако - смышлёная, очаровательная и утончённая девушка, вынужденная поменять привычную ей столицу на тихий приморский городок. Возникает неизбежный любовный треугольник.Производство: студия Studio Ghibli / スタジオジブリЖанр: повседневность, романтикаРежиссер: Мотидзуки ТомомиПеревод: BurniN∙SnikerS & TFLOATER / Е. Шмагринская (Netflix) / Юлия Зыкова & Иван ЗыковСубтитры: •Продолжительность: 72 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6D9B3C8DEE2D224902CC8DE0C0527887121CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388074   (789960) от 04.06.2020
+
+Evangelion. 2.22 You Can [Not] Advance | Евангелион. 2.22 Ты (не) Пройдешь [2009, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Ангелы продолжают свои непрерывные атаки, а в «Nerv» приходят два новых пилота: пилот павшего в первом же бою Евангелиона-05 Мари Илластриэс Макинами и пилот Евы-02, а позже Евы-03 Аска Лэнгли Сикинами.
+В то же время Гэндо Икари и «Seele» приступают к секретному проекту, в котором задействованы Рей с Синдзи.Производство: Khara, ЯпонияЖанр: Драма, Фантастика, МехаРежиссер: МасаюкиОзвучка: Одноголосая, Двухголосая закадровая; ДублированнаяСубтитры: Надписи, ПолныеПродолжительность: 01:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEE5AD0E21BA8E8DAF17338B615485DC547A22D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270606   (789613) от 12.01.2019
 
 Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной алхимик: Братство [ТВ-2] [2009, TV, 64 ep] BDRip 1080p Raw+Rus
@@ -6,7 +86,7 @@ Hagane no Renkinjutsushi / Fullmetal Alchemist: Brotherhood / Стальной �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +112,7 @@ Zero no Tsukaima F| Подручный Бездарной Луизы: Финал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +139,7 @@ Zero no Tsukaima: Princess no Rondo | Подручный Бездарной Лу
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786854.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +165,7 @@ True Tears | Настоящие Слезы [2008, TV, 13 ep + 8 Specials] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786617.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +192,7 @@ Chuunibyou demo Koi ga Shitai! Movie: Take On Me | Чудачество Любв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786615.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +218,7 @@ Tokyo Magnitude 8.0 | Токийское Восьмибалльное [2009, TV,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786614.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +245,7 @@ No Guns Life | Жизнь без оружия [TV-1] [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786613.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -191,7 +271,7 @@ Usagi Drop | Брошенный Кролик [2011, TV, 11 ep + 4 sp] BDRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786612.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +297,7 @@ Yakusoku no Neverland | Обещанный Неверленд [2019, TV, 12 ep] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +323,7 @@ Godzilla. Kessen Kidou Zoushoku Toshi | Годзилла. Город на Гра
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786492.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +349,7 @@ Godzilla. Hoshi wo Kuu Mono | Годзилла. Пожиратель звёзд 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +376,7 @@ Godzilla. Kaijuu Wakusei  | Годзилла. Планета Чудовищ [201
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786490.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -323,7 +403,7 @@ Shirobako | Белая Коробка [2014, TV, 24 ep + 2 Specials] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785041.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -349,7 +429,7 @@ Non Non Biyori | Деревенская Глубинка [TV-1] [2013, TV, 12 ep
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -375,7 +455,7 @@ Kidou Senshi Gundam F91 | Mobile Suit Gundam F91 | Мобильный воин �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784692.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -401,7 +481,7 @@ Strike Witches: Operation Victory Arrow | Штурмовые Ведьмы: Оп�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -428,7 +508,7 @@ Anime-Gataris | Аниме Истории [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -454,7 +534,7 @@ Denpa Teki na Kanojo | Электромагнитная Подружка [2009, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784425.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -480,7 +560,7 @@ Yagate Kimi ni Naru | В Конечном Счёте я Стану Твоей [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784423.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -506,7 +586,7 @@ Go-Toubun no Hanayome | Пять Невест [TV-1] [2019, TV, 12 ep] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784422.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -532,7 +612,7 @@ Strike Witches the Movie | Штурмовые Ведьмы Фильм [2012, Mov
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784121.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +638,7 @@ Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782989.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -584,7 +664,7 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781750.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -595,85 +675,6 @@ Shokugeki no Souma: Ni no Sara | Кулинарные поединки Сомы 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00F446BFAFDB4C75AE051E053FDCAEC59909A39B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351738   (781749) от 18.06.2020
-
-Shokugeki no Souma: San no Sara | Кулинарные поединки Сомы [ТВ-3] [2017, TV, 24 ep + OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения Сомы Юкихиры в кулинарной школе Тооцуки продолжаются!
-После встречи с «Элитной десяткой» он предлагает её членам устроить с ним кулинарный поединок, и они, конечно же, отказываются. Однако спустя пару минут восьмой член «Десятки», Тэрунори Куга, соглашается устроить поединок, но с одним условием: Сома должен победить на Японском фестивале, который скоро (   Читать дальше...   )Производство: J.C. StaffЖанр: Этти, Сёнен, КомедияРежиссер: Ёситомо ЁнэтаниОзвучка: Двухголосая; Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 25 Эпизода по 25 Мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F4910CD7FC9283F6A3E482CC81286BBC7E030D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391470   (780920) от 20.06.2020
-
-New Game! | Новая игра! [TV-1] [2016, TV, 12 ep + OVA] BDRip 1080p 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780920.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Видеоигры — мое все!» — таков девиз выпускницы старшей школы Аобы Сузуказэ. По окончании учебы она отправляется работать художником заднего плана в игровую студию. Но мало того, что выглядит отнюдь не как выпускница, Аоба еще и попадает в команду чудаков-игроделов! Сможет ли она воплотить свою мечту: занять роль проектировщика в таком неоднозначном коллективе?Производство: Doga Kobo, ЯпонияЖанр: Приключения, КомедияРежиссер: Фудзивара ЁсиюкиОзвучка: Одноголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 13 Эпизодов по 23 Мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73754895EDC24FF2D7AC9FD1FEB96AD06A129308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370360   (780917) от 20.06.2020
-
-Kono Subarashii Sekai ni Shukufuku wo! Kurenai Densetsu | Этот Замечательный Мир! Алая легенда! [2019, Movie] BDRip 1080p 10-bit raw+rus
-
->>След.
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключения четырёх неудачливых героев продолжаются! На этот раз родная деревня Мэгумин и Юн-юн находится под угрозой уничтожения Владыкой демонов, который направляет туда одного из своих генералов. В отчаянии Юн-юн приходит к Казуме и просит его о помощи. Команда приключенцев направляется в деревню, чтобы предотвратить её уничтожение.Производство: J.C. Staff, ЯпонияЖанр: Комедия, ПриключенияРежиссер: Канасаки ТакаомиОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6167CDF9DF2E85B30CEE5804AA5AA1C6310362
 ```
 
 https://mybot314.ru/tekegram_catalog/

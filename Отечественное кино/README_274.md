@@ -1,3 +1,107 @@
+###  Публикация: 1817818   (3015) от 13.09.2025
+
+Удачный обмен (2007) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Даша и Дима женаты пять лет. За это время страсть угасла, и романтические отношения уступили место прохладным супружеским будням. Дима сообщает, что к ним приезжает его брат-близнец Кирилл. Он летит на юг и задержится в Москве всего на один день. Даша очарована своим деверем, который как две капли воды похож на ее мужа. Кирилл же говорит брату, что такую супругу, (   Читать дальше...   )Производство: Россия, Украина | «Star Media»Жанр: Мелодрама, комедияРежиссер: Андрей ЖитинкинАктеры: Александр Ефимов, Елена Захарова, Ирина Баринова, Владимир Носик, Ольга Ефремова, Любовь Зайцева, Александра Назарова, Александр Песков, Никита Бунеев, Игорь МельниковСубтитры: Русские (SDH)Продолжительность: 01:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F816DAB906769D3480262B17F67A81D5F94FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817815   (3007) от 13.09.2025
+
+Дедушка без адреса (2025) WEBRip [H.264] (серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Провинциалка Люба чувствует себя в Москве чужой и одинокой: не то чтобы город её не принимает, скорее – просто не замечает. Вокруг люди, только у каждого своя жизнь. Однажды ей встречается "потеряшка" – милый интеллигентный дедушка, который не помнит ни своего имени, ни адреса. Люба не может пройти мимо. К поискам дедушкиного дома и родни она привлекает (   Читать дальше...   )Производство: Россия, ХитФильмЖанр: мелодрамаРежиссер: Ольга МузалёваАктеры: Михаил Жигалов, Елена Сафонова, Евгения Замулина, Иван Архангельский, Анастасия Белоусова, Евгений Кошелев, Вера Бирюкова, Николай Мошкин  и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BE3D925D680317BAC650F75F5C7C97E636D789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817857   (2994) от 13.09.2025
+
+Дуэль. Пушкинъ - Лермонтовъ (2014) WEBRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Выиграна Крымская война. Россией по-прежнему правит Николай I. На экране — Пушкин, Лермонтов, Бенкендорф, Вяземский, Гончарова, и даже Грибоедов, судьба которого в 1829 году сложилась иначе. Пушкин окончательно отошел от вольнодумства. Богат, хорошо издается, но все его главные произведения написаны уже давно. По-прежнему женат на Гончаровой. Создает заказанную двором (   Читать дальше...   )Производство: РоссияЖанр: фэнтези, драмаРежиссер: Денис БанниковАктеры: Александр Карпов, Геннадий Яковлев, Евгений Лазарев, Арнис Лицитис, Елена Соловьёва, Жанна Воробьева, Светлана Агафошина, Мария Баева, Вячеслав Невинный мл., Виталий МаксимовПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AD75E11FEAA361B7777963B95CBC689F8FDC74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376175   (2874) от 14.09.2025
+
+Т-34 (2018) BDRip [H.265/1080p] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+В ноябре 1941 года в деревне Нефёдовка вчерашний курсант Николай Ивушкин был вынужден принять командование единственным уцелевшим танком и вступить в неравное противостояние с немецкой танковой ротой, приближавшейся к Москве. Силами противника командовал опытный гауптман Клаус Ягер, но это не спасло его подразделение от поражения, хоть самому ему и удалось ранить (   Читать дальше...   )Производство: Россия / Марс Медиа, Амедиа ПродакшнЖанр: драма, военный, боевик, историяРежиссер: Алексей СидоровАктеры: Александр Петров (II), Виктор Добронравов, Ирина Старшенбаум, Винценц Кифер, Петр Скворцов, Семён Трескунов, Артём Быстров, Антон Богданов, Василий Уриевский, Василий БуткевичСубтитры: РусскиеПродолжительность: 02:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9C814E177BA1BD4E638DEB928024D910C2DB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818350   (2528) от 16.09.2025
 
 Придурок (2023) WEBRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2528.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2180.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2013.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1237.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1067.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1016.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 

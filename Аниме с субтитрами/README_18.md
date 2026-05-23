@@ -1,3 +1,107 @@
+###  Публикация: 1483314   (1006885) от 13.07.2021
+
+Gleipnir | Глейпнир [2020, TV, 13 эп.] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Почему же я принимаю это обличье?» Сюити Кагая — юноша с опасной для всего мира способностью: он умеет превращаться в странный звериный костюм. И однажды его сила привлекает внимание таинственной девушки по имени Клэр… Встреча с ней окончательно рушит мирную жизнь Сюити: на него объявляют охоту чудовища — люди с такой же способностью, как у парня. Став единым целым, (   Читать дальше...   )Производство: студия Pine Jam / パインジャムЖанр: приключенияРежиссер: Ёнэда КадзухироПеревод: Wakanim (дехардсаб JiLleON)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29C043380947430C8BA37686166B99FD3FF95DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484074   (1006392) от 17.07.2021
+
+Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: Девушка бьёт парней [2017, TV, 12 эп.] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+После событий оригинальной игры девушка-сирота Хинако Накаяма неожиданно воссоединилась со своим братом-близнецом, Хикару. Он просит ее занять его место в академии «Львиный Рык», частной школе для парней. О ней ходит дурная молва из-за жестокого учсовета, установившего свою диктатуру. Хикару принадлежит к влиятельному клану якудза, и он обязан стать лидером академии (   Читать дальше...   )Производство: Project No.9Жанр: приключенияРежиссер: Сайто НориакиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 8 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:617B30C81B5CA5FD2BE6E672127B755B58B5670A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484781   (1005905) от 21.07.2021
+
+Night Head Genesis | Сумеречный разум: Рождение [2006, TV, 24 эп.] DVDRip 476p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Родители юных Наото и Наойа Кирихама очень быстро поняли, что их дети отличаются от остальных. Они любили своих детей и желали им добра. Но c самого детства маленький Наото причинял боль другим, не осознавая мощи своей силы, а младший брат Наойа мог читать мысли, лишь прикасаясь к человеку. В конце концов эти силы стали сводить с ума родителей, и они приняли очень (   Читать дальше...   )Производство: Actas / アクタスЖанр: триллер, фантастикаРежиссер: Такэути ЁсиоПеревод: Felix007 (1-13); mAdmaxi (14-24)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F481929A72DCA19288E0E52AA0CE4FA8FE565888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485214   (1005581) от 24.07.2021
+
+Regalia: The Three Sacred Stars | Регалия: Три священные звезды [2016, TV, 13 эп.] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Жизнь – невероятно непредсказуемая штука. Планы то и дело срываются, мечты о будущем рушатся, как карточные домики, а судьба иногда выкидывает такие кульбиты, что впору только руками разводить. Юные Рэна и Юи – две сестры-сиротки, которые жили душа в душу и не планировали пускаться в опасные приключения. Жизнь в Энастории, их родном королевстве, была спокойной и (   Читать дальше...   )Производство: Студия Actas / アクタスЖанр: приключения, фантастика, мехаРежиссер: Тосака СинПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F623843872A7AE66FF718EE9449CE38E46CC7ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485382   (1005277) от 26.07.2021
 
 Regalia: The Three Sacred Stars | Регалия: Три священные звезды [2016, TV, 13 эп.] BDRip 1080p 10-bit raw
@@ -6,7 +110,7 @@ Regalia: The Three Sacred Stars | Регалия: Три священные зв
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005277.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ TO-Y | Той [1987, OVA] BDRip 1080p HEVC 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -60,7 +164,7 @@ Akudama Drive | Акудама Драйв [2020, TV, 12 из 12] BDRip 1080p HEV
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -87,7 +191,7 @@ Go-Toubun no Hanayome 2 | The Quintessential Quintuplets 2 | Пять невес
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004689.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -113,7 +217,7 @@ Wixoss Diva(A)Live | Wixoss: Дива в прямом эфире [2021, TV, 12 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -139,7 +243,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -165,7 +269,7 @@ Yatogame-chan Kansatsu Nikki | Заметки Ятогамэ [ТВ-1] [2019, TV,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004480.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -191,7 +295,7 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004437.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -217,7 +321,7 @@ Mahou Shoujo Lyrical Nanoha: Detonation | Magical Girl Lyrical Nanoha Detonation
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004255.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -243,7 +347,7 @@ Ore o Suki na no wa Omae Dake ka yo | Oresuki: Are You the Only One Who Loves Me
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004174.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -269,7 +373,7 @@ Idoly Pride | Расцвет айдолов [2021, TV, 12 из 12] BDRip 1080p 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -295,7 +399,7 @@ Neon The Animation | Неон Анимация [2011, OVA, 6] DVDRip 480p raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004061.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +425,7 @@ Araburu Kisetsu no Otome-domo yo. | O Maidens in Your Savage Season | Сезон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002722.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +451,7 @@ Slayers Try | Рубаки снова [1997, TV, 26 из 26] BDRip 1080p 10-bit 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002721.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -373,7 +477,7 @@ Slayers Next | Снова Рубаки [1996, TV, 26 из 26] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002676.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -399,7 +503,7 @@ Generator Gawl / Генератор Гаул [1998, TV, 12 эп.] DVDRip 480p Ra
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002637.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -425,7 +529,7 @@ Africa no Salaryman / African Office Worker / Офисная фауна из А�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -451,7 +555,7 @@ Sirius no Densetsu / The Legend of Sirius / Легенда о Сириусе [19
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -480,7 +584,7 @@ Urusei Yatsura Movie 3: Remember My Love | Those Obnoxious Aliens: Remember My L
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002305.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +610,7 @@ Urusei Yatsura Movie 5: Kanketsu Hen | Those Obnoxious Aliens: The Final Chapter
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002302.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +636,7 @@ Urusei Yatsura Movie 2: Beautiful Dreamer | Those Obnoxious Aliens: Beautiful Dr
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002299.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -558,7 +662,7 @@ Urusei Yatsura Movie 6: Itsudatte My Darling | Those Obnoxious Aliens: Always My
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -570,111 +674,6 @@ Urusei Yatsura Movie 6: Itsudatte My Darling | Those Obnoxious Aliens: Always My
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2EC42430373D03B1B8602C4F340A9A4999C30CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488200   (1002292) от 10.08.2021
-
-Urusei Yatsura OVA Series | Those Obnoxious Aliens OVA | Несносные пришельцы OVA [1985, OVA, 11 из 11] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Атару, Лам и других персонажей оригинального сериала.Производство: Studio Deen / スタジオディーン, Magic Bus / マジックバスЖанр: приключения, комедия, романтикаРежиссер: Ямадзаки КадзуоПеревод: TSUBASA-ANIME (Wolfbane, Владимир Шабунин, Vomolrah)Язык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 11 эп. продолжительностью от 25 до 58 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EE719FDCF982566E89248C8E3A1DAA78F01757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488187   (1002276) от 10.08.2021
-
-Urusei Yatsura | Those Obnoxious Aliens | Несносные пришельцы [1981, TV, 195 + 2] BDRip 960p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная Япония.
-Демоны Они - пришельцы из космоса, прибывают на Землю, чтобы завоевать ее. Уровень развития их техники и оружия намного превосходит наш. Единственный шанс землян на спасение - если Моробоси Атару, обычный парень, случайно выбранный компьютером, обыграет в салочки дочь вождя пришельцев по имени Лам. К сожалению, шансов у него почти никаких, так (   Читать дальше...   )Производство: Studio Pierrot / studioぴえろ, Studio Deen / スタジオディーンЖанр: приключения, комедия, романтикаРежиссер: Осии МаморуПеревод: TSUBASA-ANIME (Wolfbane, Владимир Шабунин, Vomolrah)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 195 эп. по 25 мин. + 2 спешиала по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A995BBCFFE4A3D683168FB05916F80EC5D4FDD9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351530   (1002166) от 10.01.2020
-
-Azumanga Daiou The Animation | Azumanga Daioh | Адзуманга [2002, TV, 26 из 26] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никогда еще в школьном аниме не собиралась такая веселая и сплоченная девичья компания. 10-летний гений Тиё-тян – маленькое чудо с косичками. Красавица Сакаки-сан с фигурой супермодели и безответной любовью ко всем окрестным кошкам. Очкастая отличница Ёми, теряющая спокойствие (регулярно) только по двум причинам: первая – показания весов, вторая – проделки лучшей (   Читать дальше...   )Производство: J.C. StaffЖанр: комедия, повседневностьРежиссер: Нисикиори ХиросиЯзык озвучки: ЯпонскийСубтитры: Русские (Андрей Смирнов, Александр Смирнов, Максим Шаврин)Продолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CA11524AB08DC36BAFFD22CE188C52C1B2901E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351584   (1001880) от 11.01.2020
-
-Gekijouban Kyochuu Rettou | Остров насекомых-гигантов (фильм) [2020, Movie] WebRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001880.jpg" />
-</div>
-
-
-###  Подробнее
-
-После крушения самолёта Орибэ Муцуми и её одноклассники, которые летели на школьную экскурсию, оказываются на острове, кажущемся необитаемым. Используя свои знания о дикой природе, Орибэ помогает выжившим в авиакатастрофе. Девушка ждёт, что их спасут в течение трёх дней, которые можно и перетерпеть. Но при расчётах она не могла учесть того ужасного факта, что хозяевами (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: приключения, фэнтезиРежиссер: Такахаси ТакэоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: #1: Английские; #2: Русские; ##: Multi-subПродолжительность: 75 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42E59E836C6161DADCE0CF800D4A634F6E347B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

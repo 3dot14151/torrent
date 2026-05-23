@@ -1,4 +1,56 @@
 https://t.me/izofen
+###  Публикация: 1870930   (1069503) от 
+
+NG: Дэвид Аттенборо: Океан / Океан с Дэвидом Аттенборо / Ocean with David Attenborough (2025) WEB-DL [H.265/2160p] [4K, DV 5, 10-Bit] [MVO]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Океан с Дэвидом Аттенборо» — это документальный фильм, где великий натуралист приглашает нас в сердце Мирового океана. В свои 99 лет Аттенборо подводит итог десятилетиям наблюдений, открывая перед нами не только завораживающую красоту подводного мира, но и тревожные признаки его разрушения. С помощью впечатляющих съёмок в открытых водах, на коралловых рифах и в (   Читать дальше...   )Производство: Великобритания / All3Media International, National Geographic Society, Silverback FilmsЖанр: ДокументальныйРежиссер: Колин Батфилд, Тоби Ноулан, Кит ШолейУчастники: Дэвид АттенбороПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163E9D6436DAD00F9F0ED1D6B25C354A94638218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870925   (1069489) от 
+
+Династии II / Dynasties II (2022) WEB-DL [H.265/2160p] [4K, HDR HLG, 10-bit] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Сериал, премьера которого состоялась 20 марта 2022 является продолжением великолепного шоу Аттенборо о природе, рассказывающего о жизни различных династий представителей животного мира. Снятые в сериале места, где живут эти животные, - это последние рубежи, еще не запятнанные грязным прикосновением человечества. Пейзажи в сериях захватывают дух, но это больше, чем (   Читать дальше...   )Производство: Великобритания / BBC One, BBC StudiosЖанр: документальныйРежиссер: Лидия Бэйнс, Саймон Блэкни, Felicity Lanchester, Anna Place, Мэнди СтаркУчастники: Дэвид Аттенборо, Daan Smit, Джон Шир, Марк МакЭвен, Мэнди Старк, Лидия Бэйнс, Ian Llewellyn, Саймон Блэкни, Sandra Martens, Aaron SandhuПеревод: Многоголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CECD61CC94D8AE5E335DF61B0D1C56CB3CDA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869867   (1068602) от 
 
 NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] (сезон 1, серии 1-5 из 5)
@@ -7,7 +59,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ NG. Аутсайдеры / Underdogs (2025) WEB-DL [H.264/1080p] (сезон 1, 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +111,7 @@ NG: Чернобыль: В эпицентре катастрофы / Chernobyl: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -85,7 +137,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -111,7 +163,7 @@ NG. Слоны-призраки / Ghost Elephants (2025) WEB-DL [4K, HDR, 10-bit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064380.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +241,7 @@ BBC. По следам уссурийского тигра / Operation Snow Tige
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +267,7 @@ NG: Драконы наяву / Dragons Uncovered (2024) HDTV [H.264/1080p] [VO]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062759.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +293,7 @@ NG. Озеро Танганьика. Голубое сердце Африки / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062196.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +319,7 @@ NG. Фашистский лагерь смерти. Большой побег / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061956.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060814.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_1060089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/009/" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1059241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -423,7 +475,7 @@ BBC: История Вселенной / Our Universe (2022) WEB-DLRip [AV1/2160
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058903.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -449,7 +501,7 @@ NG. Намибия - убежище гигантов / Namibia: Sanctuary of Gia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -501,7 +553,7 @@ BBC. Снежные медведи / Snow Bears (2017) WEB-DL [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -553,7 +605,7 @@ NG. Титаник: цифровое воскрешение / Titanic: The Digit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -579,7 +631,7 @@ NG. Королевство обезьян: линии фронта / Kingdom of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055484.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -605,7 +657,7 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052942.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -616,58 +668,6 @@ NG. Гепарды: лицом к лицу с Берти Грегори / Cheeta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41526D498B35082BD0572F45E310BDB21FC470E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848686   (1052936) от 18.01.2026
-
-NG. Гепарды: лицом к лицу с Берти Грегори / Cheetahs Up Close with Bertie Gregory (2025) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Берти Грегори прибывает в Серенгети как раз в разгар миграции зебр и антилоп гну. Он приехал сюда, чтобы снять на видео самое быстрое наземное животное на Земле: гепарда. Приближаясь к матери, заботящейся о своих крошечных детенышах, и к группе молодых самцов, совершающих феноменальную охоту сообща, он узнает о неожиданных трудностях, с которыми сталкивается этот (   Читать дальше...   )Производство: Великобритания, Wildstar FilmsЖанр: документальный, природа, фауна, флораРежиссер: Джигар ГанатраУчастники: Берти ГрегориПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A931449EA236B6DE3FE64EBF0B7B96C18CE2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847535   (1052150) от 13.01.2026
-
-NG: Дикие леса Австралии / Australia's Wild Woodlands (2025) HDTVRip [H.264/1080p] [VO]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм исследует богатое биоразнообразие и устойчивость древних лесов Австралии, где обитает крупнейшая в мире разновидность попугаев и знаковых видов, таких как утконос. Эти леса охватывают обширные регионы и поддерживают разнообразную дикую природу, от красных кенгуру до пресноводных крокодилов. Фильм демонстрирует редкое поведение сумчатых и птиц, подчеркивая угрозы (   Читать дальше...   )Производство: Австралия | Geoff Spanner ProductionЖанр: документальный, природаРежиссер: Джефф СпаннерПеревод: Одноголосый профессиональныйЯзык озвучки: Русский, АнглийскийПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D26288EF130A4B793427DE4DEE0B3AAF9C6B6AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,189 @@
+###  Публикация: 1294730   (623738) от 10.04.2019
+
+Новый браузер Microsoft Edge на Chromium стал доступен всем желающим
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Софтверный  гигант выпустил первую публичную сборку браузера Edge на Chromium для тестировщиков и разработчиков в двух версиях: Canary и Dev. Обе доступны для скачивания на новом сайте Microsoft Edge. «Ночные» сборки будут обновляться ежедневно, а версии для разработчиков – ежемесячно.Новый Edge во многом очень похож на Google Chrome. Браузер поддерживает существующие (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294695   (623605) от 10.04.2019
+
+Amazon планирует создать спутниковую группировку в 3236 единиц для обеспечения доступа к сети Интернет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Интернет-гигант Amazon, основанный Джеффом Безосом, также являющимся основателем компании Blue Origin, заинтересован в получении права на использование полосы частот в целях управления тысячами интернет-спутников.Amazon присоединяется к списку компаний, планирующих создание группировок в тысячи единиц спутников для широкополосного подключения к сети Интернет. Торговый (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053147   (623591) от 10.04.2019
+
+TimeShift (2007) [Ru/En] (1.02) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Главный герой, полковник в отставке Майкл Свифт, выступает в роли испытателя двух величайших изобретений века — Квантового Костюма и Квантового Транспортера. Но тщательно подготовленный эксперимент летит в тартарары, когда за мгновение до его начала в лабораторию врывается вооруженный человек.Тип издания: LicenseРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122B18CD3B062C769D133CE71CE522027498EB1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 355586   (623588) от 10.04.2019
+
+Евгений Карташов | Photoshop CS5 от A до Я [2011] [Iso + Bonus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+CS5 - одна из самых удачных версий фотошопа за последнее время. Не даром уже более 50% пользователей фотошопа использует именно её.
+Но проблема в том, что с каждой новой версией в фотошопе появляются все новые и новые инструменты и функции, а также изменяется внешний вид рабочего окна.
+Для новичка это просто головная боль! Об этом свидетельствуют многочисленные письма, (   Читать дальше...   )Жанр: Дизайн, графикаФормат: Iso
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9D85AE7E55FA46EAFBB9AEC6D017691BEE937C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543764   (623320) от 14.04.2022
+
+Популярнейший торрент-трекер, многократно попадавший под блокировку, объявил, что принадлежит видному борцу с пиратством
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Популярный испанский торрент-трекер, распространяющий пиратское видео, после нескольких десятков случаев блокировки внутри страны решил защищаться оригинальным способом – указать в качестве владельца вице-президента американской ассоциации кинокомпаний, непримиримого борца с пиратством.Данный шаг администраторами ресурса, вероятно, расценивается лишь как остроумная (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908141   (623189) от 19.06.2015
+
+HaoZip 5.3.1 Build 10340 Ru-Board Edition [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+HaoZip - бесплатный архиватор китайского производства, прекрасно подходящий в качестве замены WinRAR. Его интерфейс практически неотличим от привычного интерфейса WinRAR, и он поддерживает сжатие в форматах 7z, ZIP, TAR, а также распаковку практически всех популярных форматов сжатия. Среди них: RAR, ISO, UDF, ACE, UUE, CAB, Bzip2, ARJ, JAR, LZH, RPM, Z, LZMA, NSIS, (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3430CC01DDFA1B4382AF3F1543D37D72BBDC43A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219523   (623107) от 19.07.2010
+
+Need for Speed: Most Wanted - Technically Improved [Ru] [RePack] 2010
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Вам надоело обрывать тупых ботов? Надоело тягаться с детскими копами? Тогда Technically Improved специально для вас! Technically Improved это новый взгляд на Most Wanted. Игра полностью переработана. Изменено практически всё что можно, модели автомобилей, главное меню, фотофиниш, добавлена дрифтовая камера, изменено управление и конфигурация автомобилей, и еще много всякой всячины.
+
+   Ночь закончилась. Потухли фары, исчезла мерцающая подсветка разделительной линии на дорогах, перестали назойливо лезть в глаза, сияющие рекламные щиты, завлекающие огни казино и прожектора ночных клубов. Залитые солнцем улицы наводнила толпа выспавшихся полицейских. Казалось бы, ничего необычного. И лишь вечно бодрствующие гонщики-нелегалы знали, что произошло. В NFS снова наступил день. Все пути, все направления открыты для вас. В "Need for Speed: Most Wanted" гонщик свободно перемещается по городу и может легко попасть как в промышленные, так и в спальные районы. Город живет своей жизнью. Плотное уличное движение и даже (   Читать дальше...   )Тип издания: RePackЖанр: Arcade / Racing (Cars) / 3DЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 219731   (623101) от 19.07.2010
 
 Sacred 2 Gold: Падший Ангел + Лёд и Кровь [Ru] (L) 2010
@@ -6,7 +192,7 @@ Sacred 2 Gold: Падший Ангел + Лёд и Кровь [Ru] (L) 2010
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623101.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +245,7 @@ ProDAD Mercalli V2 Plugin 2.0.121 Tech. r79 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623081.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +297,7 @@ Multi Utilities 2015 5.1.6 by Муллин Иван [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622443.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -190,7 +376,7 @@ ESET NOD32 Antivirus 9.0.386.1 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622133.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +402,7 @@ Stop SMS Live & Boot v.2.7.13 [Русский и английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622112.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -243,7 +429,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.3) [Ru] 2012 l Audioslave
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622102.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -271,7 +457,7 @@ The Elder Scrolls V: Skyrim - Компиляция модов v5 (Mod) {1.5.26.0
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622096.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -297,7 +483,7 @@ Primo Ramdisk Ultimate Edition 5.6.0 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622089.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -323,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621468.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +536,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621271.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -402,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -428,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621035.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -454,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -480,7 +666,7 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.1.2/reg1.02) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620501.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -491,189 +677,6 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.1.2/reg1.02) Repack xatab
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58B8493540744B8A5E4201BAD7C62542D986AFCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162722   (620491) от 09.06.2018
-
-Life is Strange: Before the Storm (2017) [Ru/Multi] (1.4.0.5/dlc) Repack Other s [Deluxe Edition] [Episode 1-3]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Life is Strange: Before the Storm является приквелом к эпизодическому приключению Life is Strange, события которого разворачиваются за три года до оригинального проекта. Играть предстоит за Хлою Прайс, бунтарку, связанную невероятной дружбой с Рейчел Амбер.Тип издания: RepackРазработчик: Deck NineЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A50740326F5B63AC8694D9D7E4EFA17CD589A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138397   (620451) от 09.07.2014
-
-Храброе сердце / Braveheart (1995) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_620451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма начинается в 1280 году в Шотландии. Это история легендарного национального героя Уильяма Уолласа, посвятившего себя борьбе с англичанами при короле Эдварде Длинноногом.
-Он рано лишился отца, погибшего от рук англичан, и его забрал к себе дядя Оргайл, который дал ему хорошее образование в Европе. На родину Уильям возвращается уже взрослым человеком, (   Читать дальше...   )Жанр: Боевик, Драма, ВоенныйРежиссер: Мэл ГибсонАктеры: Мэл Гибсон, Джеймс Робинсон, Шон Лоулор, Сэнди Нельсон, Джеймс Космо, Шон МакГинли, Алан Толл, Эндрю Вейр, Герда Стивенсон, Ральф РайчПеревод: Дублированный, многоголосый закадровый, двухголосый закадровый, одноголосый закадровыйСубтитры: Russian (надписи и пр.), Russian, Russian (сommentary), English, English (SDH)Продолжительность: 02:57:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803455   (620449) от 09.07.2014
-
-Parallels Desktop for Mac 9.0.24237 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620449.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой производительности вы можете с легкостью запускать любые, даже самые ресурсоемкие графические приложения Windows.Тип издания: OS X SoftwareРелиз состоялся: 07 июля 2014Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.6.8 or LaterЯзык интерфейса: Русский, Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246964981AB6EC437720FCDF0B1267CDD8AB83EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035360   (620303) от 20.07.2016
-
-2001 год: Космическая одиссея / 2001: A Space Odyssey (1968) BDRip [H.264/720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620303.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Космическая одиссея 2001 года" - плод совместного творчества известного британского кинорежиссера Стэнли Кубрика и не менее известного британского писателя-фантаста сэра Артура Кларка, несомненно, является лучшим англо-американским научно-фантастическим фильмом 20 века. Безукоризненное мастерство Кубрика и философская глубина идей Кларка позволили миру (   Читать дальше...   )Производство: Великобритания, США (кинокомпания: «Metro-Goldwyn-Mayer», «Stanley Kubrick Productions»Жанр: Фантастика, Приключения, ДрамаРежиссер: Стэнли КубрикАктеры: Кир Дулли, Гари Локвуд, Уильям Сильвестер, Дэниэл Риктер и др.Перевод: Многоголосый закадровыйЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCA12C622A78CE58F4BA89029647CA4A94C148F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265500   (619936) от 12.04.2019
-
-Darksiders III / Darksiders 3 (2018) [Ru/Multi] (1.4/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darksiders III — долгожданная третья глава популярной серии Darksiders. В Darksiders III вы вернетесь на мертвую Землю в роли ЯРОСТИ, которая намерена найти и уничтожить Семь смертных грехов.Тип издания: LicenseРазработчик: Gunfire GamesЖанр: Action, RPG 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0135E43250861557A521D006E6A4DBCC39C08AC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295114   (619929) от 12.04.2019
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.11425.20204 (2019.04) RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: русский, английский, украинский + языковые пакеты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E90D01CDA8BDE7313A56023FA62CD65ED562B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295300   (619922) от 12.04.2019
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v19.4 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3C73773A6F90C80A009716B83E6C48629B081C
 ```
 
 https://mybot314.ru/tekegram_catalog/

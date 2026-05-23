@@ -1,3 +1,109 @@
+###  Публикация: 1483647   (852314) от 29.09.2021
+
+Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В 2041 году в Японии запрещена религия и распространение любой информации о сверхъестественных явлениях. Любое нарушение жестоко карается законом. В это же время из одного исследовательского института выбираются два брата, обладающие необычными способностями, и сталкиваются с враждебным к ним миром.
+
+Перед просмотром рекомендуем посмотреть первый сезон.Производство: Студия Shirogumi / 白組Жанр: приключенияРежиссер: Хиракава ТакамицуПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF91FC6D096E9105C89D4514CCE479C1E6FE8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973920   (851798) от 29.03.2016
+
+Fairy Tail Zero | Фейри Тейл Зеро [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+История о том, как начинала свое существование одна из сильнейших гильдий Фиора - "Хвост Феи".Жанр: приключения, комедия, фэнтези, сёнэнРежиссер: Исихира Синдзи / Ishihira Shinji / 石平信司Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEAF335DEACC1C1C6E1E5C24EC09D577C156F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975962   (850036) от 30.03.2016
+
+Ao no Kanata no Four Rhythm / Aokana / Четыре ритма сквозь синеву: За небо, в небосвод [2016, TV, 12] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Люди все-таки научились летать – правда, без крыльев, с помощью гравиботинок. В больших городах полеты ограничены, а вот в глубинке и на далеких островах – сколько угодно. Именно на такие острова, родину отца, приезжает Асука Курасина – и тут же влюбляется в небо и воздушный спорт под названием «летающий цирк». Ее инструктором по воле судьбы и мудрого учителя Кагами (   Читать дальше...   )Жанр: научная фантастикаРежиссер: Ойдзаки ФумитосиПродолжительность: 12 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9EE0CE0B7684A854614552CC8A4CA7DEFD0F156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488462   (849178) от 01.10.2021
+
+Magia Record: Mahou Shoujo Madoka Magica Gaiden 2nd Season - Kakusei Zenya | Записи о магии [ТВ-2] [2021, TV, 8 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Девочки-волшебницы сражаются в безвестной войне ради исполнения своих заветных желаний. Но Ироха Тамаки позабыла, что она загадала… — О чём же я просила, когда стала волшебницей?.. — задаётся она вопросом. В её жизни словно зияет огромная дыра. Она утратила нечто важное, дорогое… Но что? День за днём Ироха сражается, понятия не имея, зачем. Но тут среди девочек-волшебниц (   Читать дальше...   )Производство: студия Shaft / シャフトЖанр: махо-сёдзё, драмаРежиссер: Анай ЁсукэПеревод: 1) Funimation; 2) AniLibriaЯзык озвучки: ЯпонскийСубтитры: 1) Английские; 2) РусскиеПродолжительность: 8 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F5C0B5CC2867D69CFC6AC4821F6FE3BE9DC06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002421   (848538) от 31.03.2016
 
 Hametsu no Mars / Mars of Destruction / Разрушительный Марс [2005, OVA] DVDRip 432p raw+eng
@@ -6,7 +112,7 @@ Hametsu no Mars / Mars of Destruction / Разрушительный Марс [2
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +140,7 @@ Burn up! | Burn up | Спецотряд Burn Up [1991, OVA, 1 эп.] DVDRip 480p
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848536.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +167,7 @@ Girl Friend (Kari) / Girl Friend Beta / Подружка Бета [2014, TV, 12 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +193,7 @@ Durarara!!x2 Ketsu / Дюрарара!! 2 (сезон третий) [2016, TV, 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -113,7 +219,7 @@ Gintama° / Гинтама [ТВ-4] [2015, TV, 51 из 51] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -139,7 +245,7 @@ Seijuki Cyguard | Cybernetics Guardian | Кибернетический стра
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848326.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -165,7 +271,7 @@ Osomatsu-san / Mr. Osomatsu / Возвращение Осомацу-куна [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -192,7 +298,7 @@ Chain Chronicle (2016) / Цепные хроники [2016, Movie, 3 из 3] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848050.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -218,7 +324,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847945.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Hello World | Здравствуй, мир! [2019, Movie] BDRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -270,7 +376,7 @@ Koukaku Kidoutai: SAC_2045 | Ghost in the Shell: SAC 2045 | Призрак в д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -296,7 +402,7 @@ GJ-bu | Good Job Club | Клуб добрых дел [2013, TV, 12 ep.] BDrip 10
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847161.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +430,7 @@ Uchuu Patrol Luluco / Space Patrol Luluco / Космический патрул�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846645.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +456,7 @@ Akagami no Shirayukihime | Красноволосая Белоснежка [2015
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +482,7 @@ D_Cide Traumerei the Animation | Дисайд: Грёзы [2021, TV, 13 эп.] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -402,7 +508,7 @@ Lily Cat | Lily C.A.T. | К.О.Т. Лили [1987, OVA] LDrip 480p raw + eng
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -430,7 +536,7 @@ Jormungand / Ёрмунганд [ТВ-1] [2012, TV, 12] BDrip 720p 10-bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845209.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -456,7 +562,7 @@ Higurashi no Naku Koro ni: Sotsu | Higurashi: When They Cry - Sotsu | Когда
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844031.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +588,7 @@ Waga Seishun no Arcadia / Arcadia of My Youth (Harlock Movie 2) / Аркадия
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +614,7 @@ Love Hina | Любовь и Хина [2000, TV, 25 TV + 3 OVA + 2 SP] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842741.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +640,7 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Красочный м�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +666,7 @@ Kanojo to Kanojo no neko OAV / Она и ее кот [1999, OVA] DVDRip raw
 >>Аниме (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841522.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -571,111 +677,6 @@ Kanojo to Kanojo no neko OAV / Она и ее кот [1999, OVA] DVDRip raw
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035462   (841106) от 09.03.2017
-
-Kami-sama Hajimemashita 2 OVA / Очень приятно, Бог OVA-2 [2015, OVA, 5 из 5] DVDRip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусы к эксклюзивным ограниченным изданиям 22-25 томов манги и сборника 25.5Производство: Студия TMS / トムス・エンタテインメントЖанр: комедия, романтика, фэнтези, сёдзёРежиссер: Дайти АкитароЯзык субтитров: Русский (отключаемый)Продолжительность: 5 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F430FEE65225466C394EE509369AFBEF15220736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803077   (841058) от 04.04.2016
-
-Magi: Sinbad no Bouken | Маги - Приключение Синбада [2014, OVA, 5 эп.] DVDrip 480p raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841058.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как юный Синбад покорил свои первые Подземелья.
-Бонус к эксклюзивным ограниченным изданиям третьего-седьмого томов манги.Производство: Студия Lay-duceЖанр: приключения, фэнтезиРежиссер: Мияо ЁсикадзуПеревод: nnm-club^animeСубтитры: русскиеПродолжительность: 5 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87902653647206C22C1F63C22FB65E4AFD98B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379194   (840749) от 28.04.2020
-
-Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Виолетта Эвергарден: Вечность и самопишущая кукла [2019, Movie] BDRip 1080p HEVC 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840749.jpg" />
-</div>
-
-
-###  Подробнее
-
-В "Вечности" Виолетта Эвергарден не является главной героиней — она выполняет роль помощницы при молодой девушке Изабелле Йорк, которую должна обучить аристократическим манерам. У Изабеллы (Эми Бартлет в прошлом) была трудная юность, и поэтому характер сформировался отнюдь не кроткий для будущей леди. Она сначала принимает постоянные выдержку и спокойствие (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, мелодрамаРежиссер: Фудзита ХарукаПеревод: nnm-club^animeЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 95 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2DDBF14D75A0CE4569D0688D696C7F1F6E93B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560941   (839952) от 31.03.2014
-
-Zegapain | Дзэгапэйн [2006, TV, 26 эп.] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кё Согору, ученик средней школы Майхами Маинами. Обычный школьник, живущий обычной школьной жизнью, то есть - любит, дружит и учиться. С самого детства занимаеться плаваньем и жить без него не может. Но его обычная жизнь изменится, когда он встретит прекрасную девушку по имени Шизуно, которая попросит его спасти мир...Жанр: приключения, фантастика, меха, драмаРежиссер: Симода МасамиПродолжительность: 26 эп., 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61469F5A6EB6A5BEB32674EA9530F86CE582F834
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,109 +1,3 @@
-###  Публикация: 971972   (984360) от 04.01.2016
-
-Джон Рональд Руэл Толкин | Хоббит, или Туда и Обратно (1989) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984360.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о приключениях хоббита Бильбо Беггинса, на которые его подтолкнули волшебник Гэндальф и компания тринадцати гномов. Цель их похода — путешествие к Одинокой горе, где находятся сокровища, охраняемые драконом Смаугом.
-Первоначальная цель написания «Хоббита» — развлечь маленьких детей Толкина. Незавершённую рукопись читают только близкие друзья (   Читать дальше...   )Жанр: ФэнтезиПеревод: Н. РахмановойФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B9E5EB94F7DB84633BF56CDB35078CAD6A861B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609895   (983888) от 03.02.2013
-
-Книжная серия | «Сказки и мифы народов Востока» (27 книг)[1965 - 1994] [FB2](Обновлено 3 февраля 2013)
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Сказки и мифы народов Востока включает в себя сборники сказок одного какого-либо народа Востока или нескольких народов одной страны или целого региона.
- Сказки публикуются в точных переводах, без литературной обработки.Формат: PDF, DjVu, FB2, DOC
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612942   (983840) от 03.02.2013
-
-Майкл Бакли | Сестры Гримм (5 книг) [2010] [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Сказочный переполох---Сестры Гримм — одиннадцатилетняя Сабрина и семилетняя Дафна — остались одни, когда их родители таинственным образом исчезли. Опекунша девочек, странная женщина по имени Рельда Гримм, утверждает, будто она их бабушка, а Сабрина и Дафна приходятся прапрапраправнучками знаменитым братьям Гримм. Бабушка уверяет, что те были вовсе не сказочниками, (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2660FEE8A2BD12E2275F55C7D746FCCA638013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613001   (983731) от 03.02.2013
-
-Подборка книг | Для детей от 3-х до ... (1533-2007) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка книг для чтения детям от 3 до 12 и более лет. Составлена из тех произведений, которые залпом проглатывали их родители (а для некоторых - уже и бабушки и дедушки, бежит время...). По возможности выбирались любимые поколениями переводы и иллюстрации. Чуковского, Крылова, Пушкина, Маршака, Барто и всяких Перо и Гримм нет в списке, потому они должны быть дома рядом с детьми по умолчанию. Если их нет, вам эта сборка не нужна. Это не "книги, обязательные к прочтению", а набор векторов, которые могут (   Читать дальше...   )Жанр: Детская литература.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206A018D480CED642C42AFD81BDED7837E3C097B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355453   (983624) от 26.01.2020
 
 Жорж Санд | Мастера мозаики (2018) [EPUB]
@@ -112,7 +6,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983624.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983599.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983514.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983505.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983293.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -321,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982170.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -347,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982168.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -375,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982082.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -401,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982076.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -427,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982075.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -453,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -479,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982065.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -506,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981723.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -532,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980915.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980833.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -614,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -643,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -669,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -680,6 +574,110 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46AF4DF37D882FD8D0445C3312F02D74132DC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973401   (980293) от 08.01.2016
+
+Ди Тофт | Цикл «Приключения мальчика-волчонка» [3 книги] (2012) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Перед вами серия «Приключения мальчика-волчонка», автором которой является английская писательница Ди Тофт. В книге изложена захватывающая история о трогательной и очень непростой дружбе подростка Нэта Карвера и волвена Вуди — полумальчика-полуволка. Интересно, что прообразом необычного героя-оборотня послужила огромная, красивая и добрая собака, которая живет в (   Читать дальше...   )Жанр: Детская фантастикаПеревод: В. А. ВеберФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5059606990307B1D84B9A81456586C18BDF565A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973226   (980290) от 08.01.2016
+
+Дэмиан Диббен | Хранители истории. Буря начинается (2012) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Как отреагировал бы современный молодой человек, если бы по дороге домой из школы его схватили, затолкали в машину, привезли в непонятное место и рассказали, что его родители потерялись в далеком прошлом? Наверное, по меньшей мере он бы испугался. Но не таков Джейк Джонес, житель современного Лондона. Происходящие с ним странные события — перемещения во времени, (   Читать дальше...   )Жанр: Детская фантастикаПеревод: И. С. СмирноваФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A26A73C36FF9041B758ABC4E0E3292944577DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973294   (980288) от 08.01.2016
+
+Я. Пинясов | Обыкновенные варежки (1982) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DDCD6A44D31F38AD0AEB2E36E92AE73ABB3A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973300   (980252) от 08.01.2016
+
+Гарриет Бичер-Стоу | Хижина дяди Тома (1960) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Известный роман Гарриет Бичер-Стоу, направленный против рабовладения в Америке. Роман оказал значительное влияние на отношение мировой общественности к афроамериканцам и рабству. Считается даже, что роман обострил один из местных конфликтов на почве рабства, что привело к Гражданской войне в США.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAA840CDB8A28D17EF82C5395A1E0BC1B38F29D
 ```
 
 https://mybot314.ru/tekegram_catalog/

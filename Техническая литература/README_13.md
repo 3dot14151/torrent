@@ -1,3 +1,110 @@
+###  Публикация: 899193   (675033) от 18.05.2015
+
+В.Г. Важенин и др. | Аналоговые устройства на операционных усилителях (2014) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Представлен материал, необходимый для изучения операционных усилителей: структура, элементы схемотехники, основные характеристики и параметры. Рассмотрены вопросы построения аналоговых устройств на операционных усилителях с резистивной и комплексной обратной (   Читать дальше...   )Жанр: Электроника, радиоэлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30E51DE996E7E4FF9F12FEA577988717825A6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136295   (674752) от 22.05.2017
+
+В.И. Гуревич | Уязвимости микропроцессорных реле защиты. Проблемы и решения (2016) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В книге подробно рассмотрены проблемы уязвимости микропроцессорных устройств релейной защиты (МУРЗ) к естественным и преднамеренным деструктивным воздействиям, включающим кибернетические и электромагнитные воздействия. Описаны современные технические средства, с помощью которых могут осуществляться преднамеренные дистанционные деструктивные воздействия на МУРЗ.
+  Рассмотрены (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EC40218FCF120EFAEFB8D8CD4C1053AD78CAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136544   (672874) от 23.05.2017
+
+Т.Н.  Васильева | Надежность электрооборудования и систем электроснабжения (2015) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены вопросы надежности электрооборудования и систем электроснабжения, основные термины и определения теории надежности, элементы математических методов планирования, обработки и анализа результатов эксперимента.
+Изложены методы расчета надежности систем электроснабжения, дано технико-экономическое обоснование ее повышения для электрооборудования и систем (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7C7E75A471F4E43E25582C33960EB852AC9765
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136462   (672631) от 23.05.2017
+
+Р.С. Хансен | Фазированные антенные решетки (2012) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+В книге дается всесторонний анализ особенностей проектирования и исследования характеристик фазированных антенных решеток и входящих в них систем. Особое значение придается рассмотрению алгоритмов, пригодных для использования на ПК.
+  Книга предназначена научным работникам и инженерам, занимающимся исследованиями и разработками фазированных антенных решеток, а также (   Читать дальше...   )Жанр: Радиотехника, антенныФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F45C92E57D7A1BF6157BBB954C2E3B61323F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136882   (671025) от 24.05.2017
 
 Ю.И. Таныгин | Справочник электромеханика железнодорожной радиосвязи  2009 (2009) [PDF]
@@ -6,7 +113,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671025.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -61,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670120.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669128.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -141,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -168,7 +275,7 @@ Infineon Technologies | Полупроводниковая электроник�
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667698.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -194,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666714.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666651.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -276,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665426.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -302,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665252.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -328,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665251.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -355,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664671.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -383,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664257.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663821.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662114.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -462,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662113.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -488,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -514,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -540,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659646.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -566,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -577,113 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB7578E1085471C004293E4FD2B922B1700588D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140050   (657708) от 04.06.2017
-
-А.Н. Бережной | Сохранение данных. Теория и практика (2016) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказано о том, что необходимо для превращения вверенной ИТ-инфраструктуры в отказоустойчивую систему. Какие существуют способы защиты информации, какие этапы необходимо пройти при проектировании, как создать Disaster Recovery Plan (план полного восстановления), как создать эффективную систему резервного копирования, как организовать защиту перемещаемых (   Читать дальше...   )Жанр: Базы данныхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8353294C636B98FC9655026198EB95457665BB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343052   (656893) от 29.05.2011
-
-В.В.Конин | Спутниковые системы и технологии [2002] [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс лекций д.т.н. В.В.Конина  подробнейшим образом раскрывает структуру систем спутниковой навигации - GPS (США) и Глонасс (Россия ). Подробно описано все, от небесной механики и систем координат, до структуры сигналов GPS и Глонасс. Основной упор делается на применение навигационных систем в авиации, но оно будет интересно и всем интересующимся. Особенно, если учесть что GPS-устройства становятся все более обычными для рядового пользователя.
- Приводятся лабораторный практикум по вопросам спутниковых радионавигационных систем в виде открытых программных комплексов в среде MatLab. Лабораторный практикум в виде 16 работ с заданиями, примерами и контрольными вопросами охватывает направления формирования сигналов спутниковых навигационных систем GPS и ГЛОНАСС, преобразования координат, моделирование орбит навигационных спутников GPS, ГЛОНАСС, GALILEO, декодирования и расшифровка данных навигационных спутников, решение навигационной задачи расчета позиции приемника пользователя.
-    Для студентов, аспирантов и преподавателей (   Читать дальше...   )Жанр: Навигация, транспорт, связьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53275B0688715882A586478F36F90FE0E290E19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904266   (655305) от 02.06.2015
-
-REXANT | Электротехническое оборудование. Каталог продукции №15 (2015) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каталог широкого спектра электротехнического оборудования от кампании REXANT. Представлены кабеленесущие системы, розетки, компоненты СКС, различные разъемы и переходники, крепежные элементы, инструменты, измерительная аппаратура и многое другое.Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B60F6D4A6C4C8F8F03B47EACE858FCF90F529ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515807   (655267) от 26.06.2012
-
-Макро-Групп | Микросхемы для построения импульсных источников питания [2012] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655267.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной брошюре описана основная концепция микросхем Power Integrations, приведено сравнение характеристик микросхем Power Integrations и широко распространенной микросхемы-контроллера UC3842, разделение по техническим характеристикам всех микросхем Power Integrations. Перечислены микросхемы для построения AC-DC преобразователей малой, средней и большой мощности.
-Также кратко описана технология энергосбережения EcoSmart, встроенные функции микросхем Power Integrations. Приведено сравнение типичных схем на Power Integrations с аналогом на дискретных элементах.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDA3108AA48680E214CF78523BD1DFF769628C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

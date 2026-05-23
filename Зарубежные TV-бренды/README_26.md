@@ -1,3 +1,55 @@
+###  Публикация: 1386589   (793340) от 30.05.2020
+
+BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, серия 1-6 из 6) [PR]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+О животных Африки рассказывают много небылиц. Сериал – история, в которой происходят реальные события. Наперекор трудностям матери растят потомство. Настойчивые соперники разбивают семьи. Детеныши пытаются отвоевать свое положение в семье. Все проверяется на прочность силами стихий, сменой сезонов и друг другом. Это история жизни в регионе под названием Серенгети.Производство: Великобритания, BBC ScotlandЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Джон Даунер, Саймон ФуллерПеревод: Одноголосый профессиональный (Студия СВ-Дубль)Субтитры: Русские, Английские (SRT)Продолжительность: 6 x ~ 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03209B49BB742EBD8FF4C033B875921C356086D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385802   (793229) от 30.05.2020
+
+DV. Чудеса механики / Wonders of the Clockwork World / Mechanical Marvels: Clockwork Dreams (2013) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Da Vinci Learning
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете удивительную историю автоматов - механических чудес доиндустриальной эпохи. Прекрасные, но пугающие - эти устройства кажутся одновременно и живыми, и механическими. Двигаясь, они словно оживают.Производство: Великобритания /  Furnace, British Broadcasting Corporation (BBC)Жанр: ДокументальныйРежиссер: Nic StaceyПеревод: Одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597DF8FA207226B95DB9019AE6D13A54E9CDFCD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 649435   (793159) от 30.05.2020
 
 PBS. Жизнь колибри. Волшебство в воздухе / Hummingbirds. Magic in the air (2009) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@ PBS. Жизнь колибри. Волшебство в воздухе / Humming
 >>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793159.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +110,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792749.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792713.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -110,7 +162,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792677.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792668.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -214,7 +266,7 @@ History Channel: Вселенная / The Universe (2007-2012) BDRip [H.264/720p
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792654.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792602.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -266,7 +318,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792431.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -292,7 +344,7 @@ Discovery. Научные приколы / SciJinks (2018) WEB-DL [H.264/1080p] 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -318,7 +370,7 @@ Discovery. Как построить... что угодно / How to Build... Ev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792352.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -344,7 +396,7 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792317.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792177.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -396,7 +448,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792122.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -422,7 +474,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791776.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -448,7 +500,7 @@ DV: Улыбка удачи / The Joy Of Chance (2016) IPTVRip [H.264]
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791773.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -474,7 +526,7 @@ Animal Planet: Спасение животных: ураган Харви / Surv
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791685.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -526,7 +578,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -578,7 +630,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791201.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -604,7 +656,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791194.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -615,59 +667,6 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F9DEC1FDC60BDD483D1230A6F97886E0D316832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387367   (791193) от 02.06.2020
-
-NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.
-И евразийские рыси в Европе и длиннохвостые кошки в Индии имеют одну общую особенность: они представляют собой смертельно опасные машины для убийства. Это настоящие чемпионы в области охоты.Производство: Испания, Nat Geo WildЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DA2DB1D4AB39BCCB6818A00B127B5B66114A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387655   (791190) от 02.06.2020
-
-NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WEBRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.Медведи считаются одними из самых грозных хищников на земле. В период смены сезонов в организме медведя происходят глубокие изменения, позволяющие им выжить в самых суровых условиях.Производство: Испания, Nat Geo WildЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C33CDE837A6710ED68C5B62D6BD75C1DE292B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

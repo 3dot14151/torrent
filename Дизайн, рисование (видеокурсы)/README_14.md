@@ -1,3 +1,82 @@
+###  Публикация: 1474868   (1012613) от 04.06.2021
+
+Alan Ayoubi | Мега-курс Adobe Illustrator - от новичка до продвинутого иллюстратора / Adobe Illustrator Mega Course - From Beginner to Advanced Illustrator  (2021) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Этот курс Adobe Illustrator разработан, чтобы шаг за шагом вводить абсолютных новичков в продвинутые уровни дизайна и иллюстрации.Производство: SkillshareЖанр: ИллюстрацияЯзык озвучки: АнглийскийПродолжительность: 18:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C4870AFFC7AC6745744FC4C75BA8B697A16E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475002   (1012491) от 05.06.2021
+
+Роман Круглов | Рисунок цветными карандашами ПРОдолжение (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Под наблюдением преподавателя вы будете рисовать многопредметные натюрморты и пейзажи с несколькими пространственными планами. Всего на курсе вы создадите 9 работ! Вы научитесь выделять главное, расставлять акценты и управлять вниманием зрителя, работать с тоном и передавать разные фактуры. Поймете, как максимально использовать возможности цветных карандашей и увидите, (   Читать дальше...   )Производство: Hudozhnik OnlineЖанр: Создание видеоПродолжительность: 21:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363728D4E3F114FB2ABC1CBBCB541C7515F28F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475917   (1011959) от 09.06.2021
+
+Justin Marshall | Quick Start to Modeling in Maya. Volume 4 PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В четвертом томе этого курса мы будем продолжать, и отталкиваться от знаний, полученных в предыдущих.
+Начнем с выкладывания корпуса нашего дрона. Используем полигональные инструменты для создания панелей и механических деталей. Будем работать методично, добавляя структурные кусочки, которые должны находится на дроне и делают его визуально интересным. Комбинируем (   Читать дальше...   )Производство: Digital tutorsЖанр: 3D графикаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954CE5DA414636443E9467D1AB204274181EB355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476017   (1011943) от 09.06.2021
 
 Gumroad, Olav3D Tutorials | Упрощённая разработка аддонов для Blender 2.90 / Blender 2.90 Addon Development Simplified (2020) PCRec [EN]
@@ -6,7 +85,7 @@ Gumroad, Olav3D Tutorials | Упрощённая разработка аддон
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011943.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +111,7 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 5 PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011922.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -59,7 +138,7 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011554.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011542.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -112,7 +191,7 @@ Jake Parker | Light and Shadow (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010137.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -138,7 +217,7 @@ David Malan | Drawing a Portrait (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010117.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -164,7 +243,7 @@ Jake Parker, Will Terry, Ty Carter | Painting Color and Light (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010110.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +269,7 @@ James Paick | Environment Design for Games and Film Vol 1-2 (2014) PCRec [En, Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008502.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +321,7 @@ XYZ School, Олег Болдырев | Курс Houdini FX (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008362.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -271,7 +350,7 @@ Unrealskills, Даниил Лихоманов | Unreal Engine 4 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008214.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -298,7 +377,7 @@ SVS, Jake Parker | How To Draw Everything version 2 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008088.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -325,7 +404,7 @@ Gumroad, Tom Newbury | Look Dev Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007863.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -351,7 +430,7 @@ Gumroad, Tom Newbury | Xgen Hair for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007849.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -377,7 +456,7 @@ Gumroad, Tom Newbury | Texturing Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007841.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -403,7 +482,7 @@ VK, Александр Васин | ZBrush. Проекты Александра 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007830.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -431,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007543.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +537,7 @@ SVS, Jake Parker, Will Terry | Working With Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007413.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -485,7 +564,7 @@ SVS, Will Terry | Painting Texture and Details (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007381.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -511,7 +590,7 @@ Masterclass, Judd Apatow | Judd Apatow teaches comedy (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -538,7 +617,7 @@ Masterclass, Dan Brown | Dan Brown Teaches Writing Thrillers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007258.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -565,7 +644,7 @@ The Gnomon Workshop, Aaron Limonick | Environmental Design and Illustration (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -591,7 +670,7 @@ Marco Bucci | Understanding and Painting the Head (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -603,85 +682,6 @@ Marco Bucci | Understanding and Painting the Head (2018) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE77998151167999567A086BB571994383779652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482748   (1007241) от 10.07.2021
-
-Proko, Stan Prokopenko | Anatomy of the Human Body: Arms (2018) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007241.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе рисование фигуры, вы изучили много основных концепций, но ваше обучение не завершено, если вы хотите сделать так чтобы ваши рисунки выглядели не просто хорошо, а мастерски. Без понимания анатомии ваши рисунки всегда будут выглядеть так, как будто в них что-то не правильно, в них не будет того уровня детализации который можно увидеть в работе профессионалов. (   Читать дальше...   )Производство: ProkoЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309CA5B5A6F74310CC4D2A69902FCE3CB6A74819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482749   (1007240) от 10.07.2021
-
-Proko | Anatomy of the Human Body: Skeleton (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курсе рисование фигуры, вы изучили много основных концепций, но ваше обучение не завершено, если вы хотите сделать так чтобы ваши рисунки выглядели не просто хорошо, а мастерски. Без понимания анатомии ваши рисунки всегда будут выглядеть так, как будто в них что-то не правильно, в них не будет того уровня детализации который можно увидеть в работе профессионалов. (   Читать дальше...   )Жанр: Создание видеоПродолжительность: 03:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DEA63BF0F286D464C23FFE270A9BE93A345788D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483034   (1007146) от 11.07.2021
-
-CG-Cookie, Sander Mos | Landscapes Course (2016) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это полный курс созданию Окружений от Сандера Моска! Он шаг за шагом проведет вас по пути создания четырех ландшафтов, каждый из которых будет отличаться своим внешним видом и дизайном.
-Этот курс отличное подспорье для начинающих и для тех, кто практикует создание окружений/ландшафтов уже некоторое время. Сандер не только рассказывает, но и показывает процесс создания (   Читать дальше...   )Производство: CG-CookieЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB216DBA9330ADEFCD2EA64D0592664A92661129
 ```
 
 https://mybot314.ru/tekegram_catalog/

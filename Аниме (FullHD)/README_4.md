@@ -1,3 +1,55 @@
+###  Публикация: 1095801   (1020347) от 18.04.2021
+
+Морская школа | High School Fleet | Haifuri [2016, TV, 12 эп. + 2 OVA + Movie] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в нашем светлом будущем, где из-за движения литосферных плит и прочих тектонических процессов под водой оказались многие города и даже страны. Чтобы защищать новые прибрежные поселения и охранять моря, было сформировано специальное подразделение, получившее название «Лазурные Русалки» и состоящее почему-то исключительно из девушек. Означенных (   Читать дальше...   )Производство: студия Production IMSЖанр: приключенияРежиссер: Нобута ЮПеревод: Timecraft (TV); SovetRomantica (OVA); Unknown (Movie)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 2 OVA по 25 мин.; 105 мин. - фильм
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9A5BA268B06868DC57DA6DF270A075E724BF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432851   (1019898) от 21.04.2021
+
+Mahouka Koukou no Rettousei: Raihousha Hen | The Irregular at Magic High School: Visitor Arc | Непутевый ученик в школе магии [ТВ-2] [2020, TV, 13] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+31 октября 2095 года. Из-за воздействия неизвестного стратегического заклинания с лица земли исчез военный город на южном окончании Корейского полуострова и целый флот. Позже этот день назовут «Раскалённым Хэллоуином», а весь мир вздрогнет, осознав, что на свет появился ещё один маг стратегического назначения. Тут и магическое подразделение Североамериканских Соединённых (   Читать дальше...   )Производство: Студия 8bit / エイトビットЖанр: приключенияРежиссер: Ёсида РисакоПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C540FD292BD94636CC5F576DE5517E22008CCB64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465236   (1019309) от 25.04.2021
 
 Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2020, TV, 11] BDRip 1080 10bit raw
@@ -6,7 +58,7 @@ Taisou Zamurai | The Gymnastics Samurai | Самурай гимнастики [2
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019309.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ Planetarian: Snow Globe | Планетарианка: Снежный шар [202
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +110,7 @@ Assault Lily: Bouquet | Букет штурмовых лилий [2020, TV, 12 �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018374.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +136,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | DanMachi III | М�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +162,7 @@ Radiant (2019) | Радиан [ТВ-2] [2019, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018087.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -136,7 +188,7 @@ Radiant | Радиан [ТВ-1] [2018, TV, 21 из 21] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018077.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -162,7 +214,7 @@ Gekijouban Oushitsu Kyoushi Heine | The Royal Tutor Movie | Королевски
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018052.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -190,7 +242,7 @@ Ultraman | Ультрамен [2019, Web, 13 из 13] WEBRip 1080p HEVC 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018044.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -216,7 +268,7 @@ Code:Realize Sousei no Himegimi | Code:Realize - Guardian of Rebirth | Код: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018040.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -242,7 +294,7 @@ Great Pretender | Великий притворщик [2020, Web, 23 из 23] BD
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017895.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -268,7 +320,7 @@ Tenkuu Shinpan | High-Rise Invasion | Небесное вторжение [2021,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017860.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -294,7 +346,7 @@ Yasuke | Ясукэ [2021, ONA, 6 из 6] WEB-DL 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017365.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -320,7 +372,7 @@ Kono Minikuku mo Utsukushii Sekai | This Ugly yet Beautiful World | Этот у�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017357.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -346,7 +398,7 @@ Saiyuuki Gaiden | Саюки: Истоки [2011, OVA, 3 + SP] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017266.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -374,7 +426,7 @@ Boku no Hero Academia: Ikinokore! Kesshi no Survival Kunren | Моя герой�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -400,7 +452,7 @@ Boku no Hero Academia (2017) | My Hero Academia Season 2 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016893.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -426,7 +478,7 @@ Boku no Hero Academia (2019) | My Hero Academia Season 4 | Моя геройск
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016891.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -452,7 +504,7 @@ Ai Yori Aoshi | Bluer Than Indigo | Все оттенки синевы | Тем�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015619.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -478,7 +530,7 @@ Ai Yori Aoshi ~Enishi~ | Bluer Than Indigo ~Fate~ | Все оттенки син
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015611.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -504,7 +556,7 @@ Mushikago no Cagaster | Cagaster of an Insect Cage | Убийца насеком
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014504.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -530,7 +582,7 @@ Princess Connect! Re:Dive / PriConne / Связь принцесс! Новое �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -559,7 +611,7 @@ Natsume Yuujinchou Go | Тетрадь дружбы Нацумэ (ТВ-5) [2016,
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013707.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -585,7 +637,7 @@ Gekijouban Natsume Yuujinchou: Utsusemi ni Musubu | Тетрадь дружбы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013695.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -611,7 +663,7 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013657.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -622,58 +674,6 @@ Gochuumon wa Usagi Desuka? Bloom | Is the Order a Rabbit? Bloom | Кролика
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E702671AFC909502A3ECDA24BF1D64BF7C148527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463698   (1012705) от 04.06.2021
-
-Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находясь в незапланированной поездке, Рико переносится в альтернативную Японию, где неведомые металлические существа — Мимезис — угрожают миру. И только девушки, обладающие специальным вооружением, могут бороться с этой опасностью. Вместе с другими четырьмя девушками Рико вынуждена бороться с врагами, чтобы спасти человечество и вернуться домой.Производство: студия Studio A-CATЖанр: приключенияРежиссер: Мотонага КэйтароПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51ABE03404C7385EA8CFC9DC71A035B3F2A45EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458666   (1012600) от 04.06.2021
-
-Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Новый старт [2021, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012600.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья»-авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: студия TNK / ティー・エヌ・ケーЖанр: тёмное фэнтези, драма, эротикаРежиссер: Асаока ТакуяПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80329C34CE2521007F1F75C0532E8EFF36375CC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

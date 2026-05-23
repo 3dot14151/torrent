@@ -1,3 +1,107 @@
+###  Публикация: 1780916   (27025) от 20.02.2025
+
+Amnesia: The Bunker (2023) [Ru/Multi] (1.31) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Amnesia: The Bunker — хоррор от 1-го лица, действие которого происходит в заброшенном бункере времён 1-й мировой войны. Столкнитесь с угнетающими страхами, преследующими вас во тьме. Ищите и используйте доступные инструменты и оружие. Любой ценой не дайте погаснуть свету и выберитесь живым. Погрузитесь в неподдельно гнетущую атмосферу ужаса.Тип издания: RepackРазработчик: Frictional GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863D8032B28B0094062E2E194714D2EF668567FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780913   (27014) от 20.02.2025
+
+Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.3) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Не забывай… Есть вещи, о которых следует помнить… Тень идет по моему следу… Я должен торопиться. Меня зовут Даниэль, и я живу в Лондоне, в… в… Мэйфере… Что я наделал? Это безумие. Не забывай, не забывай. Я должен его остановить. Соберись! Меня зовут… зовут… Я Даниэль! Последние оставшиеся воспоминания вот-вот растворятся в темноте. Ваш разум в смятении. Вы обязаны (   Читать дальше...   )Тип издания: RepackРазработчик: Frictional GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9569028EAE9CD97C16FFB1CE67E176BDE31FAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780813   (27004) от 20.02.2025
+
+Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Действие игры разворачивается в заброшенном спортзале по вольной борьбе, где вы вынуждены принять роль ночного сторожа. В последние часы жизни вы оказываетесь в этом месте снова, но уже в другой реальности. Вам предстоит продержаться здесь семь ночей, чтобы раскрыть тайны этого забытого места. События этой игры дополняют основную историю Watchman.Тип издания: RepackРазработчик: Black Monolith GamesЖанр: ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D4C222C1055A76CD72BAB505A2F354FBC86D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780914   (26974) от 20.02.2025
+
+Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/001/" />
+</div>
+
+
+###  Подробнее
+
+Мир - это машина! Машина для свиней, предназначенная лишь для их убоя. На дворе 1899 год. Богатый промышленник Освальд Мандус просыпается в своей кровати в лихорадочном бреду, его преследуют кошмары о темной, дьявольской машине. После жуткой поездки в Мексику его терзают видения некой индустриальной утопии, угрызения совести и тропическая лихорадка, и он попадает (   Читать дальше...   )Тип издания: RepackРазработчик: The Chinese RoomЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF32DA679921CE7925A8746078A700FDACBB10CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771958   (26838) от 22.02.2025
 
 Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
@@ -6,7 +110,7 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26838.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -32,7 +136,7 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Slender Threads (2025) [Ru/Multi] (1.0.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26816.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Geminism (2025) [Multi] (1.0.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26811.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -110,7 +214,7 @@ A Game About Digging A Hole (2025) [Ru/Multi] (build 17291810) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26712.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -162,7 +266,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -188,7 +292,7 @@ Cabernet (2025) [Multi] (1.0.8) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26660.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Amenti (2025) [Ru/En] (Build 17306708) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26644.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -240,7 +344,7 @@ NORCO (2022) [Ru/Multi] (1.5.0) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26642.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ The Shell Part I: Inferno (2023) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26632.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Shell Part II: Purgatorio (2024) [Multi] (1.0.1/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26620.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ The Shell Part III: Paradiso (2025) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26590.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -370,7 +474,7 @@ BrokenLore: LOW (2025) [Ru/Multi] (build 17449000) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26587.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Tribute (2025) [Ru/Multi] (1.4.3) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Monospaced Lovers (2024) [Ru/Multi] (1.0.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -448,7 +552,7 @@ The Strange City (2024) [Multi] (1.0.6) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26229.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17385646) Repack Decep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ My Hotel (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25820.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25595.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25513.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/001/" />
 </div>
 
 
@@ -563,110 +667,6 @@ Phoenix Springs (2024) [En] (1.1.7) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F679D3AFF6DCC34697738513C94A7599D0D847FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120918   (25499) от 07.03.2025
-
-The Dark Eye: Chains of Satinav (2012) [Ru/Multi] (3.0.351.5517) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25499.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Андергасте, жители которого считаются исключительно суеверными, король Эффердан ожидает официального визита высокопоставленных чиновников. Столетиями королевство не ладило с соседней Нострией, но теперь, похоже, прочный мир не за горами. Однако королю не дает покоя нашествие ворон, которые ведут себя необычайно агрессивно и даже нападают на людей.Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Приключение, Квест, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62690C401E886146068CD86AE4436B198EBA5E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713808   (25492) от 07.03.2025
-
-Peaks of Yore (2023) [En] (1.9.7a/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Peaks of Yore - захватывающая экшен-адвенчура, погружающая в сложный мир альпинизма. Действие разворачивается в 1887 году, в то время, когда альпинизм только зарождался и увлекался, и она предлагает уникальный опыт всем, кто отправляется в виртуальное восхождение. Игроки исследуют захватывающие дух ландшафты Великих Галов - региона, напоминающего величественные Альпы. (   Читать дальше...   )Тип издания: LicenseРазработчик: Anders Grube JensenЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18176D76BCA9EC77C2C66368DCEA7CC6BE959FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783831   (25481) от 07.03.2025
-
-Lyndaria Lust Adventure (2024) [Ru/Multi] (1.2.b/dlc) Repack Let'sРlay [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyndaria - нелинейная эротическая визуальная новелла, действие которой разворачивается на затерянном острове, населенном племенами фурри. Наивную, но отважную героиню - Маю ждут захватывающие приключeния, пикантные и опасные! Таинственный и неизведанный остров в Атлантическом океане. Кусок земли, который не нашли ни корабли, ни вездесущие спутники. Но один человек (   Читать дальше...   )Тип издания: RepackРазработчик: Lustration TeamЖанр: Приключенческие игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CD104A66420E656BE71C14AB3224F7353E199B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722863   (25473) от 07.03.2025
-
-Liminal Border Part I+II+III (2023-2025) [Multi] (1.0.1/1.0.2/1.0.2/dlc) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25473.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий второй части "Рейв-бизнес" Ицуки и его банды близок к тому, чтобы сдвинуться с мертвой точки. Ицуки смотрит на Мерил Хэтэуэй, молодую девушку, которую часто видят сопровождающей Котоко, как на противовес жестокости Умон-кай, и ищет способ уничтожить их раз и навсегда.Тип издания: LicenseРазработчик: Purple SoftwareЖанр: Приключенческие игры, Казуальные игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (традиционный, упрощенный)Язык интерфейса: Английский, Китайский (традиционный, упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B5CA2AB6E57202B76C8EB70C588C00EF623AF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

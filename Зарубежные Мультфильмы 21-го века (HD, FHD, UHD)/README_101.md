@@ -1,3 +1,81 @@
+###  Публикация: 1623561   (200389) от 02.04.2023
+
+Лакадейзи / Lackadaisy (2023) WEBRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+На берегу реки Миссисипи, в разгар Национального сухого закона, незадачливый джазовый музыкант, неудавшийся новобранец полиции и болтливый хлопец берут на себя мантию гангстера, пытаясь сохранить свой борющийся за выживание подпольный бизнес. Оказавшись в затруднительном положении, когда на них нападает вооруженная до зубов конкурирующая банда, это история их безумного (   Читать дальше...   )Производство: СШАЖанр: короткометражный, фэнтези, криминалРежиссер: Tracy Butler, Fable SiegelАктеры: Майкл Ковач, Belsheber Rusape, Lisa Reimold, Бенни Лэтэм, Малкольм Рэй, SungWon Cho, Valentine Stokes, Ashe Wagner, Bradley Gareth, Jason MarnochaПеревод: ДублированныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7CE7E077DDFB2EE7FE3D0FA5AEF5A0167240C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624623   (200320) от 06.04.2023
+
+Сверхновый Супермен / All-Star Superman (2011) BDRip [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Лекс Лютор приговорен к казни. Но злодей успел взломать генетический код Супермена и подвергнуть Человека из Стали смертельной дозой солнечной радиации. Супермен обречен. В оставшиеся дни он решает открыть Лоис Лейн свое истинное лицо и противостоять последним козням астрономического масштаба. Погибнет ли Супермен или возродится подобно сверхновой звезде?Производство: США / Warner Bros. AnimationЖанр: мультфильм, фэнтезиРежиссер: Сэм ЛьюАктеры: Кристина Хендрикс, мэттью, Грей Габлер, Линда Карделлини, Энтони Лапалья, Джеймс Дентон, Эдвард Эснер, Алексис Денисоф, Арнольд Вослоу, Фрэнсис Конрой, Джон Ди МаджиоПеревод: Многоголосый профессиональный (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D9EB018D801026E1BDB0A32BEF6C3CF385A7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624610   (200229) от 06.04.2023
+
+Бэтмен: Долгий Хэллоуин / Batman: The Long Halloween (2022) BDRip [H.264/1080p] [Deluxe Edition] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Жестокие серийные убийства в праздничные дни в Готэм-сити заставляют Величайшего детектива в мире действовать, противодействуя как организованной преступности, так и объединенному фронту классических суперзлодеев DC, пытаясь остановить таинственного убийцу.Производство: США, DC Entertainment, Warner Bros. Animation, Warner Bros. PicturesЖанр: мультфильм, боевик, криминалРежиссер: Крис ПалмерАктеры: Лайла Берзиньш, Фрэнсис Каллир, Зак Каллисон, Грег Чун, Робин Аткин Даунс, Нил Дункан, Гари Лерой Грэй, Джули Натансон, Джим Пирри, Фред ТаташиорПеревод: Многоголосый профессиональный (Flarrow Films, Jaskier, HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 02:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A456F2B6FCB6CE574813E02F077CAA535E0A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626874   (199792) от 16.04.2023
 
 Далеко на Север / Tout en haut du monde / Long Way North (2015) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199765.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199539.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199455.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199427.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199218.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199217.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199152.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_198916.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198690.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198377.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198306.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198297.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198066.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197934.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197883.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197865.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197855.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/003/" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_197649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/004/" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BBA968741396CBBDA1D488EA10F72EAC7B2D17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638281   (197271) от 08.06.2023
-
-Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-водопроводчики Марио и Луиджи открывают портал в подземный город, из которого должны вызволить пленённую принцессу Пич и сразиться с заклятым врагом Боузером.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: мультфильм, фэнтези, приключения, комедияРежиссер: Аарон Хорват, Михаэль ЕленикПеревод: дублированный (HotVoice 41)Язык озвучки: русский, английскийСубтитры: русские (forced, full), украинские (forced, full), английскиеПродолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78827FD0FAFA14579305B94FA9E426D6570B6556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640267   (196963) от 17.06.2023
-
-Новые боги: Ян Цзянь / Xin shen bang: Yang Jian / New Gods: Yang Jian (2022) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя тринадцать лет после того, как Ян Цзянь (известный некоторым как Эрлан) заточил свою сестру под горой, некогда могущественный бог теперь перебивается как нищий охотник за головами. Когда загадочная женщина нанимает его для новой работы, Ян Цзянь вскоре обнаруживает, что гоняется за знакомой фигурой. Он должен остановить своего давно потерянного племянника, (   Читать дальше...   )Производство: Китай / Bilibili, Light Chaser Animation Studios, Zhejiang Dongyang Xiaoyuzhou Movie & MediaЖанр: мультфильм, фэнтези, боевикРежиссер: Чжао ЦзиАктеры: Ван Кай, Ли Ланьлин, Цзи Гуаньлинь, Ли Лихун, Ян Тяньсян, Лю Сяоюй, Чжао И, Вэнь Цзинъюань, Тан Шуйюй, Син ЧаоПеревод: Дублированный (CPI Films)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBEC64406E9095A5E8E5FDC2151EF6AB1FFAB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639591   (196953) от 16.06.2023
-
-Братья Супер Марио в кино / The Super Mario Bros. Movie (2023) BDRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья-водопроводчики Марио и Луиджи открывают портал в подземный город, из которого должны вызволить пленённую принцессу Пич и сразиться с заклятым врагом Боузером.Производство: США, Япония / Universal Pictures, Nintendo Co. Ltd., Illumination EntertainmentЖанр: мультфильм, фэнтези, приключения, комедияРежиссер: Аарон Хорват, Михаэль Еленик, Pierre LeducАктеры: Крис Пратт, Чарли Дэй, Аня Тейлор-Джой, Джек Блэк, Кигэн-Майкл Ки, Сет Роген, Фред Армисен, Себастьян Манискалко, Кевин Майкл Ричардсон, Хари ПэйтонПеревод: Дублированный (Red Head Sound, HotVoice 41), многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DA7B11DE6CF674F1B0A66068A3DE4D94BDE0F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 553267   (443598) от 28.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 87 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+01. Оскар Строк - Черные глаза
+02. G.Marradi - Romantico
+03. The Romantic Sax - End Of The Night
+04. Antonio De Lucena - My Sunshine
+05. Mario Battaini - Le Sirene Del Ballo
+06. Dana Dragomir - Skallgang
+07. Space - On The Air
+08. В.Зинчук - Колыбельная для Антуанетты
+09. VA - Instrumental Theme
+10. А.Зацепин - Темы из кинофильмов VIII(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F2F742B1ADD3EDA7E77F728E0CF7D09272E1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553269   (443534) от 28.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 кб/с]<Instrumental>
@@ -6,7 +41,7 @@ VA - Инструментальная музыка (2012) vol. № 88 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443534.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -41,7 +76,7 @@ VA - Calming Piano Music The Best Relaxing Instrumental Songs Easy Listening Mel
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440231.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -70,7 +105,7 @@ VA - Инструментальная музыка (2012) vol. № 89 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436310.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -105,7 +140,7 @@ VA - Инструментальная музыка (2012) vol. № 93 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433656.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -140,7 +175,7 @@ VA - The World of Enigmatic Melody (2017) [MP3|256-320 Kbps] <Enigmatic, New Age
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -169,7 +204,7 @@ VA - New Age Style - Enigmatic 31 (2020) [MP3|320 Kbps] <Electronic, New age, En
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -198,7 +233,7 @@ VA - Инструментальная музыка (2012) vol. № 95 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431351.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -233,7 +268,7 @@ VA - Инструментальная музыка (2012) vol. № 96 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +303,7 @@ VA - Инструментальная музыка (2012) vol. № 97 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431149.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -303,7 +338,7 @@ VA - Инструментальная музыка (2012) vol. № 98 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429279.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -338,7 +373,7 @@ VA - Инструментальная музыка (2012) vol. № 99 [MP3|320 �
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429033.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -373,7 +408,7 @@ VA - Инструментальная музыка (2012) vol. № 101 [MP3|320 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428143.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -408,7 +443,7 @@ VA - Relax (2022) [MP3|320 Kbps] <Easy Listening, Neo Soul, Vocal, Ballad>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425401.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -436,7 +471,7 @@ VA - Guitar Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417973.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -465,7 +500,7 @@ VA - Relaxing Piano Nights (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417965.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -494,7 +529,7 @@ VA - Instrumental Chill Out Relaxing Piano Bar Music Romantic Dinner Party Cool 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417868.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -523,7 +558,7 @@ Enigma - Great Artists of My Heart Vol. 09 (2020) [MP3|320 кб/с]<New Age>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -552,7 +587,7 @@ VA - The World of Enigmatic Melody vol. 2 (2017) [MP3|320 Kbps] <Enigmatic, New 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412464.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +616,7 @@ VA - Piano Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Instrumental>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411393.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -610,7 +645,7 @@ VA - Spa Music (2022) CD, Compilation [MP3|320 Kbps] <Meditation, Relaxing, Spa 
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410312.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -639,7 +674,7 @@ VA - Rhythm Balance & Harmony (2007) [MP3|320 кб/с]<Instrumental, Ethnic, Nat
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -674,7 +709,7 @@ VA - This Merry Planet: Instrumental Disco Hits (2012) [MP3|320 кб/с]<Instrum
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404702.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -709,7 +744,7 @@ VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401474.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -738,7 +773,7 @@ VA - New Age Music For Meditation (2017) [MP3|256-320 Kbps] <New Age, Relax, Dow
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -767,7 +802,7 @@ VA - Романтические мелодии (2012) [MP3|192-256 кб/с]<Inst
 >>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393687.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -787,41 +822,6 @@ VA - Романтические мелодии (2012) [MP3|192-256 кб/с]<Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E005D01625EE73B82ADB845FD8BB4E9B69AD3944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570881   (389288) от 06.11.2012
-
-VA - Mystic (2002) [MP3|320 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Enigma - Turn Around (singles edit)
-03. ERA - Dont'U (singles version)
-04. Yogeshwara - Dansing Circle
-05. Oliver Shanti - Water-Four Circles Of Life
-06. Karunesh - Call Of The Tribes
-07. Lesiem - Lesiem
-08. Beautiful World - Beautiful World
-09. Quinn - Siochain Agus Jonannas
-10. Orbis Mundi - Talking Violin(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E201A33D9D5BB4CEC034EEDDE4BFC2B38A3E80FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

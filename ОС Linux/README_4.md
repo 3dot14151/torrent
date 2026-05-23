@@ -1,3 +1,113 @@
+###  Публикация: 651019   (841481) от 01.05.2013
+
+JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Вышел корректирующий релиз дистрибутива JonDo  - 0.9.42
+
+Jondo Live-CD / DVD предлагает безопасные, предварительно настроенные среды для анонимного серфинга в сети и многие другие инструменты сохранения анонимности. Дистрибутив основан на Debian GNU / Linux. Онлайн-система содержит прокси-клиенты для JonDonym, Tor маршрутизатор Onion и ремейлер Mixmaster. JonDoBrowser предварительно настроен для анонимного веб-серфинга, Thunderbird с Enigmail для электронной почты, Pidgin для анонимного обмена мгновенными сообщениями и чатов. Медиа-плеер сохраняет  анонимность метаданных.  Присутствует Toolkit для очистки документов и изображений и многие другие приложения содержащиеся на CD/ DVD частью Live-CD.
+
+Версия DVD содержит дополнительное программное обеспечение: I2P и GNUnet, LibreOffice.org, GIMP, Bluegriffon для разработки веб-сайта, Calibre для электронных книг и некоторые другие инструменты.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650938   (841466) от 01.05.2013
+
+Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Sabayon Linux - дистрибутив Linux, созданный как форк дистрибутива Gentoo  итальянским разработчиком Fabio Erculiani и командой разработчиков Sabayon.
+
+Сегодня Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 13.04: ядро Linux kernel 3.8.8 с поддержкой BFQ iosched и ZFS, GNOME 3.6.3, KDE 4.10.2, MATE 1.6, Xfce 4.10, LibreOffice 4.0. Включена полная поддержка EFI/UEFI и поддержка UEFI SecureBoot, существенно улучшена поддержка NVIDIA Optimus.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003749   (841386) от 04.04.2016
+
+Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B8631CB2F9BAA3C73CF94AF1D282F1356E4263
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004050   (839988) от 05.04.2016
+
+Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+На зеркалах, с опозданием на сутки по отношению к объявленной дате основного релиза, стали размещать пятое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11384725AC4287BB2B67D2B64EC43945BFE79C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004038   (839538) от 05.04.2016
 
 Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
@@ -6,7 +116,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839538.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +142,7 @@ Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +170,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836433.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +196,7 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836327.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +222,7 @@ Red Hat Enterprise Linux 8.2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834399.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +248,7 @@ Debian GNU/Linux 7.0.0 Live [i386] (2xDVD, 4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -166,7 +276,7 @@ Debian GNU/Linux 7.0.0 [amd64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832585.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -196,7 +306,7 @@ Debian GNU/Linux 7.0.0 [i386] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -226,7 +336,7 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -256,7 +366,7 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -282,7 +392,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [i386] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830608.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -312,7 +422,7 @@ Q4OS 1.4.9 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -340,7 +450,7 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [amd64] (7xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828598.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -370,7 +480,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828029.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -396,7 +506,7 @@ Manjaro Linux 0.8.5.2 (Arch + XFCE) [i686, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827287.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -424,7 +534,7 @@ Manjaro Linux 0.8.5.2 (Arch + openbox, net) [i686, x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827280.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -452,7 +562,7 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826518.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -478,7 +588,7 @@ Debian Edu - Skolelinux 11.1.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -504,7 +614,7 @@ Parrot Security OS 4.9 + netinstall x64-x32 [Хакинг, аудит, безо�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825928.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -530,7 +640,7 @@ CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825078.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -558,7 +668,7 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824630.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -584,7 +694,7 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820510.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -597,123 +707,6 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FCE52BDD819CF25BC5F341A6E79426C53463BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382265   (820505) от 10.05.2020
-
-Debian GNU/Linux 10.4.0 + nonfree Buster [amd64] 4xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сообщает OpenNET: опубликовано четвёртое корректирующее обновление дистрибутива Debian 10, в которое включены накопившиеся обновления пакетов и устранены недоработки в инсталляторе. Выпуск включает 108 обновлений с устранением проблем со стабильностью и 53 обновления с устранением уязвимостей.
-
-Из изменений в Debian 10.4 можно отметить обновление до свежих стабильных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E3D38783FFF48A024F7E7EC9911F995D449C2D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656136   (817961) от 14.05.2013
-
-Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [i686] (3xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пару недель после предыдущего релиза вышел баг-фикс релиз - Manjaro Linux 0.8.5.2 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутив включено окружения рабочего стола openbox. В дистрибутив включены: MATE 1.6, Cinnamon 1.7 и KDE 4.10.2.  Это community edition дистрибутива
-
-Включены некоторые новые пакеты, ядро версии 3.8.5-1; systemd 198; X.Org Server 1.14.0; включена поддержка пропреитарных драйверов для AMD и NVIDIA. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
-
-Присутствует графический инсталлятор, что отличает дистрибутив от предыдущей версии 0.8.4
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656140   (815577) от 15.05.2013
-
-Manjaro Linux 0.8.5.2 (Arch + kde, mate, cinnamon) [x86-64] (3xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя пару недель после предыдущего релиза вышел баг-фикс релиз - Manjaro Linux 0.8.5.2 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутив включено окружения рабочего стола openbox. В дистрибутив включены: MATE 1.6, Cinnamon 1.7 и KDE 4.10.2.  Это community edition дистрибутива
-
-Включены некоторые новые пакеты, ядро версии 3.8.5-1; systemd 198; X.Org Server 1.14.0; включена поддержка пропреитарных драйверов для AMD и NVIDIA. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
-
-Присутствует графический инсталлятор, что отличает дистрибутив от предыдущей версии 0.8.4
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080496   (814431) от 24.03.2017
-
-BackBox Linux 4.7 [Анализ безопасности, хакинг] [i386, amd64] 2xDVD
-
->>След.
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков BackBox Linux представила новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем. Дистрибутив базируется на Ubuntu LTS.
-
-Дистрибутив базируется на Ubuntu - ядро Linix kernel 4.4, и включает в себя инсталлятор LVM + disk encryption.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865460939C59280EC54E64EC7E7747867575587F
 ```
 
 https://mybot314.ru/tekegram_catalog/

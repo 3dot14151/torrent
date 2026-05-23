@@ -1,3 +1,109 @@
+###  Публикация: 1605945   (200821) от 24.03.2023
+
+Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестрой! [2023, TV, 12 эп.] WEB-DL 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Как-то раз безработный затворник Махиро Ояма проснулся девочкой. Его гениальная младшая сестра Михари объяснила, что всё дело в лекарстве, которое она ему подмешала. Спустя два года беззаботной и бессмысленной жизни Махиро наконец-то придётся поработать подопытным кроликом для своей сестры.Производство: Студия Studio Bind / スタジオバインドЖанр: комедия, повседневностьРежиссер: Фудзии СингоПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F9F56A854A421E396EB10C570B848DDB3F5714C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602716   (200817) от 24.03.2023
+
+Sugar Apple Fairy Tale | Сказка о сахарном яблоке [2023, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+После смерти матери Энн Хэлфорд решает пойти по её стопам и стать Мастером Серебряного Сахара — кондитером невероятного класса. Таких специалистом весьма немного, и они высоко ценятся в стране Хайленд. Энн собирается в город Льюистон, где королевская семья проводит фестиваль сахарных скульптур, ведь лишь победив там можно стать Мастером Серебряного Сахара, но путь (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: приключения, фэнтезиРежиссер: Судзуки ЁхэйПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FBC5A2F71F3F9003E20E51A5E3932D204934FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602718   (200804) от 24.03.2023
+
+The Legend of Heroes: Sen no Kiseki - Northern War | Легенды Героев: Следы Холодной Стали — Северная Война [2023, TV, 12 эп.] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+1178 год по Септианскому календарю. В результате мистической катастрофы государство Северная Амбрия наполовину превратилось в соляную пустыню. Лишённые средств к существованию, жители страны сплотились вокруг бывших военных, организовавших наёмничий отряд «Северные Егеря», предлагающий свои услуги во многих конфликтах за границей.
+
+27 лет спустя родившаяся и выросшая (   Читать дальше...   )Производство: Студия Tatsunoko Production / タツノコプロЖанр: приключенияРежиссер: Сато ХидэкадзуПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E0979F0648D640DC21AAAE200B115D3173585A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617191   (200792) от 25.03.2023
+
+Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жизнь в ином мире [2023, TV, 12 эп.] HDTVRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Бывший работник компании Мачио Хираку умер в 39 лет после борьбы с болезнью. Но он получил второй шанс. Его оживили, омолодили и перенесли в другой мир, где существует магия и живут эльфы, вампиры и драконы. Но перед тем как Мачио отправился в другой мир, ему позволили загадать четыре желания. Он выбрал не болеть, жить в спокойном месте, знать язык места, в которое (   Читать дальше...   )Производство: Студия Zero-G / ゼロジーЖанр: повседневность, фэнтезиРежиссер: Курая РёитиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F456542EB58DF04FF1163D03F2F59C66810CFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603061   (200774) от 25.03.2023
 
 Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | История о том, как ангел по соседству превратила меня в бесполезного человека [2023, TV, 12 эп.] WEBRip 720p raw
@@ -6,7 +112,7 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | Истор
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200774.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -32,7 +138,7 @@ Blue Lock | Блю Лок [2022, TV, 24 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200758.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -58,7 +164,7 @@ Boku no Hero Academia Season 6 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200752.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -84,7 +190,7 @@ Kami-tachi ni Hirowareta Otoko 2 | By the Grace of the Gods 2 | Избранны
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -110,7 +216,7 @@ Yowamushi Pedal: Limit Break | Трусливый велосипедист [ТВ
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200710.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -136,7 +242,7 @@ Kyokou Suiri Season 2 / In/Spectre Season 2 / В/Спектре 2 / Ложные
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -165,7 +271,7 @@ Mononogatari | Malevolent Spirits | История о мононокэ [2023, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200691.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -191,7 +297,7 @@ Cool Doji Danshi | Play It Cool, Guys | Сыграйте круто, ребят�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -218,7 +324,7 @@ High Card | Старшая карта [2023, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200678.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -244,7 +350,7 @@ Ars no Kyojuu | Giant Beasts of Ars | Гигaнтскиe звeри Арсa [2023
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200675.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -270,7 +376,7 @@ Technoroid: Overmind | Технороид: Сверхразум [2023, TV, 12 э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -297,7 +403,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -326,7 +432,7 @@ Buddy Daddies | Папаши-подельники [2023, TV, 12 эп.] WEBRip 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200479.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +458,7 @@ Spy Kyoushitsu / Spy Classroom / Шпионский класс [2023, TV, 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -378,7 +484,7 @@ Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2:
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200444.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -407,7 +513,7 @@ Saikyou Onmyouji no Isekai Tenseiki | Реинкарнация сильнейш�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200429.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -433,7 +539,7 @@ Tsurune: Tsunagari no Issha | Tsurune: The Linking Shot | Песнь тетив�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -460,7 +566,7 @@ Wan Sheng Jie | All Saints Street | Улица всех святых [2020, Web,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200388.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -488,7 +594,7 @@ Nokemono-tachi no Yoru | The Tale of Outcasts | Сказание об отвер
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200376.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -514,7 +620,7 @@ Majutsushi Orphen Hagure Tabi: Urbanrama Hen | Sorcerous Stabber Orphen: Chaos i
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200262.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -540,7 +646,7 @@ Tokyo Revengers: Seiya Kessen Hen | Tokyo Revengers: Christmas Showdown Arc | Т
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +672,7 @@ Brave Witches | Храбрые ведьмы [2016, TV, 12 эп. + 1 OVA] BD-rip 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -577,110 +683,6 @@ Brave Witches | Храбрые ведьмы [2016, TV, 12 эп. + 1 OVA] BD-rip 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:458B58B5DF9846BC80643F671B6B7AF90E57D276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540945   (200041) от 10.04.2023
-
-Nomad: Megalo Box 2 | Мегалобокс [ТВ-2] [2021, TV, 13 из 13] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200041.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце концов, «Безредукторный» Джо стал чемпионом Мегалонии, первого в истории турнира по мегалобоксу. Поклонники повсюду были очарованы стремительным взлетом Джо, который прыгнул с самого глубокого подземного кольца на вершину всего за три месяца и без использования оборудования. Семь лет спустя «Безредукторный» Джо снова сражался в подпольных матчах. Украшенный (   Читать дальше...   )Производство: TMS EntertainmentЖанр: Приключения, спорт, стимпанкРежиссер: Морияма ЁСубтитры: РусскиеПродолжительность: 13 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599434E04FAC504A755097517F4DAC9E05EA997D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010219   (199883) от 12.04.2023
-
-Owari no Seraph: Nagoya Kessen Hen | Seraph of the End: Battle in Nagoya | Последний Серафим: Битва в Нагое [2015, TV, 12 + 4 sp] BDRip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199883.jpg" />
-</div>
-
-
-###  Подробнее
-
-На развалинах цивилизации кипит война старых и новых хозяев Земли. После таинственной эпидемии, выкосившей человечество, вампиры Японии во главе с королевой Крул Цепеш вышли из подполья, подчиняя людские анклавы и укрепляя свою кормовую базу. Сопротивление ночным кровососам возглавила Имперская армия, чьи лучшие бойцы составили отряд Лунных Демонов. Именно туда попал (   Читать дальше...   )Жанр: приключения, мистика, вампирыРежиссер: Токудо Дайсукэ / Tokudo Daisuke / 徳土大介Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01624B718974EEEE981808389567F0F6608B0D7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602986   (199688) от 16.04.2023
-
-UniteUp! | Объединяйтесь! [2023, TV, 12 +3R] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киёсе Акира поет на сайте потокового видео под псевдонимом «КИКУНОЮ». Однажды агентство талантов sMiLea Production находит его. sMiLea — это агентство, основанное бывшей легендарной парой айдолов AneLa для обучения новых подающих надежды айдолов. Затем Акира формирует айдол-группу с Наоэ Банри и Исузугавой Тихиро, которые также были замечены. Их новая группа Protostar (   Читать дальше...   )Производство: Студия CloverWorksЖанр: повседневность, музыкальныйРежиссер: Усидзима СинъитироПеревод: официальный (crunchyroll)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 3 рекапа по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076A065078C1302BE10B33B581637F08E4D40FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627556   (199561) от 19.04.2023
-
-Isekai Ojisan | Uncle from Another World | Перерождение Дяди [2022, TV, 13 эп.] BDRip 1080p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто же не мечтает хоть разок побывать в ином мире, наполненном магией и дивными существами?! Хотя обычный семнадцатилетний паренёк Сибасаки всерьёз об этом не задумывался, именно ему судьба решила предоставить такой шанс. Условия «перемещения», правда, оказались не совсем приятными, но с многотонным грузовиком не поспоришь. На долгие годы тело Сибасаки погрузилось (   Читать дальше...   )Производство: Студия Atelier PontdarcЖанр: комедия, фэнтезиРежиссер: Кавай СигэкиПеревод: официальный (Netflix); AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6EB18334B52C32FC71B24F7ED72FD708E41B82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1463698   (1012705) от 04.06.2021
+
+Soukou Musume Senki | LBX Girls | Девушки в доспехах [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Находясь в незапланированной поездке, Рико переносится в альтернативную Японию, где неведомые металлические существа — Мимезис — угрожают миру. И только девушки, обладающие специальным вооружением, могут бороться с этой опасностью. Вместе с другими четырьмя девушками Рико вынуждена бороться с врагами, чтобы спасти человечество и вернуться домой.Производство: студия Studio A-CATЖанр: приключенияРежиссер: Мотонага КэйтароПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ABE03404C7385EA8CFC9DC71A035B3F2A45EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458666   (1012600) от 04.06.2021
+
+Kaifuku Jutsushi no Yarinaoshi | Redo of Healer | Маг-целитель: Новый старт [2021, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Фэнтези о мести» расскажет историю Кэяруги (Кэяру) — мага-целителя, которого тупо используют его «друзья»-авантюристы для достижения своих целей. Ведь целители не могут сражаться. Однако Кэяруги удаётся преодолеть пределы возможностей, доступных обычному целителю, но уже поздно, его лишили всего. Поняв, что целитель на самом деле сильнейший класс, Кэяруги применяет (   Читать дальше...   )Производство: студия TNK / ティー・エヌ・ケーЖанр: тёмное фэнтези, драма, эротикаРежиссер: Асаока ТакуяПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80329C34CE2521007F1F75C0532E8EFF36375CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474985   (1012547) от 05.06.2021
 
 Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
@@ -6,7 +58,7 @@ Maburaho | Мабурахо [2003, TV, 24 из 24] BDRip 1080p 10-bit raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012547.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -33,7 +85,7 @@ Amanchu! Advance | Аманчу! [ТВ-2] [2018, TV, 12] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +113,7 @@ Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First T
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011700.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -89,7 +141,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011497.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +167,7 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011411.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -143,7 +195,7 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -169,7 +221,7 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011341.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -195,7 +247,7 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011337.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -221,7 +273,7 @@ Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Vo
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011335.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -247,7 +299,7 @@ Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Re
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -273,7 +325,7 @@ Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Б�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011331.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -299,7 +351,7 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011328.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -326,7 +378,7 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011325.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -352,7 +404,7 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011315.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -378,7 +430,7 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011140.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -404,7 +456,7 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010674.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -432,7 +484,7 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010333.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -458,7 +510,7 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot Zenpen - Wandering; 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -484,7 +536,7 @@ Devilman: Crybaby | Devilman Crybaby | Человек-дьявол: Плач [20
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -510,7 +562,7 @@ Yowamushi Pedal: Glory Line | Трусливый велосипедист [ТВ-
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009574.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -536,7 +588,7 @@ Yowamushi Pedal: New Generation | Трусливый велосипедист [�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009449.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -562,7 +614,7 @@ On-Gaku: Our Sound | Ongaku | Музыка [2020, Movie] BDRip 1080p HEVC 10-bit
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -589,7 +641,7 @@ Godzilla: Singular Point | Годзилла: Точка сингулярност
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -615,7 +667,7 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -626,58 +678,6 @@ Kengan Ashura | Кэнган Асура [2019, Web, 24 эп.] BDRip 1080p HEVC 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34EFBFEAEA3D3AD3C616280F65E16D41E25AF894
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480785   (1008711) от 30.06.2021
-
-Hataraku Saibou!! | Клетки за работой! [ТВ-2] [2021, TV, 8 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008711.jpg" />
-</div>
-
-
-###  Подробнее
-
-День за днём мы живём с вами, совершенно не задумываясь о процессах, происходящих внутри нашего организма. Всё происходит словно само собой, наши лёгкие 24 часа в сутки осуществляют газообмен, а сердце неутомимо перекачивает кровь по всему телу. И даже когда наш разум засыпает, тело наше продолжает неустанно трудиться, чтобы на следующее утро мы смогли вновь открыть (   Читать дальше...   )Производство: студия David Production / デイヴィッドプロダクションЖанр: приключения, комедияРежиссер: Огура ХирофумиПеревод: Wakanim (дехардсаб, оформление - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 8 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8289DA359D1F31A83AC1DA3F824B930CB2467DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440704   (1008365) от 02.07.2021
-
-Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдрифа [2020, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008365.jpg" />
-</div>
-
-
-###  Подробнее
-
-В один не совсем прекрасный день над Землёй появились Столбы, угрожающие всей жизни на планете. Бог, назвавшийся Одином, в тяжёлый час пришёл на помощь практически побеждённому человечеству и объявил контратаку, отдав людям боевых дев валькирий, снабдив их крыльям-«героикрафтами» (которые подозрительно похожи на самолёты первой половины прошлого века). Спустя несколько (   Читать дальше...   )Производство: студия A-1 PicturesЖанр: приключенияРежиссер: Токуда ХиротакаПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. (первая серия - 50 мин.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7918115794C4E3C372B0F2563D96CCED39764003
 ```
 
 https://mybot314.ru/tekegram_catalog/

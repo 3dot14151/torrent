@@ -1,3 +1,185 @@
+###  Публикация: 1251256   (419274) от 30.09.2018
+
+Инопланетная экспедиция / Alien Expedition (2018) WEB-DLRip [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Космический исследовательский корабль, на борту которого находятся и люди, и андроиды, натыкается на планету, пригодную для жизни. Задача команды - исследовать потенциал новой планеты. Но отправленная на разведку экспедиция вскоре вынуждена вступить в сражение с негостеприимной фауной не на жизнь, а на смерть.Производство: США / Splendid filmЖанр: ФантастикаРежиссер: Уоллес БразерсАктеры: С.Дж. Бэйкер, Эдвард Гастс, Этан Макдауэлл, Грегори Нибел, Уитни Нилсен, Антуоне Торберт, Линда Вонг, Мотаун Морис, Янника Олин и др.Перевод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:34:23Реклама: Присутствуют вставки голосовой и текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2958204B9211AE6AFAD3CD69D181514BDCEFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246597   (418995) от 20.10.2010
+
+Видеоклипы MTV HDTV Quality. Пиратская Вечеринка 2010. 80 клипов Club, Dance, Electronic, Pop, Trance 4,5 Gb
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Видеоклипы в HDTV качестве. Коллекция музыкальных клипов ТВ разных стилей и направленийЖанр: TV, Club, Dance, Electronic, Pop, TranceПеревод: Не требуетсяПродолжительность: 04:48:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160772   (418721) от 19.09.2017
+
+Катастрофа европейского еврейства / Annihilation - The Destruction of Europe's Jews (2014) HDTVRip (8 серий из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Впервые в истории историки и специалисты проведут полный анализ истории уничтожения еврейского народа во время Второй Мировой войны. Они попытаются установить причину возникновения геноцида и объяснить, почему евреи подверглись преследованию и массовому уничтожению нацистами сначала в Германии, а затем и по всей Европе. Сериал рассказывает об этапах, которые привели (   Читать дальше...   )Телекомпания: Франция, France Tlvision, Looks Films, Zadig ProductionsЖанр: Документальный, война, историяРежиссер: Вильям Карэл, Бланш ФигнерПеревод: ДублированныйПродолжительность: 8 х ~ 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B11F32C92754076ED11864978732725459D7708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167307   (418698) от 19.09.2017
+
+Малыш на драйве / Baby Driver (2017) WEB-DLRip [H.264] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Молодой парень по прозвищу Малыш обожает стильную музыку, быструю езду и адреналин в крови. Вся его жизнь — это сплошные погони и перестрелки, ведь он работает водителем, который помогает бандитам скрыться с места преступления. Однажды он по-настоящему влюбляется и решает выйти из игры, но сначала ему предстоит выполнить еще одно задание, которое вполне может оказаться (   Читать дальше...   )Производство: Великобритания, США |  TriStar Pictures, Media Rights Capital (MRC), Double NegativeЖанр: Боевик, Криминал, ТриллерРежиссер: Эдгар РайтАктеры: Энсел Элгорт, Джон Бернтал, Джон Хэмм, Эйса Гонсалес, Лили Джеймс, Морган Браун, Кевин Спейси, С.Дж. ДжонсПеревод: Многоголосый закадровый, любительский / студия Paradox & Omskbird records (присутствует ненормативная лексика)Субтитры: английскиеПродолжительность: 01:52:39Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF107CDBC1892D4D19F47AA2C962A9475514A65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 803794   (418594) от 15.10.2014
+
+За пределами / Выжившая / Род человеческий / Extant (2014) HDTVRip (Сезон 1, серии 1-13 из 13) (Amedia)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Футуристический триллер о женщине-астронавте, которая возвращается на Землю после космической экспедиции и пытается наладить отношения с семьей, но ее поступки загадочным образом изменяют ход истории всего человечества.Жанр: Фантастика, триллер, драмаРежиссер: Пэрис Барклай, Мэтт Эрл Бисли, Аллен КултерАктеры: Холли Берри, Брэд Бейер, Горан Вишнич, Пирс Гэнон, Камрин Менхейм, Тайлер Хилтон, Серджо Харфорд, Грэйс Гаммер, Майкл О’Нил, Жанетта Арнетт и др.Перевод: Профессиональный многоголосый закадровый - студия Кравец по заказу AmediaОзвучка: Марина Гладкая, Ксения Брзжесовская, Максим Сергеев, Сергей Куприянов и Вадим ПрохоровЯзык субтитров: РусскийФормат: AVIПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1227CD834C03C812EAA8665F9C31A76CEE58A072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065517   (418318) от 23.10.2016
+
+Снимки орбитального аппарата MRO проливают свет на случившееся с посадочным модулем Schiaparelli
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/005/" />
+</div>
+
+
+###  Подробнее
+
+Как мы рассказывали нашим читателям несколькими днями ранее, контакт с посадочным модулем Schiaparelli, являющимся частью российско-европейской миссии Exomars 2016 был потерян 19 октября 2016 года в 14:42 по времени Гринвичского меридиана незадолго после входа модуля в марсианскую атмосферу на гиперзвуковой скорости. Специалисты Европейского Центра космических операций (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065490   (418017) от 23.10.2016
+
+Spellforce (2005) [Ru/En] (1.54.75000/dlc) License GOG [Platinum Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+SpellForce - это удивительный мир волшебства, могущественных и безумных магов. Под действием магии были освобождены Элементы, которые обладают невиданной разрушительной силой! Они повергли мир в хаос, Земля изменилась до неузнаваемости. Целые страны исчезли с лица Земли, континенты рушились и разделялись на мелкие кусочки... Зло исчезло так же неожиданно, как и появилось.Тип издания: LicenseРазработчик: JoWooD Productions SoftwareЖанр: Strategy (Real-time), RPG, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E25B26F79E7774603536E014416F7E66AAD84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065549   (418011) от 23.10.2016
 
 Антирадар MapcamDroid / MapcamDroid Speedcam 2.4.184 [Ru/Multi]
@@ -6,7 +188,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418011.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418010.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417823.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -87,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_417792.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -119,7 +301,7 @@ Adobe Photoshop 2020 21.2.4.323 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417636.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -145,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417635.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -171,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417438.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -197,7 +379,7 @@ DriverPack Solution 17.1.0 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417412.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -223,7 +405,7 @@ Starcraft 2. Профессиональная корейская лига (се�
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417409.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -249,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416778.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -275,7 +457,7 @@ Guitar Hero: Warriors of Rock [Wii] [PAL] [Multi 5] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_416770.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -301,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416294.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -327,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416242.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -353,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416239.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -380,7 +562,7 @@ Windows 10 (v1903) x64 HSL/PRO by KulHunter v23 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415910.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -409,7 +591,7 @@ MOBILedit! Enterprise Portable by Maverick 8.7.0.20993 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415638.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -435,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -461,7 +643,7 @@ Crusader Kings III / Crusader Kings 3 (2020) [Ru/Multi] (1.1.1/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415285.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -487,7 +669,7 @@ Tropico 5 (2014) [Ru/Multi] (1.11/dlc) License GOG [Complete Collection]
 >>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415283.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -498,190 +680,6 @@ Tropico 5 — игра в жанре экономического/градост
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23DE49316580AA779C4091D81D3C83B8B51788D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412444   (415282) от 30.09.2020
-
-Секрет / The Secret: Dare to Dream (2020) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда сильный шторм разрушает дом молодой вдовы с тремя детьми, на пороге появляется таинственный незнакомец. Всего за несколько дней загадочный гость объединяет семью и помогает им найти новый смысл в жизни. Он открывает им Секрет, который может изменить все.Производство: США /  TRI G, Savvy Media Holdings, Covert MediaЖанр: Драма, мелодрамаРежиссер: Энди ТеннантАктеры: Кэти Холмс, Джош Лукас, Джерри О’Коннелл, Селия Уэстон, Сара Хоффмайстер, Эйдан Пирс Бреннан, Хлоя Ли, Катрина Бегин, Сидни Теннант, Саманта БольёПеревод: Дублированный (iTunes)Субтитры: Английские (Full)Продолжительность: 01:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C6B1FF1631955EC495FBFF6E8B552111BF3103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948064   (415125) от 18.10.2015
-
-Microsoft Office 2013 SP1 Standard 15.0.4763.1000 RePack by KpoJIuK [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D7A6CE105798E09F9273C2CC0D32216A6531E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947815   (415123) от 18.10.2015
-
-Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7159.5000 SP2 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C7105E5FBC56881B1FAFDF643C5A7DF9D4B8A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948092   (415122) от 18.10.2015
-
-Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4763.1000 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890C321DF9BAFF23B5968157120CA3C9A7B0E1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251628   (414969) от 02.10.2018
-
-Parallels Desktop for Mac Business Edition 14.0.1 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels Desktop для Mac Business Edition — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение, такое как Microsoft Office, без какого-либо ущерба для быстродействия.
-
-Parallels Desktop (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2018Разработчик: Parallels Holdings LtdПоддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FB57A5D664F663763C3B218262D0A619BDCACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 248419   (414794) от 22.10.2010
-
-Opera 11.00 Build 1029 Alpha For NoNaMe Club [Eng/Rus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_414794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera – один из самых быстрых и гибких в настройке браузеров. Используя скины, пользовательские панели и другие средства настройки интерфейса, его внешний вид можно изменять до неузнаваемости. Программа позволяет "на лету" отключать и включать графику, а также может похвастаться фирменной технологией масштабирования веб-страниц, благодаря которой пользователи браузера практически никогда не видят горизонтальной прокрутки.Язык интерфейса: Eng/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 147095   (414559) от 19.10.2009
-
-Враги народа / Джонни Д. / Public Enemies [перевод Гоблина](2009) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_414559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: триллер, драма, криминалРежиссер: Майкл МаннВ ролях: Джонни Депп, Кристиан Бэйл, Джеймс Руссо, Дэвид Уэнэм, Кристиан Столте, Джейсон Кларк, Джон Джудд, Стивен Дорфф, Роберт Майкл Виё, Уэсли УолкерПеревод: Любительский одноголосыйФормат: AVI (XviD)Продолжительность: 02:20:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

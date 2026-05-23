@@ -1,3 +1,108 @@
+###  Публикация: 1000999   (855252) от 27.03.2016
+
+Сид Катцен | PIC-микроконтроллеры. Полное руководство (2010) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Данная книга представляет собой исчерпывающее руководство по микроконтроллерам семейства PIC компании Microchip, являющегося промышленным стандартом в области встраиваемых цифровых устройств. В книге подробно описывается архитектура и система команд 8-битных микроконтроллеров PIC, на конкретных примерах изучается работа их периферийных модулей.
+В первой части излагаются (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE66861F8EB476569033346D1D497119C0FDB710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110370   (848276) от 05.03.2017
+
+И.Е. Петрунин (ред.) | Краткий справочник паяльщика (1991) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В справочнике приведены физико-механические свойства паяемых материалов, припои, флюсы и газовые среды. Описаны оборудование, процессы подготовки поверхностей к пайке и обработки их после пайки. Изложена технология пайки металлических материалов, металлов с неметаллическими материалами; рассмотрены дефекты и контроль качества паяных изделий. Освещены вопросы охраны (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D15722B5A22014064FCFE02FCC03D36845C2F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002853   (845191) от 02.04.2016
+
+И.П. Суздалев | Электрические и магнитные переходы в нанокластерах и наноструктурах (2012) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Настоящая монография посвящена электрическим и магнитным переходам и нанокластерах, наноструктурах, наноматериалах и наноустройствах. Рассматриваются существующие модели коллективизированных и локализованных электронов, а также механизмы переходов металл—изолятор и магнетик—парамагнетик.Жанр: ЭлектроникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F81491923C9413CBC14090B57AA5EE5E23C3641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112189   (843112) от 08.03.2017
+
+В.А. Головнин и др. | Физические основы, методы исследования и практическое применение пьезоматериалов (2016) [PDF, JPG]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Развитие технологий создания пьезоактивных материалов и их широкое внедрение в электронику требует своевременной научно-информационной и учебно-методической поддержки. Представляемая монография ставит целью рассмотрение как общих вопросов физики пьезо- и сегнетоактивных материалов, так и узконаправленных тем, посвященных специфике получения и практического применения (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CA2E064EB461931DBA80A8135F14AC14478DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112110   (843106) от 08.03.2017
 
 Ф. Сечи, М. Буджатти | Мощные твердотельные СВЧ-усилители (2015) [PDF, JPG]
@@ -6,7 +111,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842933.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841503.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +190,7 @@ ARRL | The ARRL Handbook for Radio Communications (2017) [PDF] [En]
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841111.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841063.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838788.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834150.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832404.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830954.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829571.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828719.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820142.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817458.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816403.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813361.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811275.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809250.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807975.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -532,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807099.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -558,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -569,110 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BED88AD8351FB72FB1B354343E56D772B1FE555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009950   (803225) от 24.04.2016
-
-А.В. Евстифеев | Микроконтроллеры AVR семейств Tiny и Mega фирмы ATMEL (2008) [5 издание] [+CD] [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена вопросам практического применения однокристальных микроконтроллеров AVR семейств Tiny и Mega фирмы ATMEL. Рассмотрена архитектура, ее особенности. Приведены основные электрические параметры и временные характеристики. Подробно описано внутреннее устройство микроконтроллеров, системы команд, периферия, а также способы программирования с примерами реализации (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD923A2C40A9496E5CE75A39ECCB141A4B547F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010311   (803215) от 24.04.2016
-
-Подборка книг | Микроконтроллеры [264 книги + 28CD] (1990-2016) [PDF, DJVU, CHM, ISO] [Ru, En]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микроконтроллер - это специализированный чип, который предназначен для управления разнообразными электронными механизмами. Впервые микроконтроллеры появились в 1971 году, как и микропроцессоры общего назначения. Создатели микроконтроллеров разработали остроумную идею - совместить процессор, ПЗУ, оперативную память и периферию, поместив это внутри одного корпуса, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF, DJVU, CHM, ISO
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1998EF867A59A2192A5F2924C7559835DB1D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120477   (803184) от 30.03.2017
-
-Александр Неверов и др. | Коррозия и защита материалов (2013) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803184.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Рассмотрены механизмы разрушения материалов под воздействием факторов окружающей среды и основные методы и средства, используемые для защиты от разрушения. Изложены проблемы диструкции не только металлов, но и неметаллических материалов (бетона, древесины, полимеров). Для студентов и бакалавров технических специальностей вузов. Будет полезно научным (   Читать дальше...   )Жанр: МатериаловедениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FEC7EBE67218A99006C4FD52F8BDA27EB4F971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120976   (801202) от 01.04.2017
-
-В.П. Дьяконов | Современные измерительные генераторы сигналов (2011) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801202.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описано современное состояние техники генерации сигналов различной формы (синусоидальных и импульсных) в широком диапазоне частот (от инфранизких до десятков ГГц) и амплитуд. Особое внимание уделено описанию серийных генераторов синусоидальных и импульсных сигналов, функциональных генераторов, генераторов с цифровым синтезом формы сигналов и генераторов сигналов (   Читать дальше...   )Жанр: Измерения, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F87C03851EBD2EF78ECE35E92039F8CAC5F596F
 ```
 
 https://mybot314.ru/tekegram_catalog/

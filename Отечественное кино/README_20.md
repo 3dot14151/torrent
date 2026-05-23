@@ -1,3 +1,107 @@
+###  Публикация: 1475145   (1012233) от 07.06.2021
+
+Последняя кнопка (2019) WEBRip [H.264/1440p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+В преддверии десяти миллионов подписчиков фанат Брайна навязчиво предлагает Брайну, Оливии и Ботану устроить вписку в загородном доме, но что-то идет не так.Производство: Россия / SM FilmsЖанр: Короткометражный, ужасы, комедия, триллерРежиссер: Артур ВишневскийАктеры: Максим Тарасенко, Никита Абрамов, Диана Ажбиева, Дмитрий Крылов, Лиана ШаховаСубтитры: ОтсутствуютПродолжительность: 00:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717CA277306164615B807C184FD8EA2FC2CFCFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475333   (1012187) от 07.06.2021
+
+Чернобыль (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия, Централ Партнершип, DK Entertainment, ГПМ КИТ, Нон-стоп ПродакшнЖанр: Драма, ИсторияРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуется (Русский) NetflixСубтитры: Русские (SDH), английские (SDH)Продолжительность: 02:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA544254EBECCBFECDA3A8956C395C5199306A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475843   (1011946) от 09.06.2021
+
+Двое из будущего (2021) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Двое из будущего» расскажет о семейной паре из 2061 года, которая попадает в наше время. Семья старается понять и исправить ошибки прошлого.Производство: Россия / Фильм фестиваля БлагостьЖанр: Короткометражный, комедияРежиссер: Олег ТорсуновАктеры: Олег Торсунов и команда фестиваля «Благость»Субтитры: ОтсутствуютПродолжительность: 00:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC50C95E723602303701618502253147ECFF159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476002   (1011902) от 09.06.2021
+
+Чернобыль (2020) WEB-DLRip [H.265] [10-bit]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия, Централ Партнершип, DK Entertainment, ГПМ КИТ, Нон-стоп ПродакшнЖанр: Драма, ИсторияРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуется (Русский) (Netflix)Язык озвучки: РусскийСубтитры: Русские (SDH), английские (SDH)Продолжительность: 02:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C30AA0FCA63DA6C9F280D41E0745976765BE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475930   (1011894) от 09.06.2021
 
 Тайна печати дракона (2019) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
@@ -6,7 +110,7 @@
 >>Отечественные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011894.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011754.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011751.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011560.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011414.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011397.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011334.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011329.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011296.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011281.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011202.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011105.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011090.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011046.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010970.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010583.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010572.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010540.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010265.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E55A707832DE9C0C64150F4C2AD723B4DE0300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478932   (1009614) от 23.06.2021
-
-Паркет (2021) WEBRip [H.264]
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фешенебельном отеле встречается некогда виртуозное трио исполнителей танго: знаменитый танцор, его бывшие жена и любовница. Они готовятся к финальному выступлению своей жизни: репетируют, выясняют отношения, сходятся в словесных поединках. На обломках былых отношений они пытаются сопротивляться времени и возродить пыл любовных страстей.Производство: Россия, Польша, ВеликобританияЖанр: драмаРежиссер: Александр МиндадзеПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA20762B3FC4B7373A0A8898EF3D6A62BBFFD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479527   (1009493) от 24.06.2021
-
-Играй со мной (2020) WEBRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об интереснейшей и загадочной актерской «кухне», подшучивая над самыми знаковыми моментами: кастинг, съемка рекламного ролика, кинопробы и прослушивание в театре. Фильм раскрывает артистический мир на примере судьбы одного молодого актера: от славы до забвения так далеко и в то же время так близко.Производство: Россия /  	АРТЛАЙТЖанр: Комедия, мелодрамаРежиссер: Андрей НазимовАктеры: Андрей Назимов, Мария Ахметзянова, Дмитрий Брусникин, Ирина Апексимова, Гоша Куценко, Noize MC, Дмитрий Миллер, Мария Машкова, Алексей ВертковПеревод: Не требуется (Русский) IVIЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139C90A0A8EB20090B3A6F000D6C815DE5E172A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479516   (1009370) от 25.06.2021
-
-Играй со мной (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об интереснейшей и загадочной актерской «кухне», подшучивая над самыми знаковыми моментами: кастинг, съемка рекламного ролика, кинопробы и прослушивание в театре. Фильм раскрывает артистический мир на примере судьбы одного молодого актера: от славы до забвения так далеко и в то же время так близко.Производство: Россия /  	АРТЛАЙТЖанр: Комедия, мелодрамаРежиссер: Андрей НазимовАктеры: Андрей Назимов, Мария Ахметзянова, Дмитрий Брусникин, Ирина Апексимова, Гоша Куценко, Noize MC, Дмитрий Миллер, Мария Машкова, Алексей ВертковПеревод: Не требуется (Русский) IVIЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12329BF391A09CF908957E9A70A1338B15D35B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479957   (1009262) от 26.06.2021
-
-Мой папа летчик (2013) WEBRip [VP9/2160p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люся Ермакова работает официанткой в офицерской столовой летного гарнизона. Ее сын Валька мечтает, чтобы у него был папа, и обязательно летчик. Подполковник Ивченко требует от Люси благосклонности, ведь это он помог ей с работой, но женщина избегает его. Ей нравится майор Ловцов. Однажды Валька убегает на аэродром и пропадает. На поиски ребенка поднимают весь гарнизон…Производство: Россия, Украина | Кинокомпания «УПС»Жанр: МелодрамаРежиссер: Александр ИтыгиловАктеры: Сергей Комаров, Иван Шмаков, Леся Самаева, Елизавета Майская, Марина Коняшкина, Олег Харитонов, Дмитрий Суржиков, Михаил Тарабукин, Антон Сладкевич, Екатерина КистеньСубтитры: ОтсутствуютПродолжительность: 01:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1308FB3609E523FEF156345B0CA2C0056AF6038
 ```
 
 https://mybot314.ru/tekegram_catalog/

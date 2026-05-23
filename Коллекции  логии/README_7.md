@@ -1,3 +1,55 @@
+###  Публикация: 1030807   (671727) от 01.07.2016
+
+Ларго Винч: Начало / Largo Winch (2008), Ларго Винч 2: Заговор в Бирме / Largo Winch 2 (2011) BDRip [H.264/1080p-LQ] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+После убийства приёмного отца Ларго Винч становится президентом группы компаний «W Group». Но роль управленца огромной корпорации не подходит Ларго. Он объявляет о продаже «W Group» и создании гуманитарного фонда, который возглавит старый друг его отца. В день, когда договор подписан, Ларго обвиняют в преступлениях против человечества и финансировании режима бирманского (   Читать дальше...   )Производство: ФранцияЖанр: Триллер, ПриключенияРежиссер: Жером СалльАктеры: Томер Сислей, Шэрон Стоун, Ульрих Тукур, Напакпапха Накпраситте, Оливье Бартелеми, Николас Воде, Клеменс Шик, Дмитрий Назаров, Лоран Терзиефф, Франсуа МонтагюПеревод: ДублированныйПродолжительность: 01:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC81098D6408092925F837E3C45F722AAB2AC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897992   (669118) от 21.05.2015
+
+Сокровище нации / National Treasure (2004-2007) [H.264/1080p] [Дилогия]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Приключения охотников за сокровищами, потерянные нацией, привлекают многих, но есть те, кто решился их найти. И это Бен Гейтс со своими друзьями. Интриги, провалы, предательства — на каждом шагу. Но это их не останавливает!..Производство: США / Walt Disney Pictures, Jerry Bruckheimer Films, Junction EntertainmentЖанр: боевик, триллер, детектив, приключенияРежиссер: Джон ТёртелтаубАктеры: Николас Кейдж, Дайан Крюгер, Джастин Барта, Шон Бин, Джон Войт, Харви Кейтель, Кристофер Пламмер, Дэвид Дайан Фишер, Стюарт Финлэй-МакЛеннан, Олег Тактаров, Стефен А. Поуп, Энни Париссе, Марк Пеллегрино, Армандо Риско, Эрик Кинг, Дон МакМанус, Рон Канада, Хантер Гомез, Дебора Йэтс, Арабелла Филд, Шарон Уилкинс, Хелен Миррен, Эд Харрис, Брюс Гринвуд, Ти Баррелл, Майкл (   Читать дальше...   )Перевод: профессиональный (полное дублирование), профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 02:11:06 | 02:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA8A952B9B5E47D5AEEED23543FEA1B792C5194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339337   (667206) от 20.05.2011
 
 Коллекция Ингмара Бергмана: Фанни и Александр / Fanny and Alexander (1982) 2*DVD5
@@ -6,7 +58,7 @@
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_667206.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665042.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661902.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661862.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_661141.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_659963.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657432.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655324.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653488.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651616.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646193.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_640991.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638890.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634948.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634627.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631408.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631108.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_628445.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_624927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624926.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623069.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -619,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное кино (коллекции / *логии)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621593.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -630,58 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C050AD01EE7CEE90952D958CF3B8DC49ED17DD41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910583   (619484) от 21.06.2015
-
-Коллекционер: Дилогия / The Collector: Dilogy (2009-2012) Blu-ray [2в1] [H.264/1080p]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший домушник Аркин забирается в загородный коттедж своего начальника с тем, чтобы ограбив его, выплатить долг своей бывшей жене. Однако попав внутрь, он вскоре понимает, что дом и его обитатели уже захвачены крайне неприятным типом в плюшевой маске и при полном наборе пыточных инструментов времен Испанской Инквизиции, после чего предпринимает отчаянную попытку (   Читать дальше...   )Производство: СШАЖанр: ужасы, триллерРежиссер: Маркус ДанстэнАктеры: Джош Стюарт, Майкл Рейли Бурк, Андреа Рот, Хуан Фернандес, Карли Скотт Коллинз, Даниелла Алонсо, Хейли Пуллос, William Prael, Дайан Голднер, Алекс Фельдман и др..Перевод: Дублированный , Одноголосый закадровый (Д.Есарев)Язык субтитров: русский, английскийПродолжительность: 01:29:59 / 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5877E0EE7E64F21CEB5FD2F5296469823CBF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897200   (619410) от 21.06.2015
-
-Детские игры / Child's Play (1988-1991) BDRip [H.264/1080p] [Трилогия]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда душа убийцы вселяется в невинно выглядящую куклу, никто, кроме маленького Энди, не осознает, что Чаки виновен в захлестнувшей город волне страшных убийств. Но настоящий ужас наступает тогда, когда дух злодея вознамеривается переселиться из куклы в живого человека...Производство: USA, U.K. / United Artists, Universal PicturesЖанр: ужасы, триллер, детективРежиссер: Том Холланд, Джон Лафия, Джек БендерАктеры: Кэтрин Хикс, Крис Сарандон, Алекс Винсент, Брэд Дуриф, Дайна Мэнофф, Томми Свердлоу, Джек Колвин, Нил Джунтоли, Хуан Рамирес, Алан Уайлдер, Дженни Агаттер, Геррит Грэм, Кристин Элиз, Грейс Забриски, Питер Хэскелл, Бет Грант, Грег Джерманн, Рэймонд Сингер, Джастин Уэйлин, Перри Ривз, Джереми Силверс, Трэвис Файн, Дин Джекобсон, Дэкин Мэтьюз, Эндрю Робинсон, Бёрк БирнсПеревод: профессиональный (многоголосый закадровый), профессиональный (двуголосый закадровый), авторский (одноголосый закадровый)Язык субтитров: русский, английскийПродолжительность: 01:27:07 | 01:23:50 | 01:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B151E0C3096B67C6B5ABCFA93F3F92E9DD609689
 ```
 
 https://mybot314.ru/tekegram_catalog/

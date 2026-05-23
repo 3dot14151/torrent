@@ -1,3 +1,82 @@
+###  Публикация: 475719   (85454) от 30.03.2012
+
+Джейсон Фрайд, Дэвид Хайнемайер Хенссон | Rework. Бизнес без предрассудков [PDF] [2010]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - сенсация в мире деловой литературы, что убедительно доказывают ее международные продажи. И немудрено - она переворачивает устоявшиеся представления о "правильном" ведении бизнеса, на деле зачастую мешающие успеху.
+Авторы, основатели легендарной компании "37signals", рассказывают, как начать или усовершенствовать ваш имеющийся бизнес, (   Читать дальше...   )Жанр: Деловая литература, бизнес, маркетинг, мотивацияПеревод: Иван СывороткинФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD73A62F8412709404B97FFD8F3AA143FCD40305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468062   (82321) от 15.03.2012
+
+Яна Франк | Муза и чудовище. Как организовать творческий труд [2010] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Описание: Людям творческим трудно использовать традиционные приемы тайм-менеджмента. Но без порядка в делах и им не обойтись. Эта книга предназначена именно для того, чтобы они могли организовать свой труд самым эффективным и притом не скучным образом. В книге можно писать, рисовать, вырезать и клеить. Здесь можно хранить идеи и сокровенные мысли, шутить и гадать на разворотах в поисках идей. Здесь можно сразу пробовать на практике все описанные автором "рецепты", а по прочтении книги - начать новую жизнь. В то время как другие художники пытаются не забывать дома тетрадь для важных записей, читателей этой книги будет волновать только один вопрос: "Как жить дальше, когда все странички будут исписаны?". Эта книга в первую очередь для людей, живущих творчеством дома и на работе, а также для фрилансеров многих профессий и для тех, кому просто нужно навести порядок в делах.2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25753A508002539E7A5CADCBFA005F8A2957A4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465684   (81177) от 10.03.2012
+
+Л. Орлова | Тренинг профессиональных продаж [2008] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Данное пособие содержит рекомендации по профессиональной организации продаж. Анализ показывает, что даже если компания выпускает хорошую продукцию или предоставляет качественные и нужные услуги, она может проиграть на рынке, где, несомненно, присутствует конкуренция в той или иной степени. Слабым оказывается звено, отвечающее за продажи.  А значит, нет должного продвижения продуктов и услуг в сторону рынка и обратной связи от рынка к предприятиям. Кто может обеспечить эту связь? Только продавцы. В книге показан новый подход к понятиям "продажи", "продавцы". Продажи сегодня - это не «впаривание» товара или услуги ради извлечения немедленной выгоды, а формирование долгосрочных партнерских отношений с клиентом. Что предполагает иное отношение к своему труду со стороны продавца, наличие иных навыков, следование другим принципам в своей работе. Но, оказывается, продавать таким образом вовсе не легко.  Книга учит продавцов по-новому отнестись к своей профессии, ведь в продажах важны не столько знания, (   Читать дальше...   )2008Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35590CD1EC9EBECE2683CA460BE8E91E0552DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464845   (80993) от 09.03.2012
 
 М.А. Лукашенко | PR: теория и практика [2010] [PDF]
@@ -6,7 +85,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_80993.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_76371.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_74286.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -90,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65264.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -117,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63797.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -143,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62783.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -169,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61877.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61874.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61864.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61853.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -275,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61742.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61717.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -331,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60780.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -360,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60779.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -388,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60716.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -415,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60681.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -442,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60491.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -468,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60465.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -496,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -523,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60373.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -550,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59618.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -579,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57084.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -605,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57083.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -617,85 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03490C6FC5D25C21BD908D798C32CDE0B23F7129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721957   (57082) от 09.05.2024
-
-Патрик Ленсиони | Пять пороков команды: практика преодоления. Программа для лидеров, менеджеров и модераторов (2023) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патрик Ленсиони, автор бестселлера «Пять пороков команды», делится техниками и приемами, которые помогут превратить неэффективную команду в слаженную.
-Бизнес-роман Патрика Ленсиони «Пять пороков команды» стал мировым бестселлером. По многочисленным просьбам читателей автор написал практическое руководство, которое поможет воплотить идеи книги в жизнь и создать эффективную (   Читать дальше...   )Жанр: Бизнес-романы Зарубежная деловая литератураПеревод: Павел ШевцовИздательство: Манн, Иванов и Фербер (МИФ)Формат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658CE96391B17D820C7F2E56DF8BDDD817E44702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722026   (57081) от 09.05.2024
-
-Ларс-Йохан Эге | Happy-happy. Шведская система успешных переговоров без обид и проигравших (2021) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Результат переговоров напрямую зависит от способа ведения беседы. По словам Ларса-Йохана Эге, опытного шведского переговорщика, который работает с отделом по освобождению заложников ФБР, переговоры можно считать успешными только тогда, когда обе стороны удовлетворены и, следовательно, счастливы. В этой книге автор описывает 5 способов для достижения согласия с кем (   Читать дальше...   )Жанр: Переговоры, Саморазвитие / личностный рост, Искусство общенияПеревод: Жанна БорисоваИздательство: Эксмо, БомбораФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170561CA68E890B0EB50BE8BEE79DF2D0391CAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881046   (57016) от 10.05.2024
-
-Владимир Тараненко | Разоблаченный логотип, или Психогеометрия (2013) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги «Разоблаченный логотип, или Психогеометрия», знаменитый эксперт по визуальной психодиагностике, физиогномике и графологии Владимир Тараненко, предпринял уникальную попытку проанализировать пространство окружающих нас вещей и выявить воздействие содержащихся в них геометрических форм не на символическом и культурном, а на глубинном психологическом уровне. (   Читать дальше...   )Жанр: Маркетинг, PR, рекламаИздательство: Ника-ЦентрФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888BF044DB6905C3868AF2476CA592BEB6CE74C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

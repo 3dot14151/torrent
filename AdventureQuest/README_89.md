@@ -1,3 +1,107 @@
+###  Публикация: 1754588   (40693) от 11.10.2024
+
+The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Вернитесь назад во времени, чтобы спасти будущее, в этом уморительном приключении. Через шесть часов Небесам придет конец. Если только вы их не спасете. Используйте способность путешествовать во времени, чтобы перемещаться между прошлым и будущим на Небесах, в Аду, на Земле и в Хельхейме. Узнавайте что-то в одном времени, чтобы изменить другое, в попытке предотвратить (   Читать дальше...   )Тип издания: SceneРазработчик: Perfectly ParanormalЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754834   (40633) от 12.10.2024
+
+Europa (2024) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+На луне Европа, пышном терраформированном раю в тени Юпитера, андроид по имени Зи (Zee) отправляется на поиски ответов. Бегайте, скользите и летайте по ландшафту, разгадывайте тайны в руинах рухнувшей утопии и узнайте историю последнего живого человека. Europa - это мирная игра о приключениях, исследованиях и медитации. По мере путешествия вы будете постепенно улучшать (   Читать дальше...   )Тип издания: SceneРазработчик: Helder Pinto, Chozabu (Alex PB), Novadust EntertainmentЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C539C7ABD1CCF0BCFB948EB935821D1B2809BFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730315   (40540) от 13.10.2024
+
+The Talos Principle 2 (2023) [Ru/Multi] (2.2.0/dlc) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+The Talos Principle 2 предлагает увлекательный и заставляющий задуматься опыт для поклонников первой части. Переносясь в мир, лишенный остатков человечества, но наполненный остатками их культуры, игроки оказываются в роботизированном городе внутри таинственной мегаструктуры, хранящей секреты вселенной и судьбу цивилизации.Тип издания: SceneРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986D48B3EB26ADFBFD0EA56EA4E74162335967EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754997   (40525) от 13.10.2024
+
+Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/002/" />
+</div>
+
+
+###  Подробнее
+
+Мрачный детективный экшен в стиле фэнтези от создателей Danganronpa. Действие игры разворачивается в пропитанном дождем городе, контролируемом мегакорпорацией, и игроки берут на себя роль Юмы, детектива-стажера, работающего вместе с шинигами и другими мастерами-детективами, обладающими уникальными способностями. Игровой процесс чередуется между реальными расследованиями, (   Читать дальше...   )Тип издания: SceneРазработчик: Spike Chunsoft Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Китайский и другиеЯзык интерфейса: Английский, Японский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423361B80EBA0035A50C28A67B1B193A49A07FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679737   (40519) от 13.10.2024
 
 The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
@@ -6,7 +110,7 @@ The Will of Arthur Flabbington (2023) [Multi] (2.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -32,7 +136,7 @@ The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40134.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -58,7 +162,7 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40106.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -84,7 +188,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39921.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -110,7 +214,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39904.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -136,7 +240,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -162,7 +266,7 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39881.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -188,7 +292,7 @@ A Quiet Place: The Road Ahead (2024) (1.0.0/dlc) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39879.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -214,7 +318,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39878.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -240,7 +344,7 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39845.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -266,7 +370,7 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39826.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -292,7 +396,7 @@ The Talos Principle II (2) (2023) [Ru/Multi] (2.2.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39732.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -318,7 +422,7 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39729.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -344,7 +448,7 @@ Ereban: Shadow Legacy (2024) [Ru/Multi] (1.2.12) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39724.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -370,7 +474,7 @@ Road 96: Mile 0 (2023) [Ru/Multi] (1.2.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39626.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -396,7 +500,7 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39606.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -422,7 +526,7 @@ Harold Halibut (2024) [Ru/Multi] (1.1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39450.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -448,7 +552,7 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39263.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -474,7 +578,7 @@ INDIKA (2024) [Ru/Multi] (1.0.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39241.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -500,7 +604,7 @@ Beyond Shadowgate (2024) [En] (1.0.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39131.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -526,7 +630,7 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39054.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -552,7 +656,7 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.0.3/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39022.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/002/" />
 </div>
 
 
@@ -563,110 +667,6 @@ The Coma 2B: Catacomb - корейская приключенческая игр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757736   (38940) от 29.10.2024
-
-Bendy and the Ink Machine (2017) [Ru/Multi] (1.5.1.2) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bendy and the Ink Machine – это игра-головоломка от первого лица в жанре survival horror, которая начинается в далёкие дни анимации и заканчивается в очень тёмном будущем. Возьмите на себя роль Генри – аниматора из давних времён. Возвращайтесь в забытое место, про которое он думал, что никогда его больше не увидит. То, что произойдёт дальше, – тайна. Но вы больше (   Читать дальше...   )Тип издания: LicenseРазработчик: Joey Drew StudiosЖанр: Экшены, Приключенческие игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2653B98C6CB406524E441916B604D34D701326A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757687   (38936) от 29.10.2024
-
-Creatures of Ava (2024) [Ru/Multi] (1.0.2.2/dlc) Repack FitGirl [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Creatures of Ava - это не типичная адвенчура по ловле монстров. Конечно, здесь есть более 20 диких существ, с которыми вам предстоит столкнуться, но вот в чем загвоздка: вы не ставите перед собой цель запереть их в шаре. Вместо этого Creatures of Ava посвящена пониманию и установлению связи с этими очаровательными существами. Вы будете использовать специальную флейту, (   Читать дальше...   )Тип издания: RepackРазработчик: Inverge StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B424FEFB86A4C8B37155021D4014A496627247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757921   (38886) от 30.10.2024
-
-Outbreak: Shades of Horror Chromatic Split (2024) [En] (1.0) Scene Rune
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу конца в прологе к грядущему Outbreak от студии Dead Drops: Shades of Horror. Переживите вспышку эпидемии нежити, борясь за выживание, чтобы пролить свет на ужасные события, которые вот-вот постигнут Cypress Ridge. В роли Лидии, офицера полиции-ветерана, вы мчитесь наперегонки со временем по канализации Cypress (   Читать дальше...   )Тип издания: SceneРазработчик: Dead Drop Studios LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F029A8399192FD5CC08829C4196AD653884D5026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757861   (38854) от 30.10.2024
-
-Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте самое безумное дело в своей детективной карьере, находя улики, сражаясь с зомби-подобными существами и боссами, от которых волосы встают дыбом. Решайте сложные головоломки и исследуйте историю, полную поворотов и поворотов. Выберите классическую фиксированную камеру для фильмов ужасов о выживании или камеру через плечо.Тип издания: RepackРазработчик: Dragon LevelЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4B0AF386A1742E9BDD6F6DDF42418AF587E135
 ```
 
 https://mybot314.ru/tekegram_catalog/

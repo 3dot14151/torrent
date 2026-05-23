@@ -1,3 +1,81 @@
+###  Публикация: 1185383   (292749) от 21.11.2017
+
+Blackguards 2 (2015) [Ru/Multi] (2.3) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Blackguards 2 - сиквел пошаговой ролевой стратегии, в которой теперь ещё больше гексагональных боевых полей и ещё более мрачная история, переполненная жестокостью и преступлениями. Сами определяйте свой стиль игры: каким бы не был ваш персонаж по классу, только вы решаете, как он будет развиваться. Но за каждым поступком идут последствия, так что хорошенько подумайте, (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA7B17E7EA7E47A957F72D048713293B0E2F9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185520   (292592) от 21.11.2017
+
+Fallout 3 (2009) [Ru] (1.7.0.3/dlc) Repack xatab [Game of the Year Edition]
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Инженеры из Vault-Tec круглосуточно работали над интерактивным воспроизведением жизни в Пустоши, чтобы вы могли насладиться ей, не покидая собственного убежища. Сюда входит обширный мир, уникальные бои, поразительно реалистичные визуальные эффекты, множество вариантов выбора и невероятная группа динамичных персонажей.Тип издания: RepackРазработчик: Bethesda Game StudiosЖанр: Action (Shooter), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1720D6998932CB56B312DB25AACEEBC0DC03854E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185541   (290760) от 22.11.2017
+
+Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики [Definitive Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в очаровательный мир, где каждое принятое решение и каждый выбранный путь оказывают влияние на вашу судьбу. Obsidian Entertainment и Paradox Interactive с гордостью представляют вашему вниманию новую RPG - Pillars of Eternity! Приготовьтесь, ибо вас ожидает головокружительное приключение, наполненное новыми открытиями и опасностями. Отправляйтесь (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269840   (289163) от 13.12.2010
 
 Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: Великие битвы [Ru] (L) 2010 | TRiViUM
@@ -6,7 +84,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289163.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -34,7 +112,7 @@ Dragon Age: Origins / Эпоха Дракона: Начало (2009) [Ru/En] (1.
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288858.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -60,7 +138,7 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287030.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -86,7 +164,7 @@ Sacred / Князь тьмы (2004) [Ru/En] (2.28/dlc) License GOG [Gold Edition
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285394.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -112,7 +190,7 @@ Albion (1995) [Multi] (1.38) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285370.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -138,7 +216,7 @@ Nioh (2017) [Ru/Multi] (1.21.02/dlc) Repack R.G. Revenants [Complete Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285203.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +242,7 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285199.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +268,7 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285191.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -216,7 +294,7 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281969.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -242,7 +320,7 @@ The Outer Worlds (2019) [Ru/Multi] (1.0) Repack R.G. Механики
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281789.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -268,7 +346,7 @@ Nox (2000) [En] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281625.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -294,7 +372,7 @@ Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0.) Repack =nemos=
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281507.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -320,7 +398,7 @@ Lightning Returns: Final Fantasy XIII (2015) [En/Multi] (1.0) License CODEX
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281506.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -346,7 +424,7 @@ The Incredible Adventures of Van Helsing III (2015) [Muli] (1.0.6b) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279896.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -372,7 +450,7 @@ SINNER: Sacrifice for Redemption (2018) [Ru/Multi] (1.0) License SKIDROW
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277508.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -398,7 +476,7 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277396.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -424,7 +502,7 @@ Beltion: Beyond Ritual / Бельтион: Свод равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277278.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -450,7 +528,7 @@ Might and Magic 8: Day of the Destroyer (2000) [En/Fr/Ge] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276703.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -476,7 +554,7 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275454.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -503,7 +581,7 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0) License RELOADED
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275436.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -529,7 +607,7 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274228.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -555,7 +633,7 @@ Dragon Age 2 / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack F
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272725.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -581,7 +659,7 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 >>RPG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272720.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -592,84 +670,6 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D0485193BF10F7D2F3607C55437D017556770D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268576   (271615) от 30.11.2018
-
-Mount & Blade: With Fire & Sword / Mount & Blade: Огнём и мечом: Великие битвы (2010) [Ru] (1.0) License R.G Игроманы
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средневековая Европа умирает. И хотя бронированная конница всё ещё страшна в атаке, а лук и стрелы в умелых руках всё ещё опаснее пистолета, война уже изменилась навсегда. Под грохот полевых орудий, среди гранатных взрывов и треска мушкетной пальбы рождаются новые армии, которые сметут старые империи с карты Европы. В новом проекте серии «Огнём и мечом» вас ждёт (   Читать дальше...   )Тип издания: ЛицензияРазработчик: Студия СиЧъ, Snowberry ConnectionЖанр: Action, Add-on (Standalone), RPG, 3D, 1st Person, 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0985F5661E21F3E35342BE1DD7BA5B5EFAC08786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337930   (271109) от 13.11.2019
-
-CODE VEIN (2019) [Ru/Multi] (1.01.86038) Repack R.G. Механики
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соберите команду и бросьте вызов смерти в CODE VEIN. Раскройте тайну своего прошлого и спасите свою жизнь. Меняйте класс персонажа, подбирайте навыки и союзников и делайте все, что поможет вам выжить. Эта игра может содержать контент, не подходящий для всех возрастов или для просмотра на работе: Сцены насилия или жестокости, Контент для взрослых.Тип издания: RepackРазработчик: BANDAI NAMCO StudiosЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9362E2A9B77649558C97DBA368A2AAE37FFBA2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337868   (271108) от 13.11.2019
-
-Rune II (2019) [Ru/Multi] (0.0.9L) License CODEX
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие RUNE II происходит в опасном скандинавском мире, дни которого почти сочтены. Это эпическая приключенческая ролевая игра, в которой боги, чудовища и остатки людей борются за выживание. Боги избрали вас спасителем Мидгарда — получайте их благословения и мощные способности, чтобы предотвратить Рагнарёк.Тип издания: LicenseРазработчик: Human Head StudiosЖанр: Action, RPG, Adventure, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32835E06AD9F85097E47B7A05F3AA352CC583431
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,110 @@
+###  Публикация: 199669   (767427) от 27.01.2019
+
+Юрий Ревич | Занимательная электроника (2006) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В этой книге на простых и реализуемых на практике примерах рассказывается о том, как проектировать, настраивать и собирать электронные устройства в домашних условиях. Книга содержит самую обширную информацию начиная с физических азов электроники, и вплоть до описания устройства и принципов работы различных радиоэлектронных компонентов. Приведены рекомендации по оборудованию (   Читать дальше...   )Жанр: Справочный материал, НаукаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DE3E3CEC47680BD97EF349E04DAEA15B30F6F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125747   (766888) от 16.04.2017
+
+А.П. Кашкаров | Современные осветительные приборы. Выбор, подключение, безопасность (2017) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В книге рассмотрены особенности эксплуатации популярных типов осветительных приборов на основе мощных светодиодов, которые обладают заметными преимуществами перед традиционными энергосберегающими лампами и лампами накаливания. Светодиоды – мощные твердотельные источники света, однако они также имеют недостатки, о которых дискутируют специалисты. На основе приведенных (   Читать дальше...   )Жанр: Электронные компоненты, электротехникаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C815DDFD9CFD3F368008CD5233212FAAB34E2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116544   (765945) от 17.04.2017
+
+Подборка | Даташиты зарубежных конденсаторов [5300 комплектов] (2006-2017) [PDF] [En] [Обновляемая]
+
+>>След.
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+В подборку включено множество технической документации 53 фирм производителей: CapXon, HITANO, Jamicon, Nichicon, Nippon Chemi-Con, Panasonic, Rubycon, SAMWHA, и др. Даташиты предоставляют полную информацию о компоненте ( электрических характеристиках, массо-габаритных показателях и т.д.). В состав включены все виды конденсаторов, выпускаемых производителями. Стандартные, (   Читать дальше...   )Жанр: Техническая документацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219DA7936923DBBD2816CCC566D2F6A34352521A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 211943   (765019) от 30.01.2019
+
+Г.Б. Белоцерковский | Основы радиотехники и антенны [Две части] (1969) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/008/" />
+</div>
+
+
+###  Подробнее
+
+Учебник для техникумов "Основы радиотехники и антенны" разделен на две части, которые издаются отдельными книгами.
+В первой части "Основы радиотехники" рассматриваются общие принципы радиотехники, колебательные контуры и фильтры, основы теории длинных линий, электромагнитные волны, радиопомехи и общие вопросы радиоприема в условиях помех.
+
+Вторая (   Читать дальше...   )Жанр: Научная литература, радиотехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A654A21D42A536399B7FFC60BFF1CD185FF3E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 203414   (764730) от 23.05.2010
 
 Корякин-Черняк С.Л. | Справочник сварщика для любителей и не только... [2008] [DJVU]
@@ -6,7 +113,7 @@
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764353.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -59,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764126.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763424.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762951.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762843.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762836.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -190,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -217,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762548.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -243,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762342.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -269,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761573.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -295,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761500.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -324,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760898.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -350,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759867.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -376,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754847.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -403,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754519.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -429,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754165.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -455,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750837.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748160.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746358.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -534,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745254.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/008/" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Техническая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_744851.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -572,112 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E87128FBA4B4D586E71C66C612F3976E5BBEA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020505   (743030) от 27.05.2016
-
-Ю.Н. Давиденко | 500 схем для радиолюбителей. Современная схемотехника в освещении (+ CD) (2008) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743030.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге впервые в СНГ систематизированы многочисленные схемные решения электронных устройств, предназначенных для электропитания современных светильников с люминесцентными, галогенными лампами и светодиодами. Приводимой информации достаточно для самостоятельного изготовления понравившейся конструкции. Схемы сопровождаются подробными описаниями, рисунками печатных (   Читать дальше...   )Жанр: Электроника, радиотехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E22344E2F587B1668AE7EAE620640E1FC57F730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217321   (742033) от 05.04.2018
-
-Л.Р. Маилян (ред.) | Справочник организатора строительного производства (2009) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742033.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последние годы теория и практика строительного производства получили свое дальнейшее развитие. Появились новые методы организации строительства, изменились структура управления строительным производством и исполнительная техническая документация в строительстве, обновились нормативные документы. В предлагаемом справочнике представлено краткое изложение основных (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E18A3DC56C9A69BFE8367418899A4CCB13A6BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216766   (741779) от 05.04.2018
-
-С.Б. Шмаков | Импульсные источники питания. Создание, ремонт, работа (2013) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741779.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге имеются как сложные источники питания, так и простые схемы для широкого применения в самых разнообразных радиолюбительских конструкциях. Все источники питания, рассмотренные в книге, были проверены их авторами на практике, демонстрировались на выставках, были отмечены призами и дипломами.
-Книга предназначена для широкого круга радиолюбителей, позволяет выбрать (   Читать дальше...   )Жанр: Электротехника, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B3E04D136DB96710518ED4B0E52CC45D43C720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527028   (737300) от 27.01.2022
-
-Дорохов А.П. и др. | Основы промышленной электроники (1964) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является учебником по курсу "Основы промышленной электроники" для студентов не электротехнических специальностей технических вузов.
-В ней рассматриваются конструкции и основные свойства элементов электронной аппаратуры, принцип работы электронных схем и вопросы применения электронной аппаратуры в промышленности, приводится краткий математический анализ (   Читать дальше...   )Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548B21C008AD1559BDFDDA50AC9FEDE41258D1E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

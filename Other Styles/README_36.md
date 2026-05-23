@@ -1,3 +1,206 @@
+###  Публикация: 1380230   (831564) от 04.05.2020
+
+Salvador Candel - Luna (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Camelot 05:06
+2. Reflejos de luna 05:14
+3. El ritmo de la luna 05:48
+4. Vientos del alma 05:45(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7E6E5B5E3B03A1362CCE4BFEB49376A6AD624A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380759   (831453) от 04.05.2020
+
+Silvis Silentii - The Sounds of Nature (2016-2020) (2020) [FLAC|Lossless|WEB-DL|tracks] <Field Recording>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. ZOOM0001 (01:04)
+ 02. ZOOM0002 (02:35)
+ 03. ZOOM0003 (02:29)
+ 04. ZOOM0004 (02:22)(   Читать дальше...   )Жанр: Field RecordingПродолжительность: 01:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5602040761846DA6DC18ECDA0A9CD31AAD568B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380680   (831361) от 04.05.2020
+
+Asian Zen - Valentine’s Healthy Rituals (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Focus and Visualization 03:38
+2. In Harmony with Partner 03:39
+3. String and Healthy Body 03:39
+4. Stress and Anxiety Relieve 03:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D838EB07F6FC0C3C461333324EBCE4463B0B710F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379924   (830754) от 04.05.2020
+
+Salvador Candel - Tocando Cielo (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Bailando en las estrellas 03:02
+2. Eternidad 05:05
+3. Tocando cielo	04:41
+4. Abrazando a la tierra 08:49(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A194CA22B59CB6D82EBD3A089359778BCDA401D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005908   (830743) от 10.04.2016
+
+Vineyard - Unto the King (1989) [FLAC|Lossless|tracks + .cue] <Praise & Worship>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. We Cry Holy (Eddie Espinosa) (03:30)
+02. Lord We Praise You (Eddie Espinosa) (02:33)
+03. Words Can Never Say (Eddie Espinosa) (03:25)
+04. Soften My Heart (Eddie Espinosa) (03:03)(   Читать дальше...   )Жанр: Praise & WorshipПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2E82A4B67EE983C03D217C69F68E23CF4A57BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501928   (830003) от 13.10.2021
+
+Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+1. Sahara Breeze
+2. A Trick of the Light
+3. Touched by the Sun
+4. Illusions(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380949   (829763) от 05.05.2020
+
+Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/006/" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 3 (Main Theme)
+02. Thrill Of Nature
+03. Dark Force In Motion
+04. Call Of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E939C45AB0C7ACB199E2BBFDD340B1ABA35341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380951   (829748) от 05.05.2020
 
 Inon Zur - Syberia II (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
@@ -6,7 +209,7 @@ Inon Zur - Syberia II (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829748.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -35,7 +238,7 @@ Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829743.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [FLAC|Lossless|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829711.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [MP3|320 Kbps] <E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829706.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - The Crow/из к/ф "Ворон" (1994) Compilation [FLAC|Lossless|tracks +
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828959.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -151,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -181,7 +384,7 @@ Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827809.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -210,7 +413,7 @@ David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827807.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -239,7 +442,7 @@ Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827735.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -268,7 +471,7 @@ Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827730.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -297,7 +500,7 @@ Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <S
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827649.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -326,7 +529,7 @@ Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826905.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -355,7 +558,7 @@ Equador - Bones Of Man (2016) [MP3|320 Kbps] <Ambient, Electronic, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826452.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -384,7 +587,7 @@ Paul Ruskay - Homeworld 2 Remastered Soundtrack (2015) [FLAC|Lossless]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826190.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -413,7 +616,7 @@ VA - Acoustic Covers 90s (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826167.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -442,7 +645,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826145.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -468,7 +671,7 @@ Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826060.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -497,7 +700,7 @@ James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826004.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -526,7 +729,7 @@ Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824805.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/006/" />
 </div>
 
 
@@ -540,209 +743,6 @@ Terry Scott Taylor - The Music of Armikrog. (2015) [FLAC|Lossless|tracks] <Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E6A334F2DF1EE29AA96DC0DF4C56F8730B572AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381318   (824693) от 08.05.2020
-
-Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824693.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divine Healing 04:30
-2. Yoga Exercises 02:56
-3. Art of Meditation 02:56
-4. Sacred Prayers 03:05(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33EC54587855C90A3F9F762B91B6DFDB815CF731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381516   (824690) от 08.05.2020
-
-Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dream Sleep Song 03:24
-2. Sleep for Mom & Dad 03:37
-3. Natural Sleep Aid 03:31
-4. Gentle Piano Lullaby	 03:08(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADA9BC3DC5366EC6786F227C5D683301D2C996D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381473   (824688) от 08.05.2020
-
-Asian Zen - Fresh Meditation Soundtrack (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824688.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oriental Bliss 02:56
-2. Flashes of Water 03:13
-3. Relaxing Oriental Rhythms 03:36
-4. Healing Treasure 03:17(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1463754727DF014FDBB2AF7FC29EB78340FD1248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381789   (824481) от 08.05.2020
-
-Кватро - Тебе поем (2020) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824481.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kyrie Eleison
-2. Благослови, Душе моя, Господа
-3. Богородице, Дево, Радуйся
-4. Херувимская песнь (Павел Чесноков)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE967F0A2925B97F219E0790DE355A589DBB20E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381723   (824466) от 08.05.2020
-
-Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Classical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nocturne (3:14)
-2. Song From A Secret Garden (3:33)
-3. Adagio (2:55)
-4. Serenade To Spring (3:15)(   Читать дальше...   )Жанр: New Age, Classical, InstrumentalПродолжительность: 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B009C5304C4631A5D20913622AF66D686B6B9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381386   (824465) от 08.05.2020
-
-New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824465.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deep Focus with Tibetan Bowls 03:52
-2. Better Stimulation 03:32
-3. All Day Motivation 03:31
-4. Pineal Gland Activation 03:34(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116154   (824442) от 19.03.2017
-
-Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интродукция
-02. Виртуозо
-03. Вечер
-04. Ирландский ветер(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB7B69341F2DA5D967DA888F6EBA505BBFF2909
 ```
 
 https://mybot314.ru/tekegram_catalog/

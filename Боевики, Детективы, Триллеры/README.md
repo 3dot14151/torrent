@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1872004   (1070263) от 
+
+Андреас Грубер | Лето возмездия (2011) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Лейпциг. Элитная психиатрическая клиника. Когда девятнадцатилетнюю пациентку Наташу находят мёртвой, все выглядит как обычное самоубийство. Но комиссара Вальтера Пуласки терзают сомнения. Записи в дневнике девушки полны планов на будущее, а смертельная доза препарата вызывает вопросы. Настоящую головоломку подбрасывает и предсмертная записка.
+Пуласки начинает подозревать (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Goldmann VerlagФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67444EDEA4BEA01BAE3A4F68D3A0A82DB04C1F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1871518   (1069674) от 
+
+Андреас Грубер | Совиные врата (2008) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+«Совиные врата» — захватывающий хоррор Андреаса Грубера, в котором сплетаются мистика и арктические приключения. Сюжет разворачивается в двух временах.
+В 1911 году венский врач Александр Бергер и его команда отправляются в гибельную экспедицию на Шпицберген. Страдая от голода и обморожений, на грани отчаяния они делают немыслимую находку: рукотворную шахту, уходящую (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Luzifer-VerlagФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88C98ECD9586378EED2C8680D67EB67B6979E79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1870963   (1069458) от 
+
+Андреас Грубер | След смерти (2026) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Во время ночной масштабной операции в тихом курортном городке Бад-Кройцнах следователи Федерального ведомства уголовной полиции Маартен С. Снейдер и Сабина Немез пытаются задержать социолога доктора Пауля Конрада. Его подозревают в ключевой роли в создании нового поколения террористической организации RAF — «Фракции Красной армии» — и в подготовке беспрецедентной (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Wilhelm Goldmann VerlagФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E551A7D284B4B3CEE22DA87C16A467E180EE7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1869805   (1068466) от 
 
 Андреас Грубер | Ангельская мельница (2008) [FB2, EPUB, MOBI]
@@ -7,7 +87,7 @@ https://t.me/izofen
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068466.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1068378.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067927.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067555.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067074.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -142,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066974.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066601.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066456.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065531.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -240,6 +320,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865413   (1065191) от 15.04.2026
+
+Кристин Коваль | Покаяние (2026) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/picture_torrent/007/" />
+</div>
+
+
+###  Подробнее
+
+Что определяет нас как личность? Самое ужасное, что мы совершили? Или мы больше, чем страшные поступки?
+После шокирующего убийства в доме Энджи и Дэвида Шиханов их жизнь рассыпается на осколки. В отчаянии они обращаются за помощью к адвокату из своего городка, Мартине Дюмон. Но Мартина - не просто юрист, она мать первой любви Энджи, Джулиана, с которым их связывает (   Читать дальше...   )Жанр: ТриллерыПеревод: Наталья АлександроваИздательство: Дом историйФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B89AAA8697A5F4DCCD1C961183E66CE7D0411B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864679   (1065155) от 
 
 Арно Штробель | Игра в месть (2014) [FB2, EPUB, MOBI]
@@ -248,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065155.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -275,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064872.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -301,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064603.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -329,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064564.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -357,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064240.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -385,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064021.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -412,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063693.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -439,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063634.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -465,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063249.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -491,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062919.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -519,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062173.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -547,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061901.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/007/" />
 </div>
 
 
@@ -575,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061766.jpg" />
+  <img src="http://mybot314.ru/picture_torrent/005/" />
 </div>
 
 
@@ -588,111 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182ABF1DF90156131B08A131115679FE1E32CDD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859430   (1061182) от 15.03.2026
-
-Ник Пирог | Три часа ночи (2013) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Генри Бинс страдает редким заболеванием — он бодрствует всего один час в сутки, с трёх до четырёх ночи. Однажды в это короткое время он становится свидетелем загадочного преступления, в котором, похоже, замешаны очень влиятельные люди. Но как расследовать дело, если у тебя есть всего 60 минут в день? Далеко не обычный герой и по-настоящему необычное дело. Остроумный, (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Independently PublishedФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E26ABE8CE2132D5AB9091F356A121AE234A79A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859510   (1061151) от 16.03.2026
-
-Валерий Шарапов | Контрразведка. Романы о секретной войне СССР (Книга 18). Операция на два сердца (2026) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1061151.jpg" />
-</div>
-
-
-###  Подробнее
-
-1982 год. Подполковник КГБ Алексей Уланов предает Родину и сбегает в США, где становится информатором ЦРУ. Советская разведка решает вернуть перебежчика любой ценой и вовлекает в операцию его бывшую жену Софью, которая, как выясняется, ничего не знала о намерениях супруга. Под наблюдением майора КГБ Олега Вернера женщина отправляется в Штаты, где «воссоединяется» (   Читать дальше...   )Жанр: Детектив, ШпионажИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD45ED19CCC0F89285CF53EDCE4A9FB47288387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859236   (1061055) от 15.03.2026
-
-Себастьян Фитцек | Ужасное свидание (2025) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061055.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ужасное свидание» — не триллер, а смешная и трогательная комедия. Умирающий Рафаэль знакомится с Налой на сайте для смертельно больных, но не может пойти на встречу. Он просит своего здорового и кристально честного друга Юлиуса подменить его.
-Юлиус притворяется больным, но Нала слишком проницательна. Парень путается во лжи, то хвастаясь марафоном, то заказывая гору (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Droemer KnaurФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8B55FA0DCDFEE800D7E925E99079E2A9595E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1858961   (1060763) от 13.03.2026
-
-Себастьян Фитцек | Мимикрия (2022) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1060763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ханна Хербст — лучший в Германии эксперт по мимике и микровыражениям лица. Она способна по крошечному подёргиванию уголка рта или изменению зрачка понять, врёт человек или говорит правду, и уже помогла посадить множество убийц. Но после сложной операции у неё начинаются провалы в памяти, и она почти не может смотреть на своё отражение в зеркале — боится того, что (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: Иван ВисычЯзык: русскийИздательство: Droemer HCФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34345D9591268438010BDA47947FD8A91B52A54
 ```
 
 https://mybot314.ru/tekegram_catalog/
